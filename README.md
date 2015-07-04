@@ -6,7 +6,9 @@ All languages are welcome, although translations into African languages should u
 # Structure
 Each top level folder represents a language, identified by its [ISO 639-1](http://en.wikipedia.org/wiki/ISO_639-1) or [ISO 639-3](http://en.wikipedia.org/wiki/ISO_639-3) code, with a preference for the ISO 639-1 "Alpha-2 code", if it exists. For major languages, this code is usually two characters long (e.g., `es`, `zh`, `ar`), but some languages may have three characters (e.g., `yue`).
 
-Within each folder, files are grouped by name. The base filename for each story consists of the translated name of the story, with any spaces replaced by additional underscores. For example, the Norwegian story _En veldig høy mann_ has a base filename `en_veldig_høy_mann`, and associated files include `en_veldig_høy_mann.txt`, `en_veldig_høy_mann.pdf`, `en_veldig_høy_mann.ogg` etc.
+Within each folder, files are grouped by name. The base filename for each story consists of the _story number_ (a four-digit index number that unambiguously identifies the story within the collection) followed by an underscore, and then the translated name of the story in lower case with any spaces replaced by dashes. For example, the Norwegian story _En veldig høy mann_ is story `#0001`, so the base filename is `0001_en-veldig-høy-mann`, and associated files include `0001_en-veldig-høy-mann.txt`, `0001_en-veldig-høy-mann.pdf`, `0001_en-veldig-høy-mann.ogg` etc.
+
+A list of stories by index number can be found [here](https://github.com/global-asp/global-asp/tree/master/INDEX.md). The list includes links back to the original versions of each story on the African Storybook Project. Stories are assigned an index number in the order that they are translated; if you are translating a new story for the project just add it to the end of the list and assign it a new index number in sequence.
 
 # File formats
 The availability of stories in multiple formats is beneficial for others who might wish to use, adapt, or translate them into other languages. At a minimum, each story should include the following formats:
