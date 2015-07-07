@@ -16,11 +16,9 @@
 
 農夫就話“噓噓”。
 
+--
 
-
-
-
-[CC-BY-NC]
+License: [CC-BY-NC]
 Writer: Jenny Katz
 Illustration: Sandy Campbell
 Translated by: dohliam

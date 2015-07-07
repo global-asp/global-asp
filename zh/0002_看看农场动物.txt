@@ -16,11 +16,9 @@
 
 农夫就说“嘘嘘”。
 
+--
 
-
-
-
-[CC-BY-NC]
+License: [CC-BY-NC]
 Writer: Jenny Katz
 Illustration: Sandy Campbell
 Translated by: dohliam

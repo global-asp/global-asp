@@ -22,8 +22,9 @@
 
 他离开他的房子住进一个很大的森林里。他在那里住了很多年。
 
+--
 
-[CC-BY-NC]
+License: [CC-BY-NC]
 Writer: Cornelius Gulere
 Illustration: Catherine Groenewald
 Translated by: dohliam
