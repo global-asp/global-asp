@@ -1,5 +1,5 @@
 # Overview
-This goal of this project is to translate the freely-licensed materials created by the [African Storybook Project](http://africanstorybook.org) into all of the world's languages so that children everywhere can enjoy these wonderful African stories and create new ones in the same spirit.
+The goal of this project is to translate the freely-licensed materials created by the [African Storybook Project](http://africanstorybook.org) into all of the world's languages so that children everywhere can enjoy these wonderful African stories and create new ones in the same spirit.
 
 All languages are welcome, although translations into African languages should usually be directed to the African Storybook Project main site. We are particularly interested in translations into languages that have very few resources for early childhood learning. For example, if you are involved in indigenous language revitalization, we would love it if you could join the project.
 
