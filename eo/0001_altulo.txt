@@ -24,7 +24,7 @@ Li forlasis sian domon kaj translokiĝis al tre granda arbaro. Li loĝis tie dum
 
 --
 
-License: [CC-BY-NC]
+License: [CC-BY]
 Writer: Cornelius Gulere
 Illustration: Catherine Groenewald
 Translated by: dohliam
