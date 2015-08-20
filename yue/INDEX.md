@@ -1,0 +1,9 @@
+Story #  | Story title | Download options | License | Transliteration
+-------- | ----------- | ---------------- | ------- | ---------------
+0001 | 一個好高嘅人 | [View](https://github.com/global-asp/global-asp/blob/master/yue/0001_一個好高嘅人.pdf) · [Download](https://github.com/global-asp/global-asp/raw/master/yue/0001_一個好高嘅人.pdf) | [CC-BY-NC](http://creativecommons.org/licenses/by-nc/3.0/) | _n/a_
+0002 | 睇吓農場動物 | [View](https://github.com/global-asp/global-asp/blob/master/yue/0002_睇吓農場動物.pdf) · [Download](https://github.com/global-asp/global-asp/raw/master/yue/0002_睇吓農場動物.pdf) | [CC-BY-NC](http://creativecommons.org/licenses/by-nc/3.0/) | _n/a_
+0003 | 校服 | [View](https://github.com/global-asp/global-asp/blob/master/yue/0003_校服.pdf) · [Download](https://github.com/global-asp/global-asp/raw/master/yue/0003_校服.pdf) | [CC-BY-NC](http://creativecommons.org/licenses/by-nc/3.0/) | _n/a_
+0007 | 搵水 | [View](https://github.com/global-asp/global-asp/blob/master/yue/0007_搵水.pdf) · [Download](https://github.com/global-asp/global-asp/raw/master/yue/0007_搵水.pdf) | [CC-BY](https://creativecommons.org/licenses/by/3.0/) | _n/a_
+0008 | 你做緊乜嘢？ | [View](https://github.com/global-asp/global-asp/blob/master/yue/0008_你做緊乜嘢.pdf) · [Download](https://github.com/global-asp/global-asp/raw/master/yue/0008_你做緊乜嘢.pdf) | [CC-BY](https://creativecommons.org/licenses/by/3.0/) | _n/a_
+0009 | 我隻小貓貓喺邊度？ | [View](https://github.com/global-asp/global-asp/blob/master/yue/0009_我隻小貓貓喺邊度.pdf) · [Download](https://github.com/global-asp/global-asp/raw/master/yue/0009_我隻小貓貓喺邊度.pdf) | [CC-BY-NC](http://creativecommons.org/licenses/by-nc/3.0/) | _n/a_
+0010 | 烏干達動物 | [View](https://github.com/global-asp/global-asp/blob/master/yue/0010_烏干達動物.pdf) · [Download](https://github.com/global-asp/global-asp/raw/master/yue/0010_烏干達動物.pdf) | [CC-BY](https://creativecommons.org/licenses/by/3.0/) | _n/a_

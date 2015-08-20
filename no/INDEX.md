@@ -1,0 +1,7 @@
+Story #  | Story title | Download options | License | Transliteration
+-------- | ----------- | ---------------- | ------- | ---------------
+0001 | En veldig høy mann | [View](https://github.com/global-asp/global-asp/blob/master/no/0001_en-veldig-høy-mann.pdf) · [Download](https://github.com/global-asp/global-asp/raw/master/no/0001_en-veldig-høy-mann.pdf) | [CC-BY-NC](http://creativecommons.org/licenses/by-nc/3.0/) | _n/a_
+0002 | Se på dyrene | [View](https://github.com/global-asp/global-asp/blob/master/no/0002_se-på-dyrene.pdf) · [Download](https://github.com/global-asp/global-asp/raw/master/no/0002_se-på-dyrene.pdf) | [CC-BY-NC](http://creativecommons.org/licenses/by-nc/3.0/) | _n/a_
+0003 | Skoleklær | [View](https://github.com/global-asp/global-asp/blob/master/no/0003_skoleklær.pdf) · [Download](https://github.com/global-asp/global-asp/raw/master/no/0003_skoleklær.pdf) | [CC-BY-NC](http://creativecommons.org/licenses/by-nc/3.0/) | _n/a_
+0008 | Hva gjør du? | [View](https://github.com/global-asp/global-asp/blob/master/no/0008_hva-gjør-du.pdf) · [Download](https://github.com/global-asp/global-asp/raw/master/no/0008_hva-gjør-du.pdf) | [CC-BY](https://creativecommons.org/licenses/by/3.0/) | _n/a_
+0009 | Hvor er katten min? | [View](https://github.com/global-asp/global-asp/blob/master/no/0009_hvor-er-katten-min.pdf) · [Download](https://github.com/global-asp/global-asp/raw/master/no/0009_hvor-er-katten-min.pdf) | [CC-BY-NC](http://creativecommons.org/licenses/by-nc/3.0/) | _n/a_
