@@ -1,16 +1,16 @@
-# Qué estás haciendo?
+# ¿Qué estás haciendo?
 
 ##
 Estoy cantando.
 
 ##
-Está despidiendose.
+Está despidiéndose.
 
 ##
 Estoy aplaudiendo.
 
 ##
-Está estirando sus brazos.
+Está estirándose.
 
 ##
 Está llamando.
