@@ -13,16 +13,16 @@ Er den på toppen av skapet?
 Er den bak sofaen?
 
 ##
-Er den ved siden av bøtten?
+Er den ved siden av bøtta?
 
 ##
-Er den inne i kurv?
+Er den i kurven?
 
 ##
 Er den utenfor huset?
 
 ##
-Her den er!
+Her er den!
 
 ##
 License: [CC-BY-NC]
