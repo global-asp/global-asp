@@ -30,4 +30,3 @@ Story Text By: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 Illustration: Bronwen Heath, Anonymous
 Translation: Espen Stranger-Johannessen
 Language: sv
-
