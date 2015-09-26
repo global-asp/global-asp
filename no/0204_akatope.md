@@ -25,7 +25,7 @@ De andre barna løp til hyttene sine, men da Akatope løp til sin, begynte beina
 De andre barna fortalte foreldrene sine hva som hadde hendt med Akapope. De var lei seg og sjokkerte.
 
 ##
-Da den gamle damen hørte hva some hadde hendt barnet hennes, gråt hun i flere dager. Landsbyboerne bestemte seg for å ta med seg en annen liten jente som hadde blitt foreldreløs til å ta Akatopes plass.
+Da den gamle damen hørte hva som hadde hendt barnet hennes, gråt hun i flere dager. Landsbyboerne bestemte seg for å ta med seg en annen liten jente som hadde blitt foreldreløs til å ta Akatopes plass.
 
 ##
 Men det var ikke nødvendig. En stor overraskelse ventet den gamle damen!
