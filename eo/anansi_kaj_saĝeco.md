@@ -22,7 +22,7 @@ En neniu tempo li atingis la supron de la arbo. Sed tiam li haltis pensante, “
 
 Anansi kaj saĝeco
 Licenco: [CC-BYa]
-Verkisto: Ghanaian folktale
+Verkisto: Ganaa rakonto
 Ilustraĵo: Wiehan de Jager
 Tradukisto: Espen Stranger-Johannessen
 Lingvo: eo
