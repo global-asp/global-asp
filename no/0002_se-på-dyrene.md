@@ -1,7 +1,7 @@
 # Se på dyrene
 
 ##
-See på dyrene.
+Se på dyrene.
 
 ##
 Kua sier "mø".
