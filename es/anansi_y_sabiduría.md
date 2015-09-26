@@ -22,7 +22,7 @@ Se rompió en pedazos en la tierra. La sabiduría era libre para todo el mundo p
 
 Anansi y sabiduría
 Licencia: [CC-BY]
-Escritor: Ghanaian folktale
+Escritor: Cuento de Ghana
 Ilustración: Wiehan de Jager
 Traducción: Espen Stranger-Johannessen
 Lengua: es
