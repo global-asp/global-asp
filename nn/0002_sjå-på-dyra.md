@@ -1,19 +1,27 @@
-==Sjå på dyra==
+# Sjå på dyra
 
+##
 Sjå på dyra.
 
+##
 Kua seier "mø".
 
+##
 Geita seier "mæ".
 
+##
 Hesten seier "vrinsk".
 
+##
 Grisen seier "grynt".
 
+##
 Høna seier "klukk".
 
+##
 Hunden seier "voff".
 
+##
 Bonden seier "hysj!"
 
 --
