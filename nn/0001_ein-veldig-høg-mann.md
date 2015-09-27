@@ -1,4 +1,4 @@
-#Ein veldig høg mann
+# Ein veldig høg mann
 
 ##
 Hakka hans var for kort.
@@ -33,8 +33,7 @@ Han sett på ein veldig høg stol. Han åt med ein veldig lang gaffel.
 ##
 Han forlét huset sitt og budde i ein stor skog. Han levde i mange år.
 
---
-
+##
 License: [CC-BY-NC]
 Writer: Cornelius Gulare
 Illustration: Catherine Groenewald

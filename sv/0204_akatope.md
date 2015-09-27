@@ -43,8 +43,8 @@ Akatope hade kommit hem. Men hon var trött och sjuk.
 Akatopes gamla mor sålde allt hon ägde. Hon använde pengarna till att behandla Akatope. Akatope växte upp till att bli den vackraste flickan i byn.
 
 ##
-Licens: [CC-BY]
+License: [CC-BY]
 Writer: Alice Kapolondo
 Illustration: Catherine Groenewald, Microsoft Clip Art och Wiehan de Jager
-Översättning: Espen Stranger-Johannessen
-Språk: sv
+Translation: Espen Stranger-Johannessen
+Language: sv

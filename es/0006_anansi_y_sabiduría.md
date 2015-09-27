@@ -18,11 +18,9 @@ En un instante llegó a la parte superior del árbol. Pero entonces  paró y pen
 ##
 Se rompió en pedazos en la tierra. La sabiduría era libre para todo el mundo para compartir. Y así es cómo la gente aprendió a cultivar, tejer tela, hacer herramientas de hierro, y todas las otras cosas que la gente sabe cómo hacer.
 
---
-
-Anansi y sabiduría
-Licencia: [CC-BY]
-Escritor: Cuento de Ghana
-Ilustración: Wiehan de Jager
-Traducción: Espen Stranger-Johannessen
-Lengua: es
+##
+License: [CC-BY]
+Writer: Cuento de Ghana
+Illustration: Wiehan de Jager
+Translation: Espen Stranger-Johannessen
+Language: es

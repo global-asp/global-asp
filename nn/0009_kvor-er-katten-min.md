@@ -24,8 +24,7 @@ Er han utanfor huset?
 ##
 Her er han!
 
---
-
+##
 License: [CC-BY-NC]
 Story Text By: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 Illustration: Bronwen Heath, Anonymous

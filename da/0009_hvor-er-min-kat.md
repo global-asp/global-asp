@@ -24,8 +24,7 @@ Er den udenfor huset?
 ##
 Her er den!
 
---
-
+##
 License: [CC-BY-NC]
 Story Text By: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 Illustration: Bronwen Heath, Anonymous

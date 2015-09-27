@@ -24,8 +24,7 @@ Men desse skorne er nye.
 ##
 ... dei passar godt.
 
---
-
+##
 License: [CC-BY-NC]
 Story Text By: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 Illustration: Mlungisi Dlamini, Anonymous

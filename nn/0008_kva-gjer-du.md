@@ -24,8 +24,7 @@ Ho lyttar.
 ##
 Kva gjer du?
 
---
-
+##
 License: [CC-BY]
 Story Text By: Nina Orange
 Illustration: Wiehan dei Jagar

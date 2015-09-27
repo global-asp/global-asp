@@ -25,8 +25,8 @@ Ist sie außerhalb des Haus?
 Hier ist sie!
 
 ##
-Lizenz: [CC-BY-NC]
-Geschrieben von: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
+License: [CC-BY-NC]
+Writer: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 Illustration: Bronwen Heath, Anonymous
-Übersetzung: Espen Stranger-Johannessen
-Sprache: de
+Translation: Espen Stranger-Johannessen
+Language: de

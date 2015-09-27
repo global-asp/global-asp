@@ -24,8 +24,7 @@ Hun lytter.
 ##
 Hvad gør du?
 
---
-
+##
 License: [CC-BY]
 Story Text By: Nina Orange
 Illustration: Wiehan de Jager

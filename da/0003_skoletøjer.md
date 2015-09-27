@@ -24,8 +24,7 @@ Men disse sko er nye.
 ##
 ... de passer godt.
 
---
-
+##
 License: [CC-BY-NC]
 Story Text By: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 Illustration: Mlungisi Dlamini, Anonymous

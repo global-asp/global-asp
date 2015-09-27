@@ -18,11 +18,9 @@ En neniu tempo li atingis la supron de la arbo. Sed tiam li haltis pensante, “
 ##
 Ĝi frakasis en pecoj sur la tero. La saĝeco estis libera por dividi inter ĉiuj. Kaj estas tiel kiel homoj lernis farmi, teksi tukojn, fari ferajn ilojn kaj ĉiujn la aliajn aferojn ke homoj scias fari. 
 
---
-
-Anansi kaj saĝeco
-Licenco: [CC-BY]
-Verkisto: Ganaa rakonto
-Ilustraĵo: Wiehan de Jager
-Tradukisto: Espen Stranger-Johannessen
-Lingvo: eo
+##
+License: [CC-BY]
+Writer: Ghanaian folktale
+Illustration: Wiehan de Jager
+Translation: Espen Stranger-Johannessen
+Language: eo
