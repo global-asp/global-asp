@@ -7,7 +7,7 @@ Wo ist meine Katze?
 Ist sie unter dem Bett?
 
 ##
-Ist die oben auf dem Schrank?
+Ist sie oben auf dem Schrank?
 
 ##
 Ist sie hinter dem Sofa?
