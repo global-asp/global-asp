@@ -13,7 +13,7 @@ Var är min katt?
 Er den bak soffan?
 
 ##
-Er den bredvid av hinken?
+Er den bredvid av soptunnan?
 
 ##
 Er den i korgen?
