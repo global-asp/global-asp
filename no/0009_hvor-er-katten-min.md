@@ -13,7 +13,7 @@ Er den på toppen av skapet?
 Er den bak sofaen?
 
 ##
-Er den ved siden av bøtta?
+Er den ved siden av søppelbøtta?
 
 ##
 Er den i kurven?
