@@ -25,8 +25,7 @@ Sie hört zu.
 Was tust du?
 
 ##
-Was tust du?
-Lizenz: [CC-BY]
-Autorin: Nina orange
+License: [CC-BY]
+Writer: Nina Orange
 Illustration: Wiehan de Jager
-Sprache: de
+Language: de
