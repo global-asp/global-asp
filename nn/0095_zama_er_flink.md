@@ -40,9 +40,9 @@ Eg gjer alle desse gode tinga kvar dag.
 Men det eg likar mest, er å leika og leika!
 
 ##
-Lisens: [CC-BY]
-Tekst: Michael Oguttu
-Illustrasjon: Vusi Malindi
-Omarbeiding: Nina Orange
-Omsetjing: Espen Strangar-Johannessen
-Språk: nn
+License: [CC-BY]
+Writer: Michael Oguttu
+Illustration: Vusi Malindi
+Adapted by: Nina Orange
+Translation: Espen Strangar-Johannessen
+Language: nn
