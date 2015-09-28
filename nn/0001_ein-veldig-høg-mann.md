@@ -13,7 +13,7 @@ Senga hans var for kort.
 Sykkelen hans var for kort.
 
 ##
-Denne mannen var for høy!
+Denne mannen var for høg!
 
 ##
 Han laga eit veldig langt hakkeskaft.
