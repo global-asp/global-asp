@@ -21,7 +21,7 @@ Mamma påminner, “Glem ikke tennene.”
 Jeg svarer: "Aldri, ikke jeg!"
 
 ##
-Etter vask hilser jeg på bestefar og tante og ønsker dem en god dag.
+Etter kroppsvasken hilser jeg på bestefar og tante og ønsker dem en god dag.
 
 ##
 Så kler jeg meg selv, "Jeg er stor nå mamma,” sier jeg.
