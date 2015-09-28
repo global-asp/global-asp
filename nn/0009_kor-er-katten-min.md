@@ -26,7 +26,7 @@ Her er han!
 
 ##
 License: [CC-BY-NC]
-Story Text By: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
+Writer: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 Illustration: Bronwen Heath, Anonymous
 Translation: Espen Stranger-Johannessen
 Language: nn
