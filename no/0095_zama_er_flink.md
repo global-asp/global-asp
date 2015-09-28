@@ -39,8 +39,7 @@ I klassen gjør jeg mitt beste i alle måter.
 Jeg gjør alle disse gode tingene hver dag.
 Men det jeg liker mest, er å leke og leke!
 
---
-
+##
 Lisens: [CC-BY]
 Tekst: Michael Oguttu
 Illustrasjoner: Vusi Malindi
