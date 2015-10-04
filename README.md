@@ -76,13 +76,13 @@ The metadata section should include the following information:
 
 These should each be on a separate line, and each item of metadata should not be more than a single line. There is some flexibility with the wording, but ideally the names should be as consistent as possible. Any additional fields or information will be removed from the generated storybooks.
 
-A typical metadata section should look like this:
+A typical metadata section should look something like this:
 
-    License: [CC-BY]
-    Story Text By: Clare Verbeek
-    Illustration: Mlungisi Dlamini
-    Translator: dohliam
-    Language: zh
+    * License: [CC-BY]
+    * Writer: Clare Verbeek
+    * Illustration: Mlungisi Dlamini
+    * Translation: dohliam
+    * Language: zh
 
 Notes:
 * The License information is included between square brackets (`[]`) and should be one of either `[CC-BY]` or `[CC-BY-NC]` in accordance with the original story license
@@ -93,7 +93,7 @@ Notes:
 
 # Download
 
-Pre-compiled binary releases containing markdown source files along with alternate formats (specifically __PDF__, __ODT__, __epub__, __HTML__, __HTML slideshow__, __jpg__, and __plain text__) are available on the [releases page](https://github.com/global-asp/global-asp/releases). The latest release is ![](https://cloud.githubusercontent.com/assets/9295750/9483128/0e089e5e-4b51-11e5-98ca-6da5cef156a7.png) [v1.0](https://github.com/global-asp/global-asp/releases/tag/v1.0). You can download it [here](https://github.com/global-asp/global-asp/releases/tag/v1.0).
+Pre-compiled binary releases containing markdown source files along with alternate formats (specifically __PDF__, __ODT__, __epub__, __HTML__, __HTML slideshow__, __jpg__, and __plain text__) are available on the [releases page](https://github.com/global-asp/global-asp/releases).
 
 Alternate download options are available through ![](https://avatars0.githubusercontent.com/u/559357?v=3&s=24) Dropbox and ![](https://cloud.githubusercontent.com/assets/9295750/9473522/1d6fdde4-4b10-11e5-98f5-aa6c6b04a08e.png) Google Drive. See the download lists (files named `README.md`) in the individual language folders for download links.
 
@@ -101,6 +101,8 @@ Alternate download options are available through ![](https://avatars0.githubuser
 All contributions are welcome! (This includes reporting issues.)
 
 If you are interested in translating one of the stories, it is recommended that you use the .md files in the repo (which are also included in the [binary releases](#download)), and follow the [existing format](#source-format). This is also the only format accepted for pull requests to the github repository.
+
+See the [Source format section](#source-format) above for information about getting pre-translated markdown files for all the ASP stories.
 
 If you're already comfortable with Github and version control, here are some ideas for ways to get involved:
 
