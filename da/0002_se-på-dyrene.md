@@ -25,8 +25,8 @@ Hunden siger "vuf".
 Bonden siger "hys!"
 
 ##
-License: [CC-BY-NC]
-Writer: Jenny Katz
-Illustration: Sandy Campbell
-Translated by: Espen Stranger-Johannessen
-Language: da
+* License: [CC-BY-NC]
+* Text: Jenny Katz
+* Illustration: Sandy Campbell
+* Translation: Espen Stranger-Johannessen
+* Language: da

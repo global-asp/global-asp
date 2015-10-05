@@ -25,8 +25,8 @@ La hundo diras "boj".
 La farmisto diras "ts!"
 
 ##
-License: [CC-BY-NC]
-Writer: Jenny Katz
-Illustration: Sandy Campbell
-Translated by: dohliam
-Language: eo
+* License: [CC-BY-NC]
+* Text: Jenny Katz
+* Illustration: Sandy Campbell
+* Translation: dohliam
+* Language: eo

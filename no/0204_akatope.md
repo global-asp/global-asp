@@ -43,8 +43,8 @@ Akatope hadde kommet hjem. Men hun var trøtt og syk.
 Akatopes gamle mor solgte alt hun eide. HUn brukte pengene til å behandle Akatope. Akatope vokste opp til å bli den vakreste jenta i landsbyen.
 
 ##
-License: [CC-BY]
-Writer: Alice Kapolondo
-Illustration: Catherine Groenewald, Microsoft Clip Art and Wiehan de Jager
-Translation: Espen Stranger-Johannessen
-Language: no
+* License: [CC-BY]
+* Text: Alice Kapolondo
+* Illustration: Catherine Groenewald, Microsoft Clip Art and Wiehan de Jager
+* Translation: Espen Stranger-Johannessen
+* Language: no

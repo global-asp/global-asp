@@ -25,8 +25,8 @@ Kie estas mia kato?
 Jen, ŝi estas tie!
 
 ##
-License: [CC-BY-NC]
-Story Text By: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-Illustration: Bronwen Heath, Anonymous
-Translation: dohliam
-Language: eo
+* License: [CC-BY-NC]
+* Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
+* Illustration: Bronwen Heath, Anonymous
+* Translation: dohliam
+* Language: eo

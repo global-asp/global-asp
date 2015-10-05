@@ -28,8 +28,8 @@ Herr Flue lo, "ha, ha, ha!"
 Men han lo så mye at munnen hans revna fra den ene siden til den andre!
 
 ##
-License: [CC-BY]
-Writer: Dorothy Fetaru
-Illustration: Joshua Waswa
-Translation: Espen Stranger-Johannessen
-Language: no
+* License: [CC-BY]
+* Text: Dorothy Fetaru
+* Illustration: Joshua Waswa
+* Translation: Espen Stranger-Johannessen
+* Language: no

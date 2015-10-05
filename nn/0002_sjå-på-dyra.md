@@ -25,8 +25,8 @@ Hunden seier "voff".
 Bonden seier "hysj!"
 
 ##
-License: [CC-BY-NC]
-Writer: Jenny Katz
-Illustration: Sandy Campbell
-Translated by: Espen Strangar-Johannessen
-Language: nn
+* License: [CC-BY-NC]
+* Text: Jenny Katz
+* Illustration: Sandy Campbell
+* Translation: Espen Strangar-Johannessen
+* Language: nn

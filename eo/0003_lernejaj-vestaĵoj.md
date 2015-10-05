@@ -25,8 +25,8 @@ Sed ĉi-tiuj ŝuoj estas novaj.
 ...kaj ili ĝuste grandas.
 
 ##
-License: [CC-BY-NC]
-Story Text By: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-Illustration: Mlungisi Dlamini, Anonymous
-Translation: dohliam
-Language: eo
+* License: [CC-BY-NC]
+* Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
+* Illustration: Mlungisi Dlamini, Anonymous
+* Translation: dohliam
+* Language: eo

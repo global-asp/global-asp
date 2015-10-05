@@ -14,8 +14,8 @@ Kie troveblas akvo?
 Ĉu la akvo tie estas malvarma?
 
 ##
-License: [CC-BY]
-Writer: Augustine Napagi
-Illustration: Hélder de Paz Alexandre
-Translation: dohliam
-Language: eo
+* License: [CC-BY]
+* Text: Augustine Napagi
+* Illustration: Hélder de Paz Alexandre
+* Translation: dohliam
+* Language: eo

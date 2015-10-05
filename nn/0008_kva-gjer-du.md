@@ -25,8 +25,8 @@ Ho lyttar.
 Kva gjer du?
 
 ##
-License: [CC-BY]
-Story Text By: Nina Orange
-Illustration: Wiehan dei Jagar
-Translation: Espen Stranger-Johannessen
-Language: nn
+* License: [CC-BY]
+* Text: Nina Orange
+* Illustration: Wiehan dei Jagar
+* Translation: Espen Stranger-Johannessen
+* Language: nn

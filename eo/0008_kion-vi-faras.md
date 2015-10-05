@@ -25,8 +25,8 @@ Mi respondas.
 Kion vi faras?
 
 ##
-License: [CC-BY]
-Story Text By: Nina Orange
-Illustration: Wiehan de Jager
-Translation: dohliam
-Language: eo
+* License: [CC-BY]
+* Text: Nina Orange
+* Illustration: Wiehan de Jager
+* Translation: dohliam
+* Language: eo

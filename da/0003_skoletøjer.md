@@ -25,8 +25,8 @@ Men disse sko er nye.
 ... de passer godt.
 
 ##
-License: [CC-BY-NC]
-Story Text By: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-Illustration: Mlungisi Dlamini, Anonymous
-Translation: Espen Stranger-Johannessen
-Language: da
+* License: [CC-BY-NC]
+* Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
+* Illustration: Mlungisi Dlamini, Anonymous
+* Translation: Espen Stranger-Johannessen
+* Language: da

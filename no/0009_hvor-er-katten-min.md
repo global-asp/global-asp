@@ -25,8 +25,8 @@ Er den utenfor huset?
 Her er den!
 
 ##
-License: [CC-BY-NC]
-Story Text By: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-Illustration: Bronwen Heath, Anonymous
-Translation: dohliam
-Language: no
+* License: [CC-BY-NC]
+* Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
+* Illustration: Bronwen Heath, Anonymous
+* Translation: dohliam
+* Language: no

@@ -40,9 +40,9 @@ Jeg gjør alle disse gode tingene hver dag.
 Men det jeg liker mest, er å leke og leke!
 
 ##
-License: [CC-BY]
-Writer: Michael Oguttu
-Illustration: Vusi Malindi
-Adapted by: Nina Orange
-Translation: Espen Stranger-Johannessen
-Language: no
+* License: [CC-BY]
+* Text: Michael Oguttu
+* Illustration: Vusi Malindi
+* Adapted By: Nina Orange
+* Translation: Espen Stranger-Johannessen
+* Language: no

@@ -25,8 +25,8 @@ Está escuchando.
 Qué estás haciendo?
 
 ##
-License: [CC-BY]
-Story Text By: Nina Orange
-Illustration: Wiehan de Jager
-Translation: dohliam
-Language: es
+* License: [CC-BY]
+* Text: Nina Orange
+* Illustration: Wiehan de Jager
+* Translation: dohliam
+* Language: es

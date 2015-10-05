@@ -25,8 +25,8 @@ Hun lytter.
 Hvad gør du?
 
 ##
-License: [CC-BY]
-Story Text By: Nina Orange
-Illustration: Wiehan de Jager
-Translation: Espen Stranger-Johannessen
-Language: da
+* License: [CC-BY]
+* Text: Nina Orange
+* Illustration: Wiehan de Jager
+* Translation: Espen Stranger-Johannessen
+* Language: da

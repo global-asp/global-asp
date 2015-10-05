@@ -25,8 +25,8 @@ Hun lytter.
 Hva gjør du?
 
 ##
-License: [CC-BY]
-Story Text By: Nina Orange
-Illustration: Wiehan de Jager
-Translation: dohliam
-Language: no
+* License: [CC-BY]
+* Text: Nina Orange
+* Illustration: Wiehan de Jager
+* Translation: dohliam
+* Language: no

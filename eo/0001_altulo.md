@@ -34,8 +34,8 @@ Li sidis sur tre alta seĝo. Li manĝis per tre longa forko.
 Li forlasis sian domon kaj translokiĝis al tre granda arbaro. Li loĝis tie dum multaj jaroj.
 
 ##
-License: [CC-BY]
-Writer: Cornelius Gulere
-Illustration: Catherine Groenewald
-Translated by: dohliam
-Language: eo
+* License: [CC-BY]
+* Text: Cornelius Gulere
+* Illustration: Catherine Groenewald
+* Translation: dohliam
+* Language: eo

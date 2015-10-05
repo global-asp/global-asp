@@ -34,8 +34,8 @@ Han satt på en veldig høy stol. Han spiste med en veldig lang gaffel.
 Han forlot huset sitt og bodde i en stor skog. Han levde i mange år.
 
 ##
-License: [CC-BY-NC]
-Writer: Cornelius Gulere
-Illustration: Catherine Groenewald
-Translated by: Espen Stranger-Johannessen
-Language: no
+* License: [CC-BY-NC]
+* Text: Cornelius Gulere
+* Illustration: Catherine Groenewald
+* Translation: Espen Stranger-Johannessen
+* Language: no

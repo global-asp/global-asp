@@ -25,8 +25,8 @@ Hunden sier "voff".
 Bonden sier "hysj!"
 
 ##
-License: [CC-BY-NC]
-Writer: Jenny Katz
-Illustration: Sandy Campbell
-Translated by: Espen Stranger-Johannessen
-Language: no
+* License: [CC-BY-NC]
+* Text: Jenny Katz
+* Illustration: Sandy Campbell
+* Translation: Espen Stranger-Johannessen
+* Language: no

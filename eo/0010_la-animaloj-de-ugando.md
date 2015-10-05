@@ -28,8 +28,8 @@ Jen du malsamaj animaloj. Jen la verukaprino kaj ŝiaj verukapridoj. Verukaproj 
 Kio estas la jenaj du animalaj amikoj? Kie ili vivas? Ĉu vi volas manĝi unu el ili?
 
 ##
-License: [CC-BY]
-Writer: Wendy Parry
-Illustration: Rob Owen
-Translation: dohliam
-Language: eo
+* License: [CC-BY]
+* Text: Wendy Parry
+* Illustration: Rob Owen
+* Translation: dohliam
+* Language: eo

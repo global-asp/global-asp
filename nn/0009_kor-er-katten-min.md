@@ -25,8 +25,8 @@ Er han utanfor huset?
 Her er han!
 
 ##
-License: [CC-BY-NC]
-Writer: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-Illustration: Bronwen Heath, Anonymous
-Translation: Espen Stranger-Johannessen
-Language: nn
+* License: [CC-BY-NC]
+* Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
+* Illustration: Bronwen Heath, Anonymous
+* Translation: Espen Stranger-Johannessen
+* Language: nn

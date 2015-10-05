@@ -19,8 +19,8 @@ En neniu tempo li atingis la supron de la arbo. Sed tiam li haltis pensante, “
 Ĝi frakasis en pecoj sur la tero. La saĝeco estis libera por dividi inter ĉiuj. Kaj estas tiel kiel homoj lernis farmi, teksi tukojn, fari ferajn ilojn kaj ĉiujn la aliajn aferojn ke homoj scias fari. 
 
 ##
-License: [CC-BY]
-Writer: Ghanaian folktale
-Illustration: Wiehan de Jager
-Translation: Espen Stranger-Johannessen
-Language: eo
+* License: [CC-BY]
+* Text: Ghanaian folktale
+* Illustration: Wiehan de Jager
+* Translation: Espen Stranger-Johannessen
+* Language: eo
