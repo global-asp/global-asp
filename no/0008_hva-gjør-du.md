@@ -13,7 +13,7 @@ Jeg klapper.
 Hun strekker seg.
 
 ##
-Han kaller.
+Han roper.
 
 ##
 Jeg svarer.
