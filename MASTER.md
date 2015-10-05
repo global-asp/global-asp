@@ -221,6 +221,7 @@ INDEX # | Title | License
 0217 | [My teacher](http://africanstorybook.org/stories/my-teacher) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
 0218 | [Grandmother and the Smelly Girl](http://africanstorybook.org/stories/grandmother-and-smelly-girl) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
 0219 | [Rain for Nomvula](http://africanstorybook.org/stories/rain-nomvula) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
+0220 | [Keeper and his special nursery](http://africanstorybook.org/stories/keeper-and-his-special-nursery-0) | [CC-BY](https://creativecommons.org/licenses/by/4.0/)
 0221 | [What do you see?](http://africanstorybook.org/stories/what-do-you-see) | [CC-BY](https://creativecommons.org/licenses/by/4.0/)
 0222 | [Hare and Hyena](http://africanstorybook.org/stories/hare-and-hyena) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
 0223 | [Domestic animals](http://africanstorybook.org/stories/domestic-animals) | [CC-BY-NC](http://creativecommons.org/licenses/by-nc/3.0/)
