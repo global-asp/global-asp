@@ -82,7 +82,7 @@ INDEX # | Title | License
 0078 | [The adventures of Supercow](http://africanstorybook.org/stories/adventures-supercow) | [CC-BY-NC](http://creativecommons.org/licenses/by-nc/3.0/)
 0079 | [Jojo And COW](http://africanstorybook.org/stories/jojo-and-cow) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
 0080 | [Namoratunga](http://africanstorybook.org/stories/namoratunga) | [CC-BY](https://creativecommons.org/licenses/by/4.0/)
-0081 | [Wat Vuzi se suster gesê het](http://africanstorybook.org/stories/wat-vuzi-se-suster-ges%C3%AA-het) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
+0081 | [Forest of snakes](http://africanstorybook.org/stories/forest-snakes-0) | [CC-BY](https://creativecommons.org/licenses/by/4.0/)
 0082 | [Lion is sick](http://africanstorybook.org/stories/lion-sick) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
 0083 | [Graca&#039;s dream](http://africanstorybook.org/stories/gracas-dream) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
 0084 | [Demane and Demazane](http://africanstorybook.org/stories/demane-and-demazane) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
