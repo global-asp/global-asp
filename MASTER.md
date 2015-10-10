@@ -198,7 +198,7 @@ INDEX # | Title | License
 0194 | [Animals, Animals](http://africanstorybook.org/stories/animals-animals) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
 0195 | [Sindiwe and the Fireflies](http://africanstorybook.org/stories/sindiwe-and-fireflies) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
 0196 | [The baboons that went this way and that](http://africanstorybook.org/stories/baboons-went-way-and) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
-0197 | [VISITING THE SHORES OF LAKE VICTORIA](http://africanstorybook.org/stories/visiting-shores-lake-victoria) | [CC-BY](https://creativecommons.org/licenses/by/4.0/)
+0197 | [My first day at the market](http://africanstorybook.org/stories/my-first-day-market) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
 0198 | [Soccer game Chiefs and Aces](http://africanstorybook.org/stories/soccer-game-chiefs-and-aces) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
 0199 | [Apedori ɛɔng aswam nʉ / I can do this](http://africanstorybook.org/stories/apedori-%C9%9B%C9%94ng-aswam-n%CA%89-i-can-do) | [CC-BY-NC](http://creativecommons.org/licenses/by-nc/3.0/)
 0200 | [Lekeek isiet! Eight trees](http://africanstorybook.org/stories/lekeek-isiet-%0Beight-trees-0) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
