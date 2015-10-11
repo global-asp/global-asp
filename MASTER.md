@@ -184,7 +184,7 @@ INDEX # | Title | License
 0180 | [Vayu, the wind](http://africanstorybook.org/stories/vayu-wind) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
 0181 | [Sunday at the park](http://africanstorybook.org/stories/sunday-park) | [CC-BY](https://creativecommons.org/licenses/by/4.0/)
 0182 | [Kabali and Kateera](http://africanstorybook.org/stories/kabali-and-kateera-0) | [CC-BY](https://creativecommons.org/licenses/by/4.0/)
-0183 | [My village](http://africanstorybook.org/stories/my-village-0) | [CC-BY](https://creativecommons.org/licenses/by/4.0/)
+0183 | [Hare tricks Elephant again](http://africanstorybook.org/stories/hare-tricks-elephant-again) | [CC-BY](https://creativecommons.org/licenses/by/4.0/)
 0184 | [Mulongo and the hyenas ](http://africanstorybook.org/stories/mulongo-and-hyenas) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
 0185 | [How night came to Opio’s village ](http://africanstorybook.org/stories/how-night-came-opio%E2%80%99s-village) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
 0186 | [Tjenga and the eland man](http://africanstorybook.org/stories/tjenga-and-eland-man) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
