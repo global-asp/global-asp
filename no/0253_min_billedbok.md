@@ -4,13 +4,13 @@
 En jente
 
 ##
-Fugl
+En fugl
 
 ##
-Løve
+En løve
 
 ##
-Katt
+En katt
 
 ##
 * License: [CC-BY]
