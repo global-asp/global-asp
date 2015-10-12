@@ -43,6 +43,6 @@ Men det jeg liker mest, er å leke og leke!
 * License: [CC-BY]
 * Text: Michael Oguttu
 * Illustration: Vusi Malindi
-* Adapted By: Nina Orange
+* Adaptation: Nina Orange
 * Translation: Espen Stranger-Johannessen
 * Language: no

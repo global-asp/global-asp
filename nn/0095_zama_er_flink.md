@@ -43,6 +43,6 @@ Men det eg likar mest, er å leika og leika!
 * License: [CC-BY]
 * Text: Michael Oguttu
 * Illustration: Vusi Malindi
-* Adapted By: Nina Orange
+* Adaptation: Nina Orange
 * Translation: Espen Strangar-Johannessen
 * Language: nn
