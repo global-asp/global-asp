@@ -40,7 +40,7 @@ Få dager etter at den foreldreløse jenta hadde blitt ønsket velkommen i den g
 Akatope hadde kommet hjem. Men hun var trøtt og syk.
 
 ##
-Akatopes gamle mor solgte alt hun eide. HUn brukte pengene til å behandle Akatope. Akatope vokste opp til å bli den vakreste jenta i landsbyen.
+Akatopes gamle mor solgte alt hun eide. Hun brukte pengene til å behandle Akatope. Akatope vokste opp til å bli den vakreste jenta i landsbyen.
 
 ##
 * License: [CC-BY]
