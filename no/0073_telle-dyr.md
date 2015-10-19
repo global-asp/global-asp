@@ -1,4 +1,4 @@
-# Telle dyr
+# Å telle dyr
 
 ##
 Én elefant gikk for a drikke vann.
@@ -7,7 +7,7 @@
 To giraffer gikk for å drikke vann.
 
 ##
-Det er tre bøffler og fire fugler. Det er alle på vei for å drikke vann.
+Det er tre bøffler og fire fugler. De er alle på vei for å drikke vann.
 
 ##
 Fire impalaer og to vortesvin går for å drikke vann.
