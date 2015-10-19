@@ -1,4 +1,4 @@
-# Lete etter vann
+# Å lete etter vann
 
 ##
 Hvor kan jeg finne vann?
