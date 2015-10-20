@@ -1,0 +1,32 @@
+# Contar animales
+
+##
+Un elefante va a beber agua.
+
+##
+Dos jirafas van a beber agua.
+
+##
+Tres búfalos y cuatro pájaros también van a beber agua.
+
+##
+Cinco impalas y seis cerdos salvajes están caminando hacia el agua.
+
+##
+Siete cebras están corriendo hacia el agua.
+
+##
+Ocho ranas y nueve de peces están nadando en el agua.
+
+##
+Un león ruge. También quiere beber. ¿Quién tiene miedo del león?
+
+##
+Un elefante está bebiendo agua con el león.
+
+##
+* License: [CC-BY]
+* Text: Zanele Buthelezi, Thembani Dladla, Clare Verbeek
+* Illustration: Rob Owen
+* Translation: Espen Stranger-Johannessen
+* Language: es
