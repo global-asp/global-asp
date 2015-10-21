@@ -13,7 +13,7 @@ Codicioso Anansi pensó, “voy a mantener el tarro seguro en la parte superior 
 Todo este tiempo el joven hijo de Anansi había estado mirando en el fondo del árbol. Dijo, “no sería más fácil subir si te ligaste el tarro a tu espalda en cambio?” Anansi intentó ligar el tarro de barro lleno de sabiduría a su espalda, y realmente era mucho más fácil.
 
 ##
-En un instante llegó a la parte superior del árbol. Pero entonces  paró y pensó, “se supone que soy yo qien tiene toda la sabiduría, y aquí mi hijo fue más listo que yo!” Anansi se puso tan enojado por esto que echó el tarro de barro abajo fuera del árbol.
+En un instante llegó a la parte superior del árbol. Pero entonces  paró y pensó, “se supone que soy yo quien tiene toda la sabiduría, y aquí mi hijo fue más listo que yo!” Anansi se puso tan enojado por esto que echó el tarro de barro abajo fuera del árbol.
 
 ##
 Se rompió en pedazos en la tierra. La sabiduría era libre para todo el mundo para compartir. Y así es cómo la gente aprendió a cultivar, tejer tela, hacer herramientas de hierro, y todas las otras cosas que la gente sabe cómo hacer.
