@@ -79,7 +79,7 @@ These should each be on a separate line, and each item of metadata should not be
 A typical metadata section should look something like this:
 
     * License: [CC-BY]
-    * Writer: Clare Verbeek
+    * Text: Clare Verbeek
     * Illustration: Mlungisi Dlamini
     * Translation: dohliam
     * Language: zh
