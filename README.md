@@ -118,4 +118,6 @@ You can also send .md or plain text files to globalafricanstorybook@gmail.com wi
 # License
 This project is released under the same license as the African Storybook Project. In other words, except where otherwise noted, all content is licensed under the Creative Commons Attribution 4.0 Licence.
 
-Many thanks to the many people who have volunteered to check and proofread the translations.
+All of the ASP and Global-ASP stories are [Creative Commons-licensed](http://creativecommons.org/). By contributing a translation to the project you agree to release your work under a Creative Commons license (either [CC-BY](https://creativecommons.org/licenses/by/4.0/) or [CC-BY-NC](https://creativecommons.org/licenses/by-nc/4.0/)) in accordance with the license of the original story.
+
+Many thanks to the original authors and illustrators, our translators, and the many people who have volunteered to check and proofread the translations.
