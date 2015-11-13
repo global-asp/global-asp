@@ -19,7 +19,7 @@ Denne mannen var for høg!
 Han laga eit veldig langt hakkeskaft.
 
 ##
-Han laga ei veldig høy dørramme.
+Han laga ei veldig høg dørramme.
 
 ##
 Han laga ei veldig lang seng.
