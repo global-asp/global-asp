@@ -16,7 +16,7 @@ Each top level folder represents a language, identified by its [ISO 639-1](http:
 
 Within each folder, files are grouped by _story number_ (a four-digit index number that unambiguously identifies the story within the collection). The _basename_ for each story consists of the _story number_ followed by an underscore (`_`), and then the translated name of the story in lower case with any spaces replaced by dashes (`-`).
 
-All of the source files in the repository are stored in markdown format, and consist of the _basename_ plus the markdown extension `.md`. Alternate, binary and other formats generated from the source files are named with the _basename_ followed by the appropriate format extenstion.
+All of the source files in the repository are stored in Markdown format, and consist of the _basename_ plus the Markdown extension `.md`. Alternate, binary and other formats generated from the source files are named with the _basename_ followed by the appropriate format extenstion.
 
 For example, the Norwegian story _En veldig høy mann_ is story `#0001`, so the base filename is `0001_en-veldig-høy-mann`. The file containing the story source is `0001_en-veldig-høy-mann.md`, and other formats included in the download package include `0001_en-veldig-høy-mann.txt`, `0001_en-veldig-høy-mann.pdf`, `0001_en-veldig-høy-mann.epub` etc.
 
@@ -35,8 +35,8 @@ EPUB | .epub | An electronic book format version of the story, suitable for use 
 HTML | .html | An HTML file containing the text of the story, with images linked to an included `img` folder (see JPG format above)
 HTML slideshow | _slides.html | A standalone html slideshow in [DZSlides](http://paulrouget.com/dzslides/) format
 JPG | .jpg | Extracted images for each story in a separate `img` folder; these are refered to by the HTML and slideshow files, and are used to compile other formats such as PDF and Epub
-PDF | .pdf | A PDF version of the story compiled from the markdown source text and image bank
-Text | .txt | A plain text file containing the full text of the story as well as author and license information; the content of this file is very similar to the .md source, but may be easier to read/open/edit on some systems or for users not used to working with markdown
+PDF | .pdf | A PDF version of the story compiled from the Markdown source text and image bank
+Text | .txt | A plain text file containing the full text of the story as well as author and license information; the content of this file is very similar to the .md source, but may be easier to read/open/edit on some systems or for users not used to working with Markdown
 
 Optional multimedia formats can include:
 
@@ -50,12 +50,12 @@ Videos should be uploaded to a video hosting site and linked to in the wiki. Clo
 
 ## Source format
 
-The source files in this repository are stored in [markdown format](https://help.github.com/articles/markdown-basics/). You can download pre-formatted (untranslated) markdown files [in this Dropbox folder](https://www.dropbox.com/sh/hwp929713p5gxhe/AABcgJMpnVOh87GyXaWw4HxZa) that have been extracted from the original ASP pdfs and automatically converted, for all of the core stories in the master index.
+The source files in this repository are stored in [Markdown format](https://help.github.com/articles/markdown-basics/). You can download pre-formatted (untranslated) Markdown files from the [ASP Source](https://github.com/global-asp/asp-source) project that have been extracted from the original ASP pdfs and automatically converted, for all of the core stories in the master index.
 
-There are a few conventions that are used in addition to basic markdown formatting to allow the files to be easily converted to other formats.
+There are a few conventions that are used in addition to basic Markdown formatting to allow the files to be easily converted to other formats.
 
 ### Story title
-The name of the story is indicated at the top (first line) of the markdown file, generally following a hash character and a space (`# `). The `# ` is not mandatory, but it is probably better to be consistent. The title should be on a single line (no linebreaks). If there is a sub-title or other information about the story that should be on the front page (aside from the author name), it can be included on the following lines (__not__ preceded by `#`).
+The title of the story is indicated at the top (first line) of the Markdown file, generally following a hash character and a space (`# `). The title should be on a single line (no linebreaks). If there is a sub-title or other information about the story that should be on the front page (aside from the author name -- see the [Metadata section](#metadata) below), it can be included on the following lines (__not__ preceded by `#`).
 
 ### Page breaks
 Page breaks within the story are indicated by two `##` characters on a separate line, followed by the text of the following page.
@@ -70,10 +70,10 @@ The first section is roughly equivalent to the cover page and should only contai
 The last section is equivalent to the final page or back cover of the storybook, and contains relevant [metadata](#metadata) about the story. See the [Metadata section](#metadata) below for details about what to include here.
 
 ### Images
-Images are automatically included in the generated binary formats and are __not__ indicated in the markup. There is no need to create image links or link to image urls or filenames within the markdown source.
+Images from the [ASP Image Bank](https://github.com/global-asp/asp-imagebank) are automatically included in the generated binary formats and are __not__ indicated in the markup. There is no need to create image links or link to image urls or filenames within the Markdown source.
 
 ### Metadata
-Story metadata is included in the [last section](#sections) of the markdown source file.
+Story metadata is included in the [last section](#sections) of the Markdown source file.
 
 The metadata section should include the following information:
 * License
@@ -98,10 +98,9 @@ Notes:
 * The Language field should exclusively use the appropriate language code for the language you are translating __into__
 
 
-
 ## Download
 
-Pre-compiled binary releases containing markdown source files along with alternate formats (specifically __PDF__, __ODT__, __epub__, __HTML__, __HTML slideshow__, __jpg__, and __plain text__) are available on the [releases page](https://github.com/global-asp/global-asp/releases).
+Pre-compiled binary releases containing Markdown source files along with alternate formats (specifically __PDF__, __ODT__, __epub__, __HTML__, __HTML slideshow__, __jpg__, and __plain text__) are available on the [releases page](https://github.com/global-asp/global-asp/releases).
 
 Alternate download options are available through ![](https://avatars0.githubusercontent.com/u/559357?v=3&s=24) Dropbox and ![](https://cloud.githubusercontent.com/assets/9295750/9473522/1d6fdde4-4b10-11e5-98f5-aa6c6b04a08e.png) Google Drive. The packages available on Dropbox and Google Drive tend to be more up-to-date than the Github releases, so if you want to see the latest stories, you should start there first.
 
@@ -109,6 +108,7 @@ Some helpful links:
 
 * __All stories in PDF format, browseable by language - [Google Drive](https://drive.google.com/open?id=0B59ZADK9EsbsUVpXWU0xMnJlNEE)__
 * All packages (including all formats) in zip form - [Dropbox](https://www.dropbox.com/sh/191lglvm2m0flhu/AAAABbbFfyvCLsJK4plHcocRa?dl=0), [Google Drive](https://drive.google.com/folderview?id=0B59ZADK9Esbsfm9mMmg3dkFWdEl6dDItWGtlOG81Y3A2ci1BYWlrcWxxT3p6N1Bsa1hUd3M&usp=sharing)
+* A growing collection of automatically-generated [bilingual storybooks](https://drive.google.com/open?id=0B59ZADK9EsbsWkJFbFdDVUtVYkU) in many languages, browsable by language-pair
 
 See the download lists (files named `README.md`) in the individual language folders for download links for specific languages.
 
@@ -119,7 +119,7 @@ If you are interested in translating any of the stories, [__start here!__](https
 
 You are also more than welcome to submit a pull request directly to this repo with your translation / correction. You should use the .md files in this repo (which are also included in the [binary releases](#download)), and follow the [existing format](#source-format). This is the only format accepted for pull requests to this Github repository.
 
-See the [Source format section](#source-format) above for information about getting pre-translated markdown files for all the ASP stories.
+See the [Source format section](#source-format) above for information about getting pre-translated Markdown files for all the ASP stories.
 
 If you're already comfortable with Github and version control, here are some other ideas for ways to get involved:
 
