@@ -1,4 +1,4 @@
-# Anansi y sabiduría
+# Anansi y la sabiduría
 
 ##
 Hace mucho, mucho tiempo las personas no sabían nada. No sabían cómo cultivar, o cómo tejer tela, o cómo hacer herramientas de hierro. El dios Nyame arriba en el cielo tenía toda la sabiduría del mundo. La mantenía segura en una vasija de barro.
