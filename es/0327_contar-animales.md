@@ -16,7 +16,7 @@ Cinco impalas y seis jabalíes están caminando hacia el agua.
 Siete cebras están corriendo hacia el agua.
 
 ##
-Ocho ranas y nueve de peces están nadando en el agua.
+Ocho ranas y nueve peces están nadando en el agua.
 
 ##
 Un león ruge. También quiere beber. ¿Quién tiene miedo del león?
