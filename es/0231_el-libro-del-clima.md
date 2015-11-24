@@ -16,10 +16,10 @@ Está nublado.
 Hace frío.
 
 ##
-Llueve.
+Está lloviendo.
 
 ##
-Truena.
+Hay truenos.
 
 ##
 Veo un arco iris.
