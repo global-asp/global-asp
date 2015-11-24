@@ -22,7 +22,7 @@ Se escondieron en el monte hasta la noche.
 Entonces los soldados regresaron.
 
 ##
-Abuela escondió a Tingi bajo las hojas.
+La abuela escondió a Tingi bajo las hojas.
 
 ##
 Uno de los soldados puso su pie directamente sobre él, pero se mantuvo en silencio.
