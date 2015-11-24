@@ -10,7 +10,7 @@ Dos jirafas van a beber agua.
 Tres búfalos y cuatro pájaros también van a beber agua.
 
 ##
-Cinco impalas y seis cerdos salvajes están caminando hacia el agua.
+Cinco impalas y seis jabalíes están caminando hacia el agua.
 
 ##
 Siete cebras están corriendo hacia el agua.
