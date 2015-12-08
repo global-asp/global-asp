@@ -16,7 +16,7 @@ Fire impalaer og to vortesvin går for å drikke vann.
 Sju frosker og åtte fisker er i vannet.
 
 ##
-Ni zebraer går for å drikke vann.
+Ni sebraer går for å drikke vann.
 
 ##
 En løve kom for å drikke vann.
