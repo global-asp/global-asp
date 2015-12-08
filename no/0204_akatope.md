@@ -22,7 +22,7 @@ En dag da Akatope var ute og lekte med de andre barna, begynte det å regne kraf
 De andre barna løp til hyttene sine, men da Akatope løp til sin, begynte beina hennes å gå i oppløsning. Hun krøkte seg sammen mellom buskene.
 
 ##
-De andre barna fortalte foreldrene sine hva som hadde hendt med Akapope. De var lei seg og sjokkerte.
+De andre barna fortalte foreldrene sine hva som hadde hendt med Akatope. De var lei seg og sjokkerte.
 
 ##
 Da den gamle damen hørte hva som hadde hendt barnet hennes, gråt hun i flere dager. Landsbyboerne bestemte seg for å ta med seg en annen liten jente som hadde blitt foreldreløs til å ta Akatopes plass.
