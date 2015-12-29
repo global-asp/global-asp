@@ -4,10 +4,10 @@
 Mi a sing.
 
 ##
-Shi a wiev ar an-dem.
+Shi a wiev ar an.
 
 ##
-Mi a klap mi an-dem.
+Mi a klap mi an.
 
 ##
 Shi a chrech.

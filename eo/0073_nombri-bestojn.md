@@ -28,4 +28,5 @@ Kiu estas sufiĉe brava por ankoraŭ trinki akvon?
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Gay Galsworthy
+* Translation: dohliam
 * Language: eo
