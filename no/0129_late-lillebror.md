@@ -21,7 +21,6 @@ Jeg vasker opp.
 ##
 Hvorfor jobber jeg så hardt ...
 
-##
 ... når broren min bare leker?
 
 ##

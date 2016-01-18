@@ -6,7 +6,6 @@ Det var en gång en mycket hungrig krokodil.
 ##
 Han sökte efter mat långsamt och tyst.
 
-##
 Och så...
 
 ##
