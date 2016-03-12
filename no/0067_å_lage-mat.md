@@ -1,4 +1,4 @@
-# Lage mat
+# Å lage mat
 
 ##
 Jeg skreller potetene.
