@@ -13,7 +13,7 @@ Lia lito estis tro mallonga.
 Lia biciklo estis tro malalta.
 
 ##
-Tiu homo estis tro alta!
+Tiu ĉi homo estis tro alta!
 
 ##
 Li faris tre longan tenilon por sia rastro.
