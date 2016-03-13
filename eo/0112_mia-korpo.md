@@ -7,7 +7,7 @@ Mi povas kuri per ĝi.
 Mi povas salti per ĝi.
 
 ##
-MI povas danci per ĝi.
+Mi povas danci per ĝi.
 
 ##
 Mi povas naĝi per ĝi.
