@@ -13,7 +13,7 @@ Jenta som var laget av leire ble til en ekte menneskejente.
 Den gamle damen var veldig glad. Hun kalte jenta Akatope. Hun var veldig glad i Akatope.
 
 ##
-Akatope ble advart av sin gamle mor om at hun ikke måtte komme ut av hytta, men hun hørte ikke etter. Hver gang moren ikke var klar over det, snek Akatope seg ut for å leke med de andre barna.
+Akatope ble advart av sin gamle mor om at hun ikke måtte gå ut av hytta, men hun hørte ikke etter. Hver gang moren ikke var klar over det, snek Akatope seg ut for å leke med de andre barna.
 
 ##
 En dag da Akatope var ute og lekte med de andre barna, begynte det å regne kraftig. 
