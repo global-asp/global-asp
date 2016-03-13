@@ -17,8 +17,8 @@ Herr Flue sa, "du kan ikke hoppe over denne elva."
 
 ##
 "Hopp du!" sa herr Flue.
-"Nei, hopp du først," sa her Storhode.
-Så her Flue fløy over elva. 
+"Nei, hopp du først," sa herr Storhode.
+Så herr Flue fløy over elva. 
 
 ##
 Så hoppet herr Storhode inn i elva. Men hodet hans var så stort at han begynte å synke.
