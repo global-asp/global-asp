@@ -1,4 +1,4 @@
-# Herr Flue og Herr Storhode
+# Herr Flue og herr Storhode
 
 ##
 Dette er herr Flue.
