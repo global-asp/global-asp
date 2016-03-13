@@ -1,25 +1,25 @@
 # Lernejaj vestaĵoj
 
 ##
-Ĉi-tiu robo estas longa.
+Ĉi tiu robo estas longa.
 
 ##
-Ĉi-tiu pulovero estas granda.
+Ĉi tiu pulovero estas granda.
 
 ##
-Ĉi-tiu sako estas granda.
+Ĉi tiu sako estas granda.
 
 ##
-Ĉi-tiu zono estas...
+Ĉi tiu zono estas...
 
 ##
-Ĉi-tiu ĉapelo estas malgranda.
+Ĉi tiu ĉapelo estas malgranda.
 
 ##
-Ĉi-tiuj ŝtrumpoj estas mallonga.
+Ĉi tiuj ŝtrumpoj estas mallonga.
 
 ##
-Sed ĉi-tiuj ŝuoj estas novaj.
+Sed ĉi tiuj ŝuoj estas novaj.
 
 ##
 ...kaj ili ĝuste grandas.
