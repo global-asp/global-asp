@@ -34,7 +34,7 @@ Han satte på en mycket hög stol. Han åt med en mycket lång gaffel.
 Han lämnade sitt hus och bodde i en stor skog. Han levde i många år.
 
 ##
-* License: [CC-BY-NC]
+* License: [CC-BY]
 * Text: Cornelius Gulere
 * Illustration: Catherine Groenewald
 * Translation: Espen Stranger-Johannessen
