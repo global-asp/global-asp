@@ -1,10 +1,10 @@
 # Å telle dyr
 
 ##
-Én elefant gikk for a drikke vann.
+Én elefant gikk for å drikke vann.
 
 ##
-To giraffer gikk for å drikke vann.
+To sjiraffer gikk for å drikke vann.
 
 ##
 Det er tre bøfler og fire fugler. De er alle på vei for å drikke vann.
