@@ -18,7 +18,7 @@ Herr Fluge sa, "du kan ikkje hoppa over denne elva."
 ##
 "Hopp du!" sa herr Fluge.
 "Nei, hopp du først," sa her Storhovud.
-Så her Fluge fløy over elva.
+Så her Fluge flaug over elva.
 
 ##
 Så hoppa herr Storhovud inn i elva. Men hovudet hans var så stort at han byrja å søkka.
