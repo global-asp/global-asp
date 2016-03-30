@@ -25,8 +25,8 @@ Det torar.
 Eg ser ein regnboge.
 
 ##
- License: [CC-BY-NC]
- Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
- Illustration: Sandra McDougall
- Translation: Espen Stranger-Johannessen
- Language: nn
+* License: [CC-BY-NC]
+* Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
+* Illustration: Sandra McDougall
+* Translation: Espen Stranger-Johannessen
+* Language: nn

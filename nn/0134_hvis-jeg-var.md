@@ -34,8 +34,8 @@ Viss eg var var ein prest ville eg teke med meg alle til himmelen.
 Viss eg var ein mygg ville eg sove under eit myggnett.
 
 ##
- License: [CC-BY-NC]
- Text: Seruwooza Shafic, Mutaawe Frank, Namuddu Patricia, Mwibonere Bwiza Sara, Namugambe Mariam, Ritah Katetemera, Milly Kasule, Fatma Baracka, Anna Ssebagalla, John Emongot
- Illustration: Jano Strydom, Cathy Feek, Laura Libertore, Marleen Visser, Rob Owen, Natalie Propa, Karen Lilje, Benjamin Mitchley, Wiehan dei Jagar, Alice Toich, Rebecca Riley
- Translation: Espen Stranger-Johannessen
- Language: nn
+* License: [CC-BY-NC]
+* Text: Seruwooza Shafic, Mutaawe Frank, Namuddu Patricia, Mwibonere Bwiza Sara, Namugambe Mariam, Ritah Katetemera, Milly Kasule, Fatma Baracka, Anna Ssebagalla, John Emongot
+* Illustration: Jano Strydom, Cathy Feek, Laura Libertore, Marleen Visser, Rob Owen, Natalie Propa, Karen Lilje, Benjamin Mitchley, Wiehan dei Jagar, Alice Toich, Rebecca Riley
+* Translation: Espen Stranger-Johannessen
+* Language: nn

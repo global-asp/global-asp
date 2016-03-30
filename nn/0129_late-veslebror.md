@@ -25,8 +25,8 @@ Kvifor jobbar eg såg hardt ...
 ... når broren min berre leikar?
 
 ##
- License: [CC-BY-NC]
- Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
- Illustration: Mlungisi Dlamini
- Translation: Espen Stranger-Johannessen
- Language: nn
+* License: [CC-BY-NC]
+* Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
+* Illustration: Mlungisi Dlamini
+* Translation: Espen Stranger-Johannessen
+* Language: nn

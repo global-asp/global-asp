@@ -19,8 +19,8 @@ Etterpå er ho ikkje svolten lenger, og ho er nøgd.
 Til ho vert svolten att.
 
 ##
- License: [CC-BY]
- Text: Christian G.
- Illustration: Wiehan de Jager
- Translation: Espen Stranger-Johannessen
- Language: nn
+* License: [CC-BY]
+* Text: Christian G.
+* Illustration: Wiehan de Jager
+* Translation: Espen Stranger-Johannessen
+* Language: nn

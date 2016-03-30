@@ -37,8 +37,8 @@ Dei tok med seg fuglbroren sin opp på eit høgt fjell.
 Og då sola steig fløy han syngande inn i morgenlyset.
 
 ##
- License: [CC-BY]
- Text: Southern African Folktale
- Illustration: Wiehan de Jager
- Translation: Espen Stranger-Johannessen
- Language: nn
+* License: [CC-BY]
+* Text: Southern African Folktale
+* Illustration: Wiehan de Jager
+* Translation: Espen Stranger-Johannessen
+* Language: nn

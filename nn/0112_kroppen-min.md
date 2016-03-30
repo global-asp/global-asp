@@ -25,8 +25,8 @@ Eg kan stikka av med han.
 Men eg kan aldri flyge med han.
 
 ##
- License: [CC-BY-NC]
- Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
- Illustration: Mlungisi Dlamini
- Translation: Espen Stranger-Johannessen
- Language: nn
+* License: [CC-BY-NC]
+* Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
+* Illustration: Mlungisi Dlamini
+* Translation: Espen Stranger-Johannessen
+* Language: nn

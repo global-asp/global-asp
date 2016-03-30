@@ -25,8 +25,8 @@ Ei løve kom for å drikka vatn.
 Kven er modig nok til å halda fram å drikka?
 
 ##
- License: [CC-BY-NC]
- Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
- Illustration: Gay Galsworthy
- Translation: Espen Stranger-Johannessen
- Language: nn
+* License: [CC-BY-NC]
+* Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
+* Illustration: Gay Galsworthy
+* Translation: Espen Stranger-Johannessen
+* Language: nn

@@ -28,8 +28,8 @@ Herr Fluge lo, "ha, ha, ha!"
 Men han lo så mye at munnen hans rakna frå han eine sidan til den andre!
 
 ##
- License: [CC-BY]
- Text: Dorothy Fetaru
- Illustration: Joshua Waswa
- Translation: Espen Stranger-Johannessen
- Language: nn
+* License: [CC-BY]
+* Text: Dorothy Fetaru
+* Illustration: Joshua Waswa
+* Translation: Espen Stranger-Johannessen
+* Language: nn

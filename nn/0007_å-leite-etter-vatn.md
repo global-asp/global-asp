@@ -13,8 +13,8 @@ Det er for varmt.
 Er dette vatnet kaldt?
 
 ##
- License: [CC-BY]
- Text: Augustine Napagi
- Illustration: Hélder de Paz Alexandre
- Translation: Espen Stranger-Johannessen
- Language: nn
+* License: [CC-BY]
+* Text: Augustine Napagi
+* Illustration: Hélder de Paz Alexandre
+* Translation: Espen Stranger-Johannessen
+* Language: nn

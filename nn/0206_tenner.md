@@ -25,8 +25,8 @@ Eg pleidde å ha mange tenner.
 Men no har eg ikkje mange.
 
 ##
- License: [CC-BY-NC]
- Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
- Illustration: Kathy Arbuckle
- Translation: Espen Stranger-Johannessen
- Language: nn
+* License: [CC-BY-NC]
+* Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
+* Illustration: Kathy Arbuckle
+* Translation: Espen Stranger-Johannessen
+* Language: nn
