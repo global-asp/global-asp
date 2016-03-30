@@ -25,7 +25,7 @@ Så hoppa herr Storhovud inn i elva. Men hovudet hans var så stort at han byrja
 
 ##
 Herr Fluge lo, "ha, ha, ha!"
-Men han lo så mye at munnen hans rakna frå han eine sidan til den andre!
+Men han lo så mykje at munnen hans rakna frå han eine sidan til den andre!
 
 ##
 * License: [CC-BY]
