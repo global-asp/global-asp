@@ -1,4 +1,4 @@
-# Ulike leiker
+# Ulike leikar
 
 ##
 Hoppe tau
