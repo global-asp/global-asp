@@ -28,7 +28,7 @@ Han laga ei veldig lang seng.
 Han kjøpte ein veldig høg sykkel.
 
 ##
-Han sett på ein veldig høg stol. Han åt med ein veldig lang gaffel.
+Han sat på ein veldig høg stol. Han åt med ein veldig lang gaffel.
 
 ##
 Han forlét huset sitt og budde i ein stor skog. Han levde i mange år.
