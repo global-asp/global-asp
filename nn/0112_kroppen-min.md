@@ -22,7 +22,7 @@ Eg kan sparka med han.
 Eg kan stikka av med han.
 
 ##
-Men eg kan aldri flyge med han.
+Men eg kan aldri flyga med han.
 
 ##
 * License: [CC-BY-NC]
