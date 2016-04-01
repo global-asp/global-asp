@@ -33,7 +33,7 @@ Eg kan kneppa knappar og spenna skorne mine.
 Og eg sørgjer at for veslebror kjenner alle skulenyhenda.
 
 ##
-I klassa gjer eg mitt beste i alle måtar.
+I klassa mi gjer eg mitt beste i alle måtar.
 
 ##
 Eg gjer alle desse gode tinga kvar dag.
