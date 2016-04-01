@@ -5,7 +5,7 @@ Veslebroren min søv veldig seint.
 Eg vaknar tidleg, fordi eg er flink!
 
 ##
-Eg er ho som slepp inn sola.
+Eg er ho som slepp sola inn.
 
 ##
 "Du er morgonstjerna mi", seier mamma.
