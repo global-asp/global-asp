@@ -19,7 +19,7 @@ Eg feiar golvet.
 Eg vaskar opp.
 
 ##
-Kvifor jobbar eg såg hardt ...
+Kvifor jobbar eg så hardt ...
 
 ##
 ... når broren min berre leikar?
