@@ -1,7 +1,7 @@
 # Ulike leikar
 
 ##
-Hoppe tau
+Hoppa tau
 
 ##
 Laupa
@@ -10,7 +10,7 @@ Laupa
 Sparka ball
 
 ##
-Hoppe
+Hoppa
 
 ##
 * License: [CC-BY]
