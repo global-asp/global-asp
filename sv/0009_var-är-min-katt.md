@@ -10,16 +10,16 @@ Var är min katt?
 Är den ovanpå skåpet?
 
 ##
-Er den bak soffan?
+Är den bak soffan?
 
 ##
-Er den bredvid soptunnan?
+Är den bredvid soptunnan?
 
 ##
-Er den i korgen?
+Är den i korgen?
 
 ##
-Er den utanför huset?
+Är den utanför huset?
 
 ##
 Här är den!
