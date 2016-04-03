@@ -16,7 +16,7 @@ Er den bag sofan?
 Er den ved siden af skraldespanden?
 
 ##
-Er den inde i kurven?
+Er den i kurven?
 
 ##
 Er den udenfor huset?
