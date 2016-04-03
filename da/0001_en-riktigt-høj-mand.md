@@ -1,7 +1,7 @@
 # En rigtigt høj mand
 
 ##
-Hakken hans var for  kort.
+Hans hakke var for  kort.
 
 ##
 Døråbningen hans var for lav.
