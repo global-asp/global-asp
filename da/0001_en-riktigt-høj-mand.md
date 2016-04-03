@@ -4,7 +4,7 @@
 Hans hakke var for  kort.
 
 ##
-Døråbningen hans var for lav.
+Hans døråbning var for lav.
 
 ##
 Hans seng var for  kort.
