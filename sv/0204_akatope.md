@@ -19,7 +19,7 @@ Akatope varnades av sin gamla mor att hon inte fick komma ut ur hyddan, men hon 
 En dag när Akatope var ute och lekte med de andra barnen, började det regna kraftigt.
 
 ##
-De andra barnen sprang till sina hyddor, men sedan Akatope sprang till henne, började hennes ben att upplösas. Hon böjde sig ner bland buskarna.
+De andra barnen sprang till sina hyddor, men när Akatope sprang till sin, började hennes ben att upplösas. Hon böjde sig ner bland buskarna.
 
 ##
 De andra barnen berättade sina föräldrar vad som hade hänt med Akapope. De var upprörda och chockade.
