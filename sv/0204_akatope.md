@@ -19,19 +19,20 @@ Akatope varnades av sin gamla mor att hon inte fick komma ut ur hyddan, men hon 
 En dag när Akatope var ute och lekte med de andra barnen, började det regna kraftigt.
 
 ##
+
 De andra barnen sprang till sina hyddor, men när Akatope sprang till sin, började hennes ben att upplösas. Hon böjde sig ner bland buskarna.
 
 ##
 De andra barnen berättade sina föräldrar vad som hade hänt med Akapope. De var upprörda och chockade.
 
 ##
-När den gamla damen hörde vad som hade drabbat hennes barn, ropade hon i flera dagar. Byborna har beslutat att ta med en annan liten flicka som hade blivit föräldralös till at ta Akatopes plats.
+När den gamla damen hörde vad som hade drabbat hennes barn, grät hon i flera dagar. Byborna  beslutade att ta med en annan liten flicka som hade blivit föräldralös för att ta Akatopes plats.
 
 ##
 Men det var inte nödvändigt. En stor överraskning väntade den gamla damen!
 
 ##
-Några dagar efter at den föräldralösa flickan hade välkomnats i den gamla damens hem, knackade på dörren.
+Några dagar efter att den föräldralösa flickan hade välkomnats i den gamla damens hem, knackade på dörren.
 
 ##
 "Vem kan det vara," förundrade den gamla damen. När hon öppnade dörren hon var utom sig av upphetsning.
