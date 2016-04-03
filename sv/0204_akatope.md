@@ -7,7 +7,7 @@ Det var en gång en gammal dam som alltid hade velat ett barn.
 Hon tog den bästa lerjord hon kunde hitta och började skapa en flicka.
 
 ##
-Flickan som var gjord av lera var en riktig människa flicka.
+Flickan som var gjord av lera var en riktig människaflicka.
 
 ##
 Den gamla damen var mycket glad. Hon kallade flickan Akatope. Hon var mycket förtjust i Akatope.
