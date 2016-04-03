@@ -35,7 +35,7 @@ Men det var inte nödvändigt. En stor överraskning väntade den gamla damen!
 Några dagar efter att den föräldralösa flickan hade välkomnats i den gamla damens hem, knackade på dörren.
 
 ##
-"Vem kan det vara," förundrade den gamla damen. När hon öppnade dörren hon var utom sig av upphetsning.
+"Vem kan det vara," undrade den gamla damen. När hon öppnade dörren hon var utom sig av upphetsning.
 
 ##
 Akatope hade kommit hem. Men hon var trött och sjuk.
