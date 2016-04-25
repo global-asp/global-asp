@@ -1,6 +1,7 @@
 # Global ASP - African Storybook Project Stories for the World
 
 ## Overview
+
 The goal of this project is to translate the freely-licensed materials created by the [African Storybook Project](http://africanstorybook.org) into all of the world's languages so that children and language learners everywhere can enjoy these wonderful African stories and create new ones in the same spirit.
 
 All languages are welcome, although translations into African languages should usually be directed to the African Storybook Project main site rather than here. We are particularly interested in translations into languages that have very few resources for early childhood learning. For example, if you are involved in indigenous language revitalization, minority language education, or heritage language learning, we would love it if you could join the project.
@@ -12,6 +13,7 @@ If you just want to browse through our library of translated stories in PDF form
 ### [__All stories in PDF format, browsable by language__](https://drive.google.com/open?id=0B59ZADK9EsbsUVpXWU0xMnJlNEE)
 
 ## Structure
+
 Each top level folder represents a language, identified by its [ISO 639-1](http://en.wikipedia.org/wiki/ISO_639-1) or [ISO 639-3](http://en.wikipedia.org/wiki/ISO_639-3) code, with a preference for the ISO 639-1 "Alpha-2 code", if it exists. For major languages, this code is usually two characters long (e.g., `es`, `zh`, `ar`), although some languages may have three characters (e.g., `yue`).
 
 Within each folder, files are grouped by _story number_ (a four-digit index number that unambiguously identifies the story within the collection). The _basename_ for each story consists of the _story number_ followed by an underscore (`_`), and then the translated name of the story in lower case with any spaces replaced by dashes (`-`).
@@ -26,6 +28,7 @@ Due to an absence of an unambiguous id for each story on the ASP site, stories h
 
 
 ## File formats
+
 The availability of stories in multiple formats is beneficial for others who might wish to use, adapt, or translate them into other languages. At a minimum, we aim to provide stories in the following formats:
 
 File format | Extension | Notes
@@ -38,15 +41,14 @@ JPG | .jpg | Extracted images for each story in a separate `img` folder; these a
 PDF | .pdf | A PDF version of the story compiled from the Markdown source text and image bank
 Text | .txt | A plain text file containing the full text of the story as well as author and license information; the content of this file is very similar to the .md source, but may be easier to read/open/edit on some systems or for users not used to working with Markdown
 
-Optional multimedia formats can include:
+The following multimedia formats are now available as part of the [gasp-audio](https://github.com/global-asp/gasp-audio) project:
 
 File format | Extension | Notes
 ------------|-----------|------
 Ogg Vorbis | .ogg | An Ogg Vorbis audio file of the story being read aloud
 MP3 | .mp3 | An MP3 audio file of the story being read aloud
-MP4 | .mp4 | Videos of the story (images/text) and story audio in mpeg format
 
-Videos should be uploaded to a video hosting site and linked to in the wiki. Closer integration of multimedia files is planned for a future release.
+Audio files are automatically cut into individual sections and turned into [audio slideshows](https://global-asp.github.io/audio/). Please see the [gasp-audio](https://github.com/global-asp/gasp-audio) project for details.
 
 ## Source format
 
@@ -55,12 +57,15 @@ The source files in this repository are stored in [Markdown format](https://help
 There are a few conventions that are used in addition to basic Markdown formatting to allow the files to be easily converted to other formats.
 
 ### Story title
+
 The title of the story is indicated at the top (first line) of the Markdown file, generally following a hash character and a space (`# `). The title should be on a single line (no linebreaks). If there is a sub-title or other information about the story that should be on the front page (aside from the author name -- see the [Metadata section](#metadata) below), it can be included on the following lines (__not__ preceded by `#`).
 
 ### Page breaks
+
 Page breaks within the story are indicated by two `##` characters on a separate line, followed by the text of the following page.
 
 ### Sections
+
 For the purposes of this project, stories are conceived of as individual pages consisting of a single image and accompanying text, with surrounding front and back covers and associated metadata. Almost all of the ASP stories conform to this format, and it has been followed here as well, which makes generation of other formats much easier.
 
 Sections are defined as the content found between page break markers (`##`), or between a page break marker and the beginning/end of the file.
@@ -70,9 +75,11 @@ The first section is roughly equivalent to the cover page and should only contai
 The last section is equivalent to the final page or back cover of the storybook, and contains relevant [metadata](#metadata) about the story. See the [Metadata section](#metadata) below for details about what to include here.
 
 ### Images
+
 Images from the [ASP Image Bank](https://github.com/global-asp/asp-imagebank) are automatically included in the generated binary formats and are __not__ indicated in the markup. There is no need to create image links or link to image urls or filenames within the Markdown source.
 
 ### Metadata
+
 Story metadata is included in the [last section](#sections) of the Markdown source file.
 
 The metadata section should include the following information:
@@ -97,7 +104,6 @@ Notes:
 * The Translator field should indicate your name rather than the name of the person who translated the original ASP story (if the original is a translated or versioned story)
 * The Language field should exclusively use the appropriate language code for the language you are translating __into__
 
-
 ## Download
 
 Pre-compiled binary releases containing Markdown source files along with alternate formats (specifically __PDF__, __ODT__, __epub__, __HTML__, __HTML slideshow__, __jpg__, and __plain text__) are available on the [releases page](https://github.com/global-asp/global-asp/releases).
@@ -113,6 +119,7 @@ Some helpful links:
 See the download lists (files named `README.md`) in the individual language folders for download links for specific languages.
 
 ## Contributing
+
 All contributions are welcome! (This includes reporting issues.)
 
 If you are interested in translating any of the stories, [__start here!__](https://global-asp.github.io/translator/) This link will take you to the [Global-ASP Translator app](https://global-asp.github.io/translator/), which makes translating stories quick and easy. The app starts with the shortest and simplest stories first, and lets you gradually work up to translating more complicated stories as you progress -- though you can skip forwards or backwards and translate any story you like at any time.
@@ -133,6 +140,7 @@ You can also send .md or plain text files to globalafricanstorybook@gmail.com wi
 
 
 ## License
+
 This project is released under the same license as the African Storybook Project. In other words, except where otherwise noted, all content is licensed under the [Creative Commons Attribution 4.0 Licence](https://creativecommons.org/licenses/by/4.0/).
 
 All of the ASP and Global-ASP stories are [Creative Commons-licensed](http://creativecommons.org/). By contributing a translation to the project you agree to release your work under a Creative Commons license (either [CC-BY](https://creativecommons.org/licenses/by/4.0/) or [CC-BY-NC](https://creativecommons.org/licenses/by-nc/4.0/)) in accordance with the license of the original story.
