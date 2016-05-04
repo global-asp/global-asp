@@ -4,10 +4,10 @@
 Rigardu, fajro!
 
 ##
-La fajro brulas.
+Fajro brulas.
 
 ##
-La fajro kuiras.
+Fajro kuiras.
 
 ##
 Fajro varmigas.
@@ -19,7 +19,7 @@ Fajro lumigas.
 Rigardu, fajro!
 
 ##
-La fajro estas nekredebla.
+Fajro estas nekredebla.
 
 ##
 Kaj ĝi estas pova.
