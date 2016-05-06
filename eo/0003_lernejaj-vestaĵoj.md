@@ -16,7 +16,7 @@
 Ĉi tiu ĉapelo estas malgranda.
 
 ##
-Ĉi tiuj ŝtrumpoj estas mallonga.
+Ĉi tiuj ŝtrumpoj estas mallongaj.
 
 ##
 Sed ĉi tiuj ŝuoj estas novaj.
