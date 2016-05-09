@@ -7,7 +7,7 @@ Longe, longe antaŭe la homoj ne sciis ion ajn. Ili ne sciis kiel farmi kultiva�
 Unu tagon, Nyame decidis ke li donos la kruĉon de saĝeco al Anansi. Ĉiam kiam Anansi rigardis en la argila kruĉo, li lernis ion novan. Ĝi estis tiel ekscita!
 
 ##
-Avida Anansi pensis, “mi tenos la kruĉon ĉe la supro de alta arbo. Tiam mi povas havi ĉion al mi mem!” Li ŝpinis longan fadenon, bobenis ĝin ĉirkaŭ la argilan kruĉon kaj ligis ĝin al lia stomako. Li komencis grimpi la arbon. Sed estis malfacile grimpi la arbon kun la kruĉo frapanta liajn genuojn la tutan tempon.
+Avida Anansi pensis, “mi tenos la kruĉon ĉe la supro de alta arbo. Tiel mi povas havi ĉion al mi mem!” Li ŝpinis longan fadenon, bobenis ĝin ĉirkaŭ la argilan kruĉon kaj ligis ĝin al lia stomako. Li komencis grimpi la arbon. Sed estis malfacile grimpi la arbon kun la kruĉo frapanta liajn genuojn la tutan tempon.
 
 ##
 La tutan tempon la juna filo de Anansi estis observanta ĉe la fundo de la arbo. Li diris, “Ĉu ne estus pli facile grimpi se vi anstataŭe ligus la kruĉon al via dorso?” Anansi provis ligi la argilan kruĉon plena de saĝeco al lia dorso, kaj tio vere estis multe pli facile.
