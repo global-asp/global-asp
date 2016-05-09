@@ -4,7 +4,7 @@
 Unu elefanto iris trinki akvon.
 
 ##
-Do ĝirafoj iris trinki akvon. 
+Du ĝirafoj iris trinki akvon. 
 
 ##
 Jen tri bizonoj kaj tri birdoj. Ili estas ĉiuj survoje por trinki akvon.
