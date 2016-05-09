@@ -7,10 +7,10 @@ Unu elefanto iris trinki akvon.
 Do ĝirafoj iris trinki akvon. 
 
 ##
-Jen tri bizonoj kaj tri birdoj. Ili esas ĉiuj survoje por trinki akvon.
+Jen tri bizonoj kaj tri birdoj. Ili etsas ĉiuj survoje por trinki akvon.
 
 ##
-Kvar impaloj kaj do verukaproj iras trinki akvon.
+Kvar impaloj kaj du verukaproj iras trinki akvon.
 
 ##
 Sep ranoj kaj ok fiŝoj estas en la akvo.
