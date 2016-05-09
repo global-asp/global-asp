@@ -13,10 +13,10 @@ Avida Anansi pensis, “mi tenos la kruĉon ĉe la supro de alta arbo. Tiel mi p
 La tutan tempon la juna filo de Anansi estis observanta ĉe la fundo de la arbo. Li diris, “Ĉu ne estus pli facile grimpi se vi anstataŭe ligus la kruĉon al via dorso?” Anansi provis ligi la argilan kruĉon plena de saĝeco al sia dorso, kaj tio vere estis multe pli facile.
 
 ##
-En neniu tempo li atingis la supron de la arbo. Sed tiam li haltis pensante, “mi estas supozeble la unua kun ĉio saĝeco kaj ĉi tie mia filo estis pli lerta ol mi!” Anansi estis tiel kolera pri tio ĉi ke li ĵetis la argilan kruĉon malsupren ekstere de la arbo.
+En neniu tempo li atingis la supron de la arbo. Sed tiam li haltis pensante, “mi estas supozeble la ununura kun ĉio saĝeco sed jen mia filo estis pli lerta ol mi!” Anansi estis tiel kolera pri tio ĉi ke li ĵetis la argilan kruĉon malsupren for de la arbo.
 
 ##
-Ĝi frakasis en pecoj sur la tero. La saĝeco estis libera por dividi inter ĉiuj. Kaj estas tiel kiel homoj lernis farmi, teksi tukojn, fari ferajn ilojn kaj ĉiujn la aliajn aferojn kiujn homoj scias fari. 
+Ĝi frakasis en pecoj sur la tero. La saĝeco estis libera por dividi inter ĉiuj. Kaj estas tiel kiel homoj lernis farmi, teksi tukojn, fari ferajn ilojn, kaj ĉiujn la aliajn aferojn kiujn homoj scias fari. 
 
 ##
 * License: [CC-BY]
