@@ -17,11 +17,11 @@ Eg vaskar meg sjølv, eg vil ikkje ha hjelp.
 Eg kan takla kaldt vann og blå stinkande såpa.
 
 ##
-Mamma minner på, “Gløym ikkje tennene.”
+Mamma påminner, “Gløym ikkje tennene.”
 Eg svarar: "Aldri, ikkje eg!"
 
 ##
-Etter vask helsar eg på bestefar og tante og ynskjer dei ein god dag.
+Etter kroppsvasken helsar eg på bestefar og tante og ynskjer dei ein god dag.
 
 ##
 Så kler eg meg sjølv, "Eg er stor no mamma,” seier eg.
