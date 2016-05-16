@@ -1,32 +1,32 @@
 # El fuego
 
 ##
-Mira, ¡el fuego!
+¡Mira, fuego!
 
 ##
-El fuego quema todo.
+El fuego quema.
 
 ##
 El fuego cocina.
 
 ##
-El fuego nos da el calor.
+El fuego calienta.
 
 ##
-El fuego nos da la luz.
+El fuego ilumina.
 
 ##
-Mira, ¡el fuego!
+¡Mira, fuego!
 
 ##
-El fuego está maravillosa
+El fuego es maravilloso.
 
 ##
-Y está potente.
+Y es poderoso.
 
 ##
 * License: [CC-BY]
 * Text: Deborah Namugosa, Beatrice Nabune, Alison Tukei, Rose Sabano
 * Illustration: Rob Owen
-* Translation: Darshan Soni
+* Translation: Espen Stranger-Johannessen
 * Language: es
