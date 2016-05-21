@@ -5,7 +5,7 @@ Lillebroren min sover veldig sent.
 Jeg våkner tidlig, fordi jeg er flink!
 
 ##
-Jeg er den som slipper inn solen.
+Jeg er den som slipper solen inn.
 
 ##
 "Du er min morgenstjerne", sier mamma.
