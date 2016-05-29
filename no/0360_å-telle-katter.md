@@ -37,5 +37,5 @@ Hva er det vi ser? En kattunge som sitter fast i et tre. "Jeg skal redde deg!"
 * License: [CC-BY-NC]
 * Text: Nina Orange
 * Illustration: Jesse Breytenbach
-* Translation: 
+* Translation: Espen Stranger-Johannessen
 * Language: no
