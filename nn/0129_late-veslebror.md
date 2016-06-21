@@ -21,7 +21,6 @@ Eg vaskar opp.
 ##
 Kvifor jobbar eg så hardt ...
 
-##
 ... når broren min berre leikar?
 
 ##

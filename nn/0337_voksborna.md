@@ -12,7 +12,6 @@ Men dei fekk ikkje lov til å gå nær elden.
 ##
 Dei måtte gjera alt arbeid om natta.
 
-##
 Fordi dei var laga av voks!
 
 ##

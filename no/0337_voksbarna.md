@@ -12,7 +12,6 @@ Men de fikk ikke lov til å gå nær ilden.
 ##
 De måtte gjøre alt arbeid om natten.
 
-##
 Fordi de var laget av voks!
 
 ##
