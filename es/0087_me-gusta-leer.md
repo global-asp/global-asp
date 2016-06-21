@@ -19,7 +19,7 @@ Mi madre y mi abuela están ocupadas.
 ¿Para quién puedo leer?
 
 ##
-Mi padre y abuelo están ocupados.
+Mi padre y mi abuelo están ocupados.
 
 ##
 ¿Para quién puedo leer? ¡Puedo leer para mi mismo!
