@@ -1,4 +1,4 @@
-# ¿Qué tipo de dientes?
+# ¿Qué tipo de dientes son?
 
 ##
 Un cocodrilo tiene dientes filosos.
@@ -16,17 +16,17 @@ Una vaca tiene dientes fuertes para rumiar.
 Un pájaro no tiene dientes. ¿Cómo come un pájaro?
 
 ##
-Ratas tienen dientes de frente muy grandes.
+Ratas tienen dientes frontales muy grandes.
 
 ##
-Yo tenía un diente de frente.
+Yo tenía un diente frontal.
 
 ##
-¡Mi diente de frente se cayó! ¿Cuántos dientes tienes tú?
+¡Mi diente frontal se cayó! ¿Cuántos dientes tienes tú?
 
 ##
 * License: [CC-BY]
 * Text: Zanele Buthelezi, Thembani Dladla, Clare Verbeek, Abu Enock, Dudu Mary, Ajuru Florence
 * Illustration: Rob Owen
-* Translation: Áurea Vericat
+* Translation: Áurea Vericat and Espen Stranger-Johannessen
 * Language: es
