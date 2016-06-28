@@ -13,7 +13,7 @@ Un león tiene dientes filosos también.
 Una vaca tiene dientes fuertes para rumiar.
 
 ##
-Un pájaro no tiene dientes. ¿Cómo come un pájaro?
+Un ave no tiene dientes. ¿Cómo come un ave?
 
 ##
 Ratas tienen dientes frontales muy grandes.
