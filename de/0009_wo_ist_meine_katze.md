@@ -13,13 +13,13 @@ Ist sie oben auf dem Schrank?
 Ist sie hinter dem Sofa?
 
 ##
-Ist se neben der Mülltonne?
+Ist sie neben der Mülltonne?
 
 ##
 Ist sie im Korb?
 
 ##
-Ist sie außerhalb des Haus?
+Ist sie draussen, vor der Haus?
 
 ##
 Hier ist sie!
