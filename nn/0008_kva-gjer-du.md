@@ -13,7 +13,7 @@ Eg klappar.
 Ho strekkjer seg.
 
 ##
-Han kallar.
+Han roper.
 
 ##
 Eg svarar.
