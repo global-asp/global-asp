@@ -14,7 +14,7 @@ Eg er ho som slepp sola inn.
 Eg vaskar meg sjølv, eg vil ikkje ha hjelp.
 
 ##
-Eg kan takla kaldt vann og blå stinkande såpa.
+Eg kan takla kaldt vann og blå stinkande såpe.
 
 ##
 Mamma påminner, “Gløym ikkje tennene.”
@@ -24,7 +24,7 @@ Eg svarar: "Aldri, ikkje eg!"
 Etter kroppsvasken helsar eg på bestefar og tante og ynskjer dei ein god dag.
 
 ##
-Så kler eg meg sjølv, "Eg er stor no mamma,” seier eg.
+Så kler eg meg sjølv, "Eg er stor no, mamma,” seier eg.
 
 ##
 Eg kan kneppa knappar og spenna skorne mine.
@@ -33,7 +33,7 @@ Eg kan kneppa knappar og spenna skorne mine.
 Og eg sørgjer at for veslebror kjenner alle skulenyhenda.
 
 ##
-I klassa mi gjer eg mitt beste i alle måtar.
+I klassa mi gjer eg mitt beste på alle måtar.
 
 ##
 Eg gjer alle desse gode tinga kvar dag.
