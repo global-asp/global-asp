@@ -1,4 +1,4 @@
-# Ang Tindero ng Saging na si Tom 
+# Ang Tindero ng Saging na si Tom
 
 ##
 Isang araw, pasan ni Tom ang isang kahon ng saging.
