@@ -13,13 +13,13 @@ Søsteren min sover.
 Hvem kan jeg lese for?
 
 ##
-Moren min og bestemor har ikke tid.
+Mamma og bestemor har ikke tid.
 
 ##
 Hvem kan jeg lese for?
 
 ##
-Far og bestefar har ikke tid.
+Pappa og bestefar har ikke tid.
 
 ##
 Hvem kan jeg lese for? Jeg kan lese for meg selv! 
