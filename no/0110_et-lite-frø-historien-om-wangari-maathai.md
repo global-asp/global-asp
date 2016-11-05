@@ -1,13 +1,13 @@
 # Et lite frø: Historien om Wangari Maathai
 
 ##
-I en landsby ved foten av Mount Kenya i Øst-Afrika arbeidet en liten pike med moren sin på åkeren. Wangari het hun.
+I en landsby ved foten av Mount Kenya i Øst-Afrika arbeidet en liten pike sammen med moren sin på åkeren. Wangari het hun.
 
 ##
-Wangari var glad i å være ute. Familien hadde en hage. Der vendte hun grønnsakbedet med den store kniven sin. Hun stakk små frø ned i den varme jorda.
+Wangari var glad i å være ute. Familien hadde en kjøkkenhage. Der vendte hun grønnsakbedet med den store kniven sin. Hun stakk små frø ned i den varme jorda.
 
 ##
-Hun syntes den beste tida på dagen var rett etter solnedgang. Hun visste det var på tide å gå hjem når det ble for mørkt til å se plantene. Hun gikk langs smale stier på markene og over bekker på sin vei.
+Hun syntes den beste tida på dagen var rett etter solnedgang. Når det ble for mørkt til å se plantene visste hun at det var på tide å gå hjem. Hun gikk langs smale stier på markene og over bekker på sin vei.
 
 ##
 Wangari var en flink pike og ville gjerne begynne på skolen. Men moren og faren ville hun skulle være hjemme og hjelpe til. Da hun ble syv år overtalte storebroren mor og far til å la henne få gå på skolen.
