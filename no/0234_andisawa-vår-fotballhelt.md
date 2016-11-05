@@ -1,19 +1,19 @@
 # Andisawa vår fotballhelt
 
 ##
-Andisawa så på gutta spille fotball. Så gjerne hun ville vært med! Hun spurte treneren om hun kunne få trene sammen med dem.
+Andisawa så på gutta spille fotball. Hun ville så gjerne være med! Hun spurte treneren om hun kunne få trene sammen med dem.
 
 ##
 Treneren satte hendene i siden. "På skolen her får bare gutter spille fotball", sa han.
 
 ##
-Gutta sa: "Gå og spill nettball. Nettball er for jenter og fotball er for gutter". Andisawa ble sinna.
+Gutta sa at hun skulle gå og spille nettball. De sa at nettball er for jenter og fotball er for gutter. Andisawa ble sinna.
 
 ##
-Dagen etter var det en stor fotballkamp på skolen. Men den beste spilleren på laget var syk og kunne ikke spille. Hva skulle treneren gjøre?
+Dagen etter var det en stor fotballkamp på skolen. Treneren var bekymret fordi den beste spilleren på laget var syk og kunne ikke spille.
 
 ##
-Andisawa løp bort til treneren og ba og ba om å få lov til å spille. Hva skulle han svare? Han bestemte seg for å ha med Andisawa på laget.
+Andisawa løp bort til treneren og tryglet om å få lov til å spille. Hva skulle han svare? Han bestemte seg for å ha Andisawa med på laget.
 
 ##
 Det ble en hard kamp. Ingen hadde scoret mål etter første omgang.
