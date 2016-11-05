@@ -1,7 +1,7 @@
 # Anansi og visdommen
 
 ##
-For lenge lenge siden visste ikke folk noen ting. De visste ikke hvordan de dyrket jorda, de kunne ikke veve tøy eller lage redskaper av jern. All verdens visdom eide bare guden Nyame i himmelen. Og han gjemte på den i en leirkrukke.
+For lenge lenge siden visste ikke folk noen ting. De visste ikke hvordan man dyrket jorda, de kunne ikke veve tøy eller lage redskaper av jern. All verdens visdom eide bare guden Nyame i himmelen. Og han gjemte på den i en leirkrukke.
 
 ##
 En dag bestemte Nyame seg for å gi krukka med visdom til Anansi. Og hver gang Anansi så i krukka lærte han noe nytt. Det var spennende!
