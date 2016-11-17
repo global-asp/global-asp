@@ -22,11 +22,11 @@ Maya-maya, kumakain si Hippo ng damo malayo sa ilog nang "whoosh!" Nagliyab si A
 Napaiyak si Hippo at tumakbo siya pabalik sa ilog. Nasunog lahat ng buhok niya. Iyak ni Hippo, "Nasunog ang buhok ko! Sinunog mo ang buhok ko! Wala na ang buhok ko! Ang maganda, ang napakaganda kong buhok!"
 
 ##
-Iyan ang dahilan kung bakit hindi lumalayo ang hippo mula sa tubig, dahil sa takot niyang maliyaban ni Apoy. Nagsaya si Kuneho nang masunog si Hippo at sinabi, "Nakaganti rin ako!"
+Natuwa ang kuneho nang masunog ang buhok ni Hippo. At hanggang ngayon, dahil sa takot sa apoy, ang hippo ay hindi na malalayo sa tubig kailanman.
 
 ##
 * License: [CC-BY]
 * Text: Basilio Gimo, David Ker
 * Illustration: Carol Liddiment
 * Translation: Karla Comanda
-* Language: en
+* Language: tl
