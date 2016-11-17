@@ -16,7 +16,7 @@ Flodhest ba om unnskyldning til Kanin: "Jeg er lei meg, vennen min, jeg så deg
 Da dro Kanin for å finne Ild, og han sa: "Dra og brenn Flodhest når hun kommer ut av vannet for å spise gress. Hun tråkka på meg!" Ild svarte: "Ikke noe problem, Kanin, vennen min. Jeg skal gjøre akkurat det du ba meg om."
 
 ##
-Senere spiste Flodhest gress langt fra elvebredden da det plutselig sa "svisj!" Ild ble til flammer. Flammene begynte å brenne hårene til Flodhest.
+Senere spiste Flodhest gress langt fra elvebredden da det plutselig sa "svisj!" Ild ble til flammer. Flammene begynte å brenne håret til Flodhest.
 
 ##
 Flodhest begynte å gråte og løp mot vannet. Alt håret hennes brant opp i ilden. Flodhest gråt: "Håret mitt har brent bort i ilden! Du brente alt håret mitt! Håret mitt er borte! Det vakre, vakre håret mitt!
