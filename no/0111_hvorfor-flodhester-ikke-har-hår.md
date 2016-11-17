@@ -22,7 +22,8 @@ Senere spiste Flodhest gress langt fra elvebredden da det plutselig sa "visj!" I
 Flodhest begynte å gråte og løp mot vannet. Alt håret hennes brant opp i ilden. Flodhest gråt: "Håret mitt har brent bort i ilden! Du brente alt håret mitt! Håret mitt er borte! Det vakre, vakre håret mitt!
 
 ##
-Det er derfor flodhesten aldri drar langt fra vannet – den er redd for å bli brent av ilden. Kanin var veldig glad da Flodhest ble brent, og sa: "Der fikk hun igjen!"
+Kanin var glad for at håret til Flodhest brant.
+Og til denne dag, av frykt for vannet, går ikke flodhesten langt fra vannet.
 
 ##
 * License: [CC-BY]
