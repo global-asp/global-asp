@@ -16,7 +16,7 @@ Ich wasche mich. Ich brauche keine Hilfe.
 Ich kann mit kaltem Wasser und der blauen, riechenden Seife umgehen.
 
 ##
-Ma erinnert mich: "Verigss Deine Zähne nicht." Ich antworte: "Niemals, ich doch nicht!"
+Ma erinnert mich: "Vergiss Deine Zähne nicht." Ich antworte: "Niemals, ich doch nicht!"
 
 ##
 Nach dem Waschen grüße ich Opa und Tante und wünsche ihnen einen schönen Tag.
