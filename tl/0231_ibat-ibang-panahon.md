@@ -22,7 +22,7 @@ Maulan.
 May kulog.
 
 ##
-Pero ngayon kita ko ang bahaghari.
+Ngayon, nakikita ko na ang bahag-hari.
 
 ##
 * License: [CC-BY-NC]
