@@ -16,7 +16,7 @@ Nung malapit na sila makarating sa bahay, kinapa ni Nozibele ang leeg niya. Naiw
 Mag-isang bumalik si Nozibele sa ilog. Nakita niya ang kuwintas at agad bumalik pauwi. Pero naabutan siya ng dilim at nawala siya dahil di nya makita ang daan.
 
 ##
-Sa di malayo, may nakita siyang ilaw sa isang bahay. Nilapitan niya ang kubo at kumatok sa pinto.
+Sa di kalayuan, may nakita siyang ilaw sa isang bahay. Nilapitan niya ang kubo at kumatok sa pinto.
 
 ##
 Bumukas ang pinto at nagulat siya sa nakita. Isang asong nagsasalita! "Anong kailangan mo?"
