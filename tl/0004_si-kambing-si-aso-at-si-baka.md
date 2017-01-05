@@ -7,7 +7,7 @@ Mabubuting magkakaibigan sina Kambing, si Aso, at si Baka. Isang araw, naglakbay
 Nang matapos ang paglalakbay nila, pinagbayad ng drayber ang mga ito. Nagbayad si Baka. 
 
 ##
-May sukli si Aso dahil hindi eksakto ang binayad niya
+May sukli si Aso dahil hindi eksakto ang binayad niya.
 
 ##
 Ibibigay na sana ng drayber ang sukli ni Aso nang tumakbo si Kambing nang hindi nagbabayad.
