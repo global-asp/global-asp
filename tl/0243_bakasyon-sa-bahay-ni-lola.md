@@ -34,7 +34,7 @@ Bumalik lang sila sa bahay ng lola nung malapit na maghapunan. Hindi pa man nata
 Kinaumagahan, bumalik sa lungsod ang tatay at naiwan sina Odongo at Apiyo kay Nyar-Kanyada.
 
 ##
-Tumulong sila sa mga gawaing-bahay ng lola. Nag-igib sila ng tubig at nag-hanap ng panggatong. Inipon nila ang mga itlog sa manukan at nanguha ng gulay sa hardin.
+Tumulong sila sa mga gawaing-bahay ng lola. Nag-igib sila ng tubig at nag-hanap ng panggatong. Inipon nila ang mga itlog sa manukan at nanguha ng gulay sa gulayan.
 
 ##
 Tinuruan din sila ni Nyar-Kanyada kung paano magluto ng stew. Pinakita pa ng lola kung paano gumawa ng ginataang kanin at inihaw na isda.
