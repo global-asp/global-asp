@@ -7,7 +7,7 @@ Siksikan ang tao at punung-puno ang mga bus sa terminal. Sa labas ng bus, mas ma
 "Lungsod! Lungsod kayo riyan! Mga pa-kanluran, dito na!" sigaw ng isa. Doon ako dapat sumakay.
 
 ##
-Halos puno na ang bus pero marami pa rin gustong sumakay. Nilagay ng iba ang bagahe sa ilalim ng bus. Ipinatong naman nung iba ang mga gamit nila sa mga racks sa loob.
+Halos puno na ang bus pero marami pa rin gustong sumakay. Nilagay ng iba ang bagahe sa ilalim ng bus. Ipinatong naman nung iba ang mga gamit nila sa mga lalagyan sa loob.
 
 ##
 Hawak ng mga bagong pasahero ang tiket nila habang naghahanap ng upuan. Hinahanda ng mga nanay ang kanilang mga anak para sa mahabang biyahe.
