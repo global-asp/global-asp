@@ -4,7 +4,7 @@
 Nakatira si Sakima sa lupa ng pag-aari ng isang mayaman, kasama ang mga magulang at apat na taong gulang na kapatid.
 
 ##
-Nagkasakit si Sakima nong siya ay tatlong taon at mula noon ay naging bulag siya. 
+Nagkasakit si Sakima noong siya ay tatlong taong gulang at mula noon ay naging bulag siya.
 
 ##
 Maraming nagagawa si Sakima na hindi kayang gawin ng ibang anim na taong gulang bata. Kaya niyang makipagtalakayan sa mga nakakatanda tungkol sa mga mabibigat na bagay.
