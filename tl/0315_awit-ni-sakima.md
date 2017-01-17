@@ -46,7 +46,7 @@ Tumayo siya sa ilalim ng bintana at nagsimulang kumanta. Unti-unting dumungaw an
 Tumigil ang mga trabahador sa kanilang ginagawa. Sabi ng isa, "Wala pang nakakatulong sa amo natin. Akala ba ng bulag na ito na may magagawa siya?"
 
 ##
-Natapos ni Sakima ang isang kanta at balak na sana niya umalis. Hinabol siya ng mayaman, "Pasuyo naman, kanta ka pa uli."
+Natapos ni Sakima ang isang awit at balak na sana niyang umalis. Hinabol siya ng mayaman, “Pasuyo naman, umawit ka pa uli.”
 
 ##
 Biglang dumating ang dalawang lalaki na may dalang stretcher. Natagpuan nila ang anak ng mayaman, na iniwan lang sa daan matapos bugbugin.
