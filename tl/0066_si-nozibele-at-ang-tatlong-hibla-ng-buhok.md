@@ -39,13 +39,13 @@ Araw-araw, nagluluto, naglilinis at naglalaba si Nozibele para sa aso.
 "Sasaglit lang ako mga kaibigan ko. Pagbalik ko, dapat tapos ka na maglinis, magluto at maglaba."
 
 ##
-Pagkaalis ng aso, bumunot si Nozibele ng tatlong hibla ng buhok sa kanyang ulo. Nilagay niya ang sa sa ilalim ng kama, isa sa likod ng pinto at isa sa kraal. Saka siya kumaripas ng takbo pauwi.
+Pagkaalis ng aso, bumunot si Nozibele ng tatlong hibla ng buhok sa kanyang ulo. Nilagay niya ang sa sa ilalim ng kama, isa sa likod ng pinto at isa sa kural. Saka siya kumaripas ng takbo pauwi.
 
 ##
 Pagbalik ng aso, hinanap niya si Nozibele. "Asan ka, Nozibele?"
 "Andito ako sa ilalim ng kama," sabi ng unag hibla.
 "Andito ako sa likod ng pinto," sabi ng ikalawa.
-"Andito ako sa kraal," sabi ng ikatlo.
+"Andito ako sa kural," sabi ng ikatlo.
 
 ##
 Saka lang naisip ng aso. Naisahan siya. Tumakbo siya papunta sa nayon. Pero naghihintay sa kanya ang tatlong kapatid na lalaki ni Nozibele. May dala silang malalaking patpat kaya tumakas ang aso at hindi na uli nagpakita kailanman.
