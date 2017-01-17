@@ -13,13 +13,13 @@ Bugbog ang inaabot ni Magozwe kung siya ay nagtatanong o nagrereklamo. Bugbog ul
 Mahirap ang buhay at lahat sila nagkukumahog makahanap lang ng makakain. Minsan hinuhuli sila ng pulis, minsan naman ay nabubugbog. Walang nag-aalaga sa kanila pag sila'y nagkakasakit. Umaasa lang sila sa maliit na kita sa pagpapalimos at pangangalakal. Lalo silang naghihirap pag nanghahamon ng away ang ibang grupo ng batang kalye, makuha lang ang gustong teritoryo.
 
 ##
-Isang araw, nakakita si Magozwe ng gula-gulanit na libro sa basura. Nilinis niya ang libro at nilagay iyon sa kanyang sako. Araw-araw, tinitingnan lang niya ang mga larawan sa libro kasi hindi siya marunong magbasa.
+Isang araw, nakakita si Magozwe ng gula-gulanit na libro sa basura. Nilinis niya ang libro at nilagay iyon sa kanyang sako. Araw-araw, tinitingnan lang niya ang mga larawan sa libro sapagka’t hindi siya marunong magbasa.
 
 ##
 Kinuwento ng mga larawan ang buhay ng isang batang lalaki na naging piloto at pinangarap ni Magozwe maging piloto. Minsan, iniisip niya na siya ang bata sa libro.
 
 ##
-Isang malamig na araw, nakatayo si Magozwe sa kalye namamalimos nang lumapit sa kanya ang isang mama. "Magandang umaga. Ako si Tomas. Malapit lang dito ang pinagtatrabahuhan ko at namimigay kami ng libreng pagkain." Tinuro niya ang dilaw na bahay na may asul na bubong. "Sana makadaan ka doon." Tiningnan lang ni Magozwe ang mama at ang bahay. "Tingnan ko," sabi niya sabay talikod.
+Isang malamig na araw, nakatayo si Magozwe sa kalye namamalimos nang lumapit sa kanya ang isang mama. "Magandang umaga. Ako si Tomas. Malapit lang dito ang pinagtatrabahuhan ko at namimigay kami ng libreng pagkain." Tinuro niya ang dilaw na bahay na may asul na bubong. "Sana makadaan ka doon." Tiningnan lang ni Magozwe ang mama at ang bahay. "Titingnan ko," sabi niya sabay talikod.
 
 ##
 Unti-unting nasanay ang mga batang kalye kay Tomas. Mahilig makipagkuwentuhan si Tomas sa kanila. Gusto niyang marinig ang istorya ng kanilang buhay. Pasensiyoso, seryoso at magalang--ganun si Tomas. Nagsimulang pumunta ang ibang bata sa dilaw at asul na bahay tuwing oras ng tanghalian.
