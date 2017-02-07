@@ -13,7 +13,7 @@ Namimili ng prutas ang mga tao sa iba.
 Pero walang bumibili kay Tom. Mas gusto nila ang mga babaeng tindera.
 
 ##
-"Dito sa atin, babae lang ang naglalako," sabi nila.  "Anong klaseng lalaki ito?"
+"Dito sa atin, babae lang ang naglalako," sabi nila. "Anong klaseng lalaki ito?"
 
 ##
 Pero hindi si Tom sumuko. "Bili na kayo ng saging! Matamis na saging kayo riyan!" sigaw niya.
