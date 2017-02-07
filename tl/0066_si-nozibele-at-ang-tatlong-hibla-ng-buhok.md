@@ -10,7 +10,7 @@ Pinawisan sila dahil sa init ng araw kaya naisipan nila maligo sa ilog. Tuwang-t
 Bigla nilang naalala na malapit na gumabi. Kaya dali-dali silang bumalik sa nayon.
 
 ##
-Nung malapit na sila makarating sa bahay, kinapa ni Nozibele ang leeg niya. Naiwan pala niya sa may ilog ang kuwintas! "Samahan ninyo ako! Balik tayo dun!" nagmakaawa siya. Pero hindi pumayag ang mga kaibigan  dahil malapit na gumabi.
+Nung malapit na sila makarating sa bahay, kinapa ni Nozibele ang leeg niya. Naiwan pala niya sa may ilog ang kuwintas! "Samahan ninyo ako! Balik tayo dun!" nagmakaawa siya. Pero hindi pumayag ang mga kaibigan dahil malapit na gumabi.
 
 ##
 Mag-isang bumalik si Nozibele sa ilog. Nakita niya ang kuwintas at agad bumalik pauwi. Pero naabutan siya ng dilim at nawala siya dahil di nya makita ang daan.
