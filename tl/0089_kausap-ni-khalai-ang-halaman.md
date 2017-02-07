@@ -19,7 +19,7 @@ Kinakausap din ni Khalai ang puno sa gitna ng iskul, "Plis naman, malaking puno,
 May nasasabi rin si Khalai sa mga halamang-bakod, "Magpakatibay kayo, pigilin ninyong makapasok ang masasamang tao.
 
 ##
-Pagkauwi, pinupuntahan agad ni Khalai ang dalandan, "Hinog na ba  mga bunga?"
+Pagkauwi, pinupuntahan agad ni Khalai ang dalandan, "Hinog na ba mga bunga?"
 
 ##
 "Hay naku, hilaw pa rin pala. Bukas uli ha, dalandan. Pagbibigyan kita at baka meron ng hinog, kahit isa!"
