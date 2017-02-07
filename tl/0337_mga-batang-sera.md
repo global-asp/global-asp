@@ -7,7 +7,7 @@ Noong unang panahon, may isang masayang mag-anak.
 Pawang mga lalaki ang mga anak at hindi sila kailanman nag-aaway. Tinutulungan nila ang kanilang magulang sa bukid at sa gawaing-bahay.
 
 ##
-Malaya nilang nagagawa ang anuman, maliban sa isang bagay.  Hindi sila maaaring lumapit sa apoy.
+Malaya nilang nagagawa ang anuman, maliban sa isang bagay. Hindi sila maaaring lumapit sa apoy.
 
 ##
 Sa gabi lamang sila nagtatrabaho dahil sila ay mga sera!
