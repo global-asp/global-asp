@@ -27,6 +27,6 @@ Publikum var fra seg av glede. Siden den dagen fikk jenter også spille fotball 
 ##
 * License: [CC-BY-NC]
 * Text: Eden Daniels
-* Illustration: Eden Daniels, Lisa Treffry-Goatley (ed.)
+* Illustration: Eden Daniels
 * Translation: Finn Stranger-Johannessen
 * Language: no
