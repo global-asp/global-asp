@@ -27,6 +27,6 @@ Tuwang-tuwa ang lahat. Mula noon, pinayagan na ang mga babaeng maglaro ng soccer
 ##
 * License: [CC-BY-NC]
 * Text: Eden Daniels
-* Illustration: Eden Daniels, Lisa Treffry-Goatley (ed.)
+* Illustration: Eden Daniels
 * Translation: Arlene Avila
 * Language: tl
