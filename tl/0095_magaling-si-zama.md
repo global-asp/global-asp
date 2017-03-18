@@ -24,7 +24,6 @@ Pagkatapos maligo, binabati ko sina Lolo at Tita at hinahangad ang isang maganda
 ##
 Pagkatapos, binibihisan ko ang sarili ko. "Malaki na ako, Ma," sabi ko.
 
-
 ##
 Kaya ko nang magbutones at magsapatos mag-isa.
 
