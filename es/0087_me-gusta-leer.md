@@ -22,7 +22,7 @@ Mi madre y mi abuela están ocupadas.
 Mi padre y mi abuelo están ocupados.
 
 ##
-¿Para quién puedo leer? ¡Puedo leer para mi mismo!
+¿Para quién puedo leer? ¡Puedo leer para mí mismo!
 
 ##
 * License: [CC-BY]
