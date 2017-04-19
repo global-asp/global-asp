@@ -6,7 +6,7 @@ Tingi y las vacas
 Tingi vivía con su abuela.
 
 ##
-Juntos cuidaban a las vacas.
+Cuidaba a las vacas con ella.
 
 ##
 Un día llegaron los soldados.
