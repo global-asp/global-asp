@@ -7,7 +7,7 @@ Está seco.
 El sol es caliente.
 
 ##
-Hace viento.
+Hay viento.
 
 ##
 Está nublado.
