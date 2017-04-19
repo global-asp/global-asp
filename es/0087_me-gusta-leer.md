@@ -7,7 +7,7 @@ Me gusta leer.
 ¿Para quién puedo leer?
 
 ##
-Mi hermana está dormida.
+Mi hermana está durmiendo.
 
 ##
 ¿Para quién puedo leer?
