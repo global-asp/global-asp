@@ -1,22 +1,22 @@
 # Anansi y la sabiduría
 
 ##
-Hace mucho, mucho tiempo las personas no sabían nada. No sabían cómo cultivar, o cómo tejer tela, o cómo hacer herramientas de hierro. El dios Nyame arriba en el cielo tenía toda la sabiduría del mundo. La mantenía segura en una vasija de barro.
+Hace mucho, mucho tiempo la gente no sabía nada. No sabían cómo cultivar, o cómo tejer tela, o cómo hacer herramientas de hierro. El dios Nyame arriba en el cielo tenía toda la sabiduría del mundo. La mantenía guardada en una vasija de barro.
 
 ##
-Un día, Nyame decidió que le daría la vasija de la sabiduría a Anansi. Cada vez que Anansi miraba dentro de la vasija de barro, aprendía algo nuevo. ¡Qué apasionante!
+Un día, Nyame optó por darle la vasija de sabiduría a Anansi. Cada vez que Anansi se asomaba a mirar dentro de la vasija de barro, aprendía algo nuevo. ¡Qué impresionante!
 
 ##
-El codicioso Anansi pensó, “voy a mantener la vasija segura en la copa de un árbol alto. ¡Entonces la puedo tener toda para mí!”  Hiló un hilo largo, envolvió con él la vasija de barro, y lo ató a su estómago. Empezó a trepar el árbol. Pero era difícil trepar el árbol con la vasija pegándole en las rodillas todo el tiempo.
+El codicioso Anansi pensó, “voy a guardar la vasija en la copa de un árbol alto. ¡Y será sólo mía!”  Hiló un hilo largo, envolvió con él la vasija de barro, y lo ató a su cintura. Empezó a trepar el árbol. Pero se le hacía muy difícil trepar el árbol con la vasija constantemente pegándole en las rodillas.
 
 ##
-Todo este tiempo el joven hijo de Anansi había estado mirando desde la base del árbol. Dijo, “¿no sería más fácil trepar si te ataras la vasija a tu espalda?” Anansi intentó atar la vasija de barro llena de sabiduría a su espalda, y realmente fue mucho más fácil.
+Mientras tanto, el hijo pequeño de Anansi lo miraba desde abajo y le dijo, “¿No sería más fácil trepar si te ataras la vasija a tu espalda?” Anansi ató la vasija llena de sabiduría a su espalda y, efectivamente, fue mucho más fácil.
 
 ##
-En un instante llegó a la copa del árbol. Pero entonces se detuvo y pensó, “se supone que soy yo quien tiene toda la sabiduría, ¡y aquí mi hijo fue más listo que yo!” Anansi se enojó tanto por esto que lanzó la vasija de barro hacia abajo, fuera del árbol.
+En un instante logró llegar a la copa del árbol. Pero entonces se detuvo a pensar: “Se supone que yo soy quien tiene toda la sabiduría, ¡pero mi hijo fue más listo que yo!” Anansi se enojó tanto que lanzó la vasija desde lo alto del árbol.
 
 ##
-Se rompió en pedazos en el suelo. La sabiduría fue libre para que todo el mundo la compartiera. Y es así cómo la gente aprendió a cultivar, tejer tela, hacer herramientas de hierro, y todas las otras cosas que la gente sabe cómo hacer.
+Quedó hecha trizas en el suelo. La sabiduría quedó libre y disponible para todos. Y así fue cómo gente supo cultivar, tejer, hacer herramientas de hierro, y muchas otras cosas más.
 
 ##
 * License: [CC-BY]
