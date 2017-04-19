@@ -1,10 +1,12 @@
 # Tingi y las vacas
 
+Tingi y las vacas
+
 ##
 Tingi vivía con su abuela.
 
 ##
-Cuidaba a las vacas con ella.
+Juntos cuidaban a las vacas.
 
 ##
 Un día llegaron los soldados.
@@ -13,25 +15,25 @@ Un día llegaron los soldados.
 Se llevaron las vacas.
 
 ##
-Tingi y su abuela huyeron y se escondieron.
+Tingi y su abuela huyeron para esconderse.
 
 ##
 Se escondieron en el monte hasta la noche.
 
 ##
-Entonces los soldados regresaron.
+Pero los soldados regresaron.
 
 ##
-La abuela escondió a Tingi bajo las hojas.
+La abuela tomó a Tingi y lo escondió debajo de las hojas.
 
 ##
-Uno de los soldados puso su pie directamente sobre él, pero se mantuvo en silencio.
+Uno de los soldados puso su pie directamente sobre él, pero Tingi se quedó en silencio.
 
 ##
 Cuando estuvieron a salvo, Tingi y su abuela salieron.
 
 ##
-Se arrastraron a casa muy tranquilamente.
+Se escurrieron a casa muy tranquilamente.
 
 ##
 * License: [CC-BY]
