@@ -1,4 +1,4 @@
-# Contar animales
+# Contando animales
 
 ##
 Un elefante va a beber agua.
