@@ -40,7 +40,7 @@ La tía de Simbegwire la llevó a su casa. Ella le dio de comer, y la acomodó e
 Cuando el padre de Simbegwire regresó a casa, encontró su habitación vacía. "¿Qué ocurrió, Anita?" él preguntó con gran tristeza. La mujer le dijo que Simbegwire había huido de casa. "Quería que me respetara," ella dijo. "Pero quizás fui muy estricta." El padre de Simbegwire salió de la casa y caminó en dirección hacia el riachuelo. Siguió caminando hasta la villa de su hermana para preguntarle por Simbegwire.
 
 ##
-Simbegwire estaba jugando con sus primos cuando vió a su padre de lejos. Ella tenía miedo de que estuviera enfadado, así que corrió a esconderse. Pero su padre la siguió y le dijo, "Simbegwire, has encontrado a la madre perfecta para ti. Una madre que te ama y te entiende. Estoy orgulloso de ti y te amo." Los dos estaban de acuerdo en que Simbegwire podía quedarse con su tía el tiempo que quisiera.
+Simbegwire estaba jugando con sus primos cuando vio a su padre de lejos. Ella tenía miedo de que estuviera enfadado, así que corrió a esconderse. Pero su padre la siguió y le dijo, "Simbegwire, has encontrado a la madre perfecta para ti. Una madre que te ama y te entiende. Estoy orgulloso de ti y te amo." Los dos estaban de acuerdo en que Simbegwire podía quedarse con su tía el tiempo que quisiera.
 
 ##
 Su padre la visitaba todos los días. Con el paso del tiempo, él llevó a Anita. Ella tomó la mando de Simbegwire. "Lo siento mucho pequeñita, me equivoque," ella le dijo. "¿Me darías otra oportunidad?" Simbegwire volteó a mirar a su padre, quien lucía preocupado. Entonces, ella se acercó a Anita lentamente y la abrazó.
