@@ -16,7 +16,7 @@ Lavo los frijoles.
 Corto la calabaza.
 
 ##
-Pico la espinca.
+Pico la espinaca.
 
 ##
 Mi mamá trocea las cebollas.
