@@ -58,7 +58,7 @@ Cuando su padre vino a recogerlos, no querían irse. Los niños le suplicaron a 
 Odongo y Apiyo le dieron un abrazo muy apretado y le dijeron adiós.
 
 ##
-Cuando Odongo y Apiyo volvieron a la escuela, le hablaron a sus amigos acerca de la vida en la aldea. Algunos niños opinaron que la vida en la ciudad era buena. Otros opinaron que  la aldea era mejor. ¡Pero lo más importante es que todos opinaron que Odongo y Apiyo tenían una abuela maravillosa!
+Cuando Odongo y Apiyo volvieron a la escuela, le hablaron a sus amigos acerca de la vida en la aldea. Algunos niños opinaron que la vida en la ciudad era buena. Otros opinaron que la aldea era mejor. ¡Pero lo más importante es que todos opinaron que Odongo y Apiyo tenían una abuela maravillosa!
 
 ##
 * License: [CC-BY]
