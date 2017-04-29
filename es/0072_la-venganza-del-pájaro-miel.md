@@ -10,7 +10,7 @@ Después de media hora, llegaron a una higuera gigante. Ngede brincaba locamente
 Así que Gingile puso su lanza de caza en el suelo, juntó un poco de ramitas secas e hizo una pequeña fogata. Cuando el fuego estaba alto, puso una palo largo y seco en medio del fuego. Ese palo era conocido por producir mucho humo. Luego, el comenzó a trepar el árbol sujetando la parte no quemada del palo con sus dientes.
 
 ##
-Hasta escuchar el fuerte zumbido de unas abejas que estaban entrando y saliendo de un agujero en el tronco del árbol - su colmena. Cuando Gingile llegó hasta la colmena, el puso la parte quemada de la rama en el agujero. Las abejas salieron rápidamente del agujero muy enfadadas, picaron a Gingile y se alejaron volando del humo que tanto odiaban.
+Hasta escuchar el fuerte zumbido de unas abejas que estaban entrando y saliendo de un agujero en el tronco del árbol - su colmena. Cuando Gingile llegó hasta la colmena, él puso la parte quemada de la rama en el agujero. Las abejas salieron rápidamente del agujero muy enfadadas, picaron a Gingile y se alejaron volando del humo que tanto odiaban.
 
 ##
 Cuando las abejas no estaban, Gingile metió sus manos en la colmena y tomó el panal lleno de miel, grasa y larva. Luego, lo puso en su bolso y comenzó a bajar del árbol.
