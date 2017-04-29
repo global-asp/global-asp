@@ -28,7 +28,7 @@ Un día, después de varias semanas, Gingile escuchó el canto de Ngede nuevamen
 Mientras trepaba, Gingile se preguntaba por qué no escuchaba el zumbido de las abejas. "Quizás, el panal está bien escondido en el árbol," él pensó. Al llegar a otra rama, se encontró con un leopardo. El leopardo estaba muy enojado porque Gingile lo despertó de su siesta. Lo miró de manera amenazadora y abrió su boca para mostrarle sus dientes grandes y filosos.
 
 ##
-Y antes de que el leopardo pudiera atacar a Gingile, él bajó muy rápidamente del árbol. Tan rápidamente que no vió una rama y cayó dándose un batacazo en el suelo. Se torció su tobillo y cojeó lo más rápido que pudo para escapar. Afortunadamente, el leopardo aún tenía mucho sueño, así que no lo persiguió. Ngede, el Pájaro Miel, se vengó. Y Gingile aprendió una valiosa lección.
+Y antes de que el leopardo pudiera atacar a Gingile, él bajó muy rápidamente del árbol. Tan rápidamente que no vio una rama y cayó dándose un batacazo en el suelo. Se torció su tobillo y cojeó lo más rápido que pudo para escapar. Afortunadamente, el leopardo aún tenía mucho sueño, así que no lo persiguió. Ngede, el Pájaro Miel, se vengó. Y Gingile aprendió una valiosa lección.
 
 ##
 Y así, cuando los hijos de Gingile oigan la historia de Ngede, ellos lo respetarán. Cuando sea que les toque recolectar miel, se asegurarán de dejarles la parte más grande del panal de abejas a los Pájaros Miel.
