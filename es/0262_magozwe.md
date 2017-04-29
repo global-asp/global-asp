@@ -1,7 +1,7 @@
 # Magozwe
 
 ##
-En la ajetreada ciudad de Nairobi, lejos de la apacible vida del hogar, vivía un grupo de jóvenes mendigos. Vivían el día a día como si no hubiera futuro. Una mañana, los chicos estaban empacando sus mantas después de dormir en la fría calle . Prendieron una fogata con basura para espantar el frío. Dentro del grupo de jóvenes estaba Magozwe. Era el más joven.
+En la ajetreada ciudad de Nairobi, lejos de la apacible vida del hogar, vivía un grupo de jóvenes mendigos. Vivían el día a día como si no hubiera futuro. Una mañana, los chicos estaban empacando sus mantas después de dormir en la fría calle. Prendieron una fogata con basura para espantar el frío. Dentro del grupo de jóvenes estaba Magozwe. Era el más joven.
 
 ##
 Cuando los padres de Magozwe murieron, él sólo tenía cinco años de edad. Se fue a vivir con su tío. Pero Magozwe no le importaba a este hombre. No le daba suficiente comida. Y lo hacía trabajar muy duro.
