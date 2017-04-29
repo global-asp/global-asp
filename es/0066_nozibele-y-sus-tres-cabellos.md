@@ -10,7 +10,7 @@ Hacía mucho calor, así que fueron a nadar al río. Jugaron, chapotearon, y nad
 Repentinamente, se dieron cuenta que era tarde y corrieron hacia la villa.
 
 ##
-Cuando estaban cerca de casa, Nozibele se tocó su cuello y se dió cuenta que se le había quedado su collar. "¡Por favor, acompáñenme a buscarlo!" ella les rogó a sus amigas. Pero sus amigas dijeron que era muy tarde.
+Cuando estaban cerca de casa, Nozibele se tocó su cuello y se dio cuenta que se le había quedado su collar. "¡Por favor, acompáñenme a buscarlo!" ella les rogó a sus amigas. Pero sus amigas dijeron que era muy tarde.
 
 ##
 Así que Nozibele se devolvió al río sola. Encontró su collar y se apuró para regresar a casa. Pero ella se perdió en la oscuridad.
