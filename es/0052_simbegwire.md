@@ -4,7 +4,7 @@
 Cuando la madre de Simbegwire murió, ella estaba muy triste. El padre de Simbegwire hizo lo mejor que pudo para cuidar de su hija. Lentamente, ellos aprendieron a ser felices de nuevo, sin la madre de Simbegwire. Cada mañana, ellos se sentaban y hablaban acerca del próximo día. Cada tarde, ellos hacían la cena juntos. Luego, ellos lavaban los platos y el padre de Simbegwire la ayudaba con sus tareas.
 
 ##
-Un día, el padre de Simbegwire llegó a casa más tarde de lo usual. "¿Dónde estás mi niña?" él preguntó. Simbegwire corrió hacia su padre, y quedó inmóvil cuando vió que él estaba tomado de las manos con una mujer. "Quiero que conozcas a alguien muy especial, mi niña. Ella es Anita," él dijo sonriendo.
+Un día, el padre de Simbegwire llegó a casa más tarde de lo usual. "¿Dónde estás mi niña?" él preguntó. Simbegwire corrió hacia su padre, y quedó inmóvil cuando vio que él estaba tomado de las manos con una mujer. "Quiero que conozcas a alguien muy especial, mi niña. Ella es Anita," él dijo sonriendo.
 
 ##
 "Hola Simbegwire, tu padre me ha contado mucho sobre ti," dijo Anita. Pero ella no sonrió ni tomó la mano de la niña. El padre de Simbegwire estaba feliz y emocionado. Él habló sobre los tres viviendo juntos, y cuán bueno eso sería. "Mi niña, espero que aceptes a Anita como tu madre," él dijo.
