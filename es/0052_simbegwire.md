@@ -34,7 +34,7 @@ A la mañana siguiente, Simbegwire cantó una vez más. Cuando las mujeres iban 
 Esta mujer miró hacia arriba del árbol. Cuando vio a la niña con su manta en pedazos, gritó, "¡Simbegwire, la hija de mi hermano!" Las otras mujeres dejaron de lavar y ayudaron a Simbegwire a bajar del árbol. Su tía la abrazó y trató de consolarla.
 
 ##
-La tía de Simbegwire la llevó a su casa. Ella le dió de comer, y la acomodó en la cama con la manta de su madre. Esa noche, Simbegwire lloraba mientras se quedaba dormida. Pero eran lágrimas de alegría. Sabía que su tía cuidaría de ella. 
+La tía de Simbegwire la llevó a su casa. Ella le dio de comer, y la acomodó en la cama con la manta de su madre. Esa noche, Simbegwire lloraba mientras se quedaba dormida. Pero eran lágrimas de alegría. Sabía que su tía cuidaría de ella. 
 
 ##
 Cuando el padre de Simbegwire regresó a casa, encontró su habitación vacía. "¿Qué ocurrió, Anita?" él preguntó con gran tristeza. La mujer le dijo que Simbegwire había huido de casa. "Quería que me respetara," ella dijo. "Pero quizás fui muy estricta." El padre de Simbegwire salió de la casa y caminó en dirección hacia el riachuelo. Siguió caminando hasta la villa de su hermana para preguntarle por Simbegwire.
