@@ -22,7 +22,7 @@ Khalai le habla a la cerca de arbustos que rodea su escuela. "Por favor, crece m
 Cuando Khalai vuelve a casa, ella visita al naranjo y le pregunta: "¿Están listas tus naranjas?"
 
 ##
-"Las naranjas aún se ven verdes," dice Khalai. "Nos vemos mañana, naranjo," Khalai continúa. "¡Quizás, mañana tendrás una naranja lista y madura para mi!"
+"Las naranjas aún se ven verdes," dice Khalai. "Nos vemos mañana, naranjo," Khalai continúa. "¡Quizás, mañana tendrás una naranja lista y madura para mí!"
 
 ##
 * License: [CC-BY]
