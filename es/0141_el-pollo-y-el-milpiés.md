@@ -1,4 +1,4 @@
-# El Pollo y el Milpiés.
+# El Pollo y el Milpiés
 
 ##
 Pollo y Milpiés eran amigos. Pero siempre competían. Un día, decidieron jugar fútbol para ver quién jugaba mejor.
