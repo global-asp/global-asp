@@ -13,7 +13,7 @@ Decidieron hacer un lanzamiento de penal. Milpiés fue el primer portero y el Po
 Milpiés lanzó el balón e hizo un gol. Milpiés dribló el balón y anotó. Milpiés cabeceó el balón y anotó. Milpiés anotó cinco goles.
 
 ##
-El Pollo estaba furioso por haber perdido. Era un mal perdedor. Milpiés se empezó a reir porque su amigo estaba armando un escándalo.
+El Pollo estaba furioso por haber perdido. Era un mal perdedor. Milpiés se empezó a reír porque su amigo estaba armando un escándalo.
 
 ##
 El Pollo estaba tan enfadado que con su pico abierto se tragó a Milpiés.
@@ -22,7 +22,7 @@ El Pollo estaba tan enfadado que con su pico abierto se tragó a Milpiés.
 Camino a casa, el Pollo se encontró con la Mamá Milpiés. Y ella le preguntó, "¿Has visto a mi hijo?" El Pollo no le respondió nada y Mamá Milpiés se empezó a preocupar.
 
 ##
-Luego, Mamá Milpiés escuchó una pequeña vocesita. "Ayúdame, mamá!" gritaba la vocesita. Mamá Milpiés miró para todos lados y trataba de escuchar atentamente. La vocesita venía de adentro del Pollo.
+Luego, Mamá Milpiés escuchó una pequeña vocecita. "Ayúdame, mamá!" gritaba la vocecita. Mamá Milpiés miró para todos lados y trataba de escuchar atentamente. La vocecita venía de adentro del Pollo.
 
 ##
 Mamá Milpiés gritó, "¡Usa tus poderes especiales, hijo mío!" Los Milpiés pueden producir un olor muy malo con un sabor terrible. El Pollo comenzó a sentirse enfermo.
