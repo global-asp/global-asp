@@ -7,7 +7,7 @@ Mi villa tenía muchos problemas. Hacíamos una fila larga para recolectar agua 
 Esperábamos la comida que otros donaban.
 
 ##
-Cerrabamos con llave nuestras casas temprano por los ladrones.
+Cerrábamos con llave nuestras casas temprano por los ladrones.
 
 ##
 Muchos niños abandonaban la escuela.
