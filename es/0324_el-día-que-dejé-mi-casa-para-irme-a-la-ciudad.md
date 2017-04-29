@@ -46,7 +46,7 @@ Mientras viajaba, recitaba el nombre del lugar donde vivía mi tío en la gran c
 Nueve horas más tarde, desperté escuchando fuertes golpeteos y gritos llamando a los pasajeros que viajaban de vuelta a mi aldea. Tomé mi pequeño morral y me bajé del bus.
 
 ##
-El bus de vuelta a mi aldea se llenó rápidamente. Pronto empezaría su viaje de vuelta al este. Por ahora, lo más importante para mi era empezar a buscar la casa de mi tío.
+El bus de vuelta a mi aldea se llenó rápidamente. Pronto empezaría su viaje de vuelta al este. Por ahora, lo más importante para mí era empezar a buscar la casa de mi tío.
 
 ##
 * License: [CC-BY]
