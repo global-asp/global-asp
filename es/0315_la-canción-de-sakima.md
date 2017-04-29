@@ -52,7 +52,7 @@ Sakima terminó de cantar y se dio vuelta para marcharse. Pero el hombre rico sa
 En ese mismo momento, llegaron dos hombres que llevaban a alguien en una camilla. Habían encontrado al hijo del hombre rico apaleado y botado al lado del camino.
 
 ##
-El hombre rico estaba muy feliz de ver a su hijo otra vez. Y le dio una recompensa a Sakima por consolarlo. Llevó a su hijo y a Sakima al hospital para que Sakima puediera recuperar su vista.
+El hombre rico estaba muy feliz de ver a su hijo otra vez. Y le dio una recompensa a Sakima por consolarlo. Llevó a su hijo y a Sakima al hospital para que Sakima pudiera recuperar su vista.
 
 ##
 * License: [CC-BY]
