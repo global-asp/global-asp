@@ -13,7 +13,7 @@ Luego de un sueño reparador, la Gallina tuvo una idea brillante. Empezó a reco
 El Águila era la única que tenía una aguja en la aldea, así que ella empezó a coser primero. Se hizo un par de alas muy lindas y voló mucho más alto que la Gallina. La Gallina se consiguió la aguja para empezar a coser sus alas, pero se cansó antes de terminarlas. Dejó la aguja encima del armario y se fue a preparar algo de comida para sus hijos.
 
 ##
-Pero las otras aves habían visto al Águila irse volando lejos, así que le pidiéron a la Gallina que les prestara la aguja para hacerse alas también. Y pronto, el cielo estaba cubierto de muchas aves volando.
+Pero las otras aves habían visto al Águila irse volando lejos, así que le pidieron a la Gallina que les prestara la aguja para hacerse alas también. Y pronto, el cielo estaba cubierto de muchas aves volando.
 
 ##
 Cuando la última ave fue a entregar la aguja prestada, la Gallina no estaba en casa. Así que los hijos de la Gallina tomaron la aguja para jugar con ella. Cuando se cansaron de jugar, dejaron la aguja en la tierra.
