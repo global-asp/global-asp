@@ -43,7 +43,7 @@ Cuando Burro despertó, había un extraño anciano mirándolo. Burro le miró a 
 Burro se fue a vivir con el anciano, quien le enseñó muchas formas diferentes de sobrevivir. Burro escuchaba y aprendía, y lo mismo hacía el anciano. Se ayudaban y reían juntos.
 
 ##
-Una mañana, el anciano le pidio a Burro que lo llevara hasta la cima de una montaña.
+Una mañana, el anciano le pidió a Burro que lo llevara hasta la cima de una montaña.
 
 ##
 Se quedaron dormidos más arriba de las nubes. Burro soñó que su madre estaba enferma y que lo llamaba. Y cuando despertó...
