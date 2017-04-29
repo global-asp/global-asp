@@ -10,7 +10,7 @@ El Hipopótamo estaba allí también, paseando y comiendo un poco de césped ver
 El Hipopótamo no vio que el Conejo estaba allí y le pisó su patita por accidente. El Conejo empezó a gritarle, "¡Oye Hipopótamo! ¿Acaso no puedes ver que me estás pisando mi patita?"
 
 ##
-El Hipopótamo le pidió disculpas al Conejo, "Lo siento mucho. No te ví. ¡Por favor, perdóname!" Pero el Conejo no le creyó y le dijo, "¡Lo hiciste a propósito! ¡Ya verás que algún día pagarás por esto!"
+El Hipopótamo le pidió disculpas al Conejo, "Lo siento mucho. No te vi. ¡Por favor, perdóname!" Pero el Conejo no le creyó y le dijo, "¡Lo hiciste a propósito! ¡Ya verás que algún día pagarás por esto!"
 
 ##
 El Conejo fue a buscar a Fuego y le dijo, "Anda y quema al Hipopótamo cuando salga del agua y vaya a comer césped. ¡Me pisó!" Fuego le respondió, "No hay problema, amigo Conejo. Haré exactamente lo que me pidas."
