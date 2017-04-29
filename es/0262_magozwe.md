@@ -13,7 +13,7 @@ Si Magozwe se quejaba o hacía preguntas, su tío le daba una golpiza. Cuando Ma
 La vida en la calle era difícil y muchos de los niños tenían dificultades para conseguir comida día a día. Algunas veces los arrestaban, otras veces les daban golpizas. Cuando se enfermaban, no tenían quién los ayudara. El grupo de jóvenes dependía de lo poco que recibían mendigando, de la venta de plásticos y del reciclaje. La vida era aun más difícil por las peleas con grupos rivales que querían tener el control de ciertas partes de la ciudad.
 
 ##
-Un día, Magozwe estaba escarbando los basureros y encontró un  libro de cuentos viejo y destrozado. Le quitó el polvo y lo guardó en su bolsa. Todos los días, sacaba el libro y miraba las ilustraciones. Pero no sabía cómo leer las palabras.
+Un día, Magozwe estaba escarbando los basureros y encontró un libro de cuentos viejo y destrozado. Le quitó el polvo y lo guardó en su bolsa. Todos los días, sacaba el libro y miraba las ilustraciones. Pero no sabía cómo leer las palabras.
 
 ##
 Las ilustraciones contaban la historia de un chico que creció y se convirtió en piloto. Magozwe fantaseaba con ser piloto. A veces, se imaginaba que él era el chico de la historia.
@@ -22,7 +22,7 @@ Las ilustraciones contaban la historia de un chico que creció y se convirtió e
 Hacía frío y Magozwe estaba mendigando en la calle. Un hombre se le acercó. "Hola, soy Tomás. Trabajo cerca de acá, en un lugar donde podemos darte comida," dijo el hombre. Apuntó hacia una casa amarilla con techo azul. "Ojalá vayas pronto a buscar comida" le dijo. Magozwe miró al hombre, y después miró la casa. "Quizá", dijo, y se fue.
 
 ##
-Con el paso de los meses, los jóvenes mendigos se acostumbraron a la presencia de Tomás. Él disfrutaba hablar con la gente, especialmente con los mendigos. Tomás escuchaba las historias de sus vidas. Era serio y paciente, nunca maleducado ni irrespetuoso. Algunos de los chicos empezaron a ir  a la casa amarilla y azul a buscar comida al mediodía.
+Con el paso de los meses, los jóvenes mendigos se acostumbraron a la presencia de Tomás. Él disfrutaba hablar con la gente, especialmente con los mendigos. Tomás escuchaba las historias de sus vidas. Era serio y paciente, nunca maleducado ni irrespetuoso. Algunos de los chicos empezaron a ir a la casa amarilla y azul a buscar comida al mediodía.
 
 ##
 Magozwe estaba sentado en la calle mirando su libro cuando Tomás vino y se sentó a su lado. "¿De qué trata la historia?" preguntó Tomás. "Trata sobre un chico que se convierte en piloto," respondió Magozwe. "¿Cómo se llama el niño?" preguntó Tomás. "No sé porque no sé leer," dijo Magozwe en voz baja.
