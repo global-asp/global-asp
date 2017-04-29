@@ -7,7 +7,7 @@ Hace mucho, mucho tiempo la gente no sabía nada. No sabían cómo cultivar, o c
 Un día, Nyame optó por darle la vasija de sabiduría a Anansi. Cada vez que Anansi se asomaba a mirar dentro de la vasija de barro, aprendía algo nuevo. ¡Qué impresionante!
 
 ##
-El codicioso Anansi pensó, “voy a guardar la vasija en la copa de un árbol alto. ¡Y será sólo mía!”  Hiló un hilo largo, envolvió con él la vasija de barro, y lo ató a su cintura. Empezó a trepar el árbol. Pero se le hacía muy difícil trepar el árbol con la vasija constantemente pegándole en las rodillas.
+El codicioso Anansi pensó, “voy a guardar la vasija en la copa de un árbol alto. ¡Y será sólo mía!” Hiló un hilo largo, envolvió con él la vasija de barro, y lo ató a su cintura. Empezó a trepar el árbol. Pero se le hacía muy difícil trepar el árbol con la vasija constantemente pegándole en las rodillas.
 
 ##
 Mientras tanto, el hijo pequeño de Anansi lo miraba desde abajo y le dijo, “¿No sería más fácil trepar si te ataras la vasija a tu espalda?” Anansi ató la vasija llena de sabiduría a su espalda y, efectivamente, fue mucho más fácil.
