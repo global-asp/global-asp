@@ -31,7 +31,7 @@ Cuando atardeció, ella trepó un árbol muy alto que estaba cerca de un riachue
 A la mañana siguiente, Simbegwire cantó una vez más. Cuando las mujeres iban a lavar sus ropas en el riachuelo, escucharon esa canción triste que venía del árbol alto. Ellas pensaron que sólo era el viento moviendo las hojas, y siguieron con su trabajo. Pero una de las mujeres le puso más atención a la canción. 
 
 ##
-Esta mujer miró hacia arriba del árbol. Cuando vió a la niña con su manta en pedazos, gritó, "¡Simbegwire, la hija de mi hermano!" Las otras mujeres dejaron de lavar y ayudaron a Simbegwire a bajar del árbol. Su tía la abrazó y trató de consolarla.
+Esta mujer miró hacia arriba del árbol. Cuando vio a la niña con su manta en pedazos, gritó, "¡Simbegwire, la hija de mi hermano!" Las otras mujeres dejaron de lavar y ayudaron a Simbegwire a bajar del árbol. Su tía la abrazó y trató de consolarla.
 
 ##
 La tía de Simbegwire la llevó a su casa. Ella le dió de comer, y la acomodó en la cama con la manta de su madre. Esa noche, Simbegwire lloraba mientras se quedaba dormida. Pero eran lágrimas de alegría. Sabía que su tía cuidaría de ella. 
