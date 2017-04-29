@@ -10,7 +10,7 @@ Un día, el padre de Simbegwire llegó a casa más tarde de lo usual. "¿Dónde 
 "Hola Simbegwire, tu padre me ha contado mucho sobre ti," dijo Anita. Pero ella no sonrió ni tomó la mano de la niña. El padre de Simbegwire estaba feliz y emocionado. Él habló sobre los tres viviendo juntos, y cuán bueno eso sería. "Mi niña, espero que aceptes a Anita como tu madre," él dijo.
 
 ##
-La vida de Simbegwire cambió. Ya no tenía tiempo para sentarse con su padre por las mañanas. Anita le dió muchas tareas del hogar que la agotaban demasiado para hacer sus tareas de la escuela por las tardes. Ella se iba derecho a su cama después de cenar. Su único consuelo era su manta colorida que su madre le regaló. El padre de Simbegwire no parecía notar que su hija estaba triste.
+La vida de Simbegwire cambió. Ya no tenía tiempo para sentarse con su padre por las mañanas. Anita le dio muchas tareas del hogar que la agotaban demasiado para hacer sus tareas de la escuela por las tardes. Ella se iba derecho a su cama después de cenar. Su único consuelo era su manta colorida que su madre le regaló. El padre de Simbegwire no parecía notar que su hija estaba triste.
 
 ##
 Después de varios meses, el padre de Simbegwire les dijo que él estaría fuera de casa por un tiempo. "Tengo que viajar por mi trabajo," él dijo. "Pero sé que ustedes se cuidarán la una a la otra." Simbegwire puso una cara de decepción, pero su padre no la notó. Anita no dijo nada. Ella tampoco estaba contenta.
