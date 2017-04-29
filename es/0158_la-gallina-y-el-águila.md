@@ -25,7 +25,7 @@ Más tarde, el Águila volvió. Pidió la aguja para coser algunas plumas que se
 "Solo dame un día para encontrar la aguja," la Gallina le rogó al Águila. "Para que puedas arreglar tus alas y volar en búsqueda de comida." "Un solo día," dijo el Águila. "Si no encuentras la aguja en un día, tendrás que regalarme uno de tus pollitos como mi pago."
 
 ##
-Cuando el Águila regresó al día siguiente, vió que la Gallina estaba arañando la tierra, pero la aguja no estaba. Así que el Águila voló muy rápido hacia dónde estaban los pollitos, agarró a uno de ellos y se lo llevó lejos. Después de eso, el Águila siempre encontraba a la Gallina arañando la tierra con sus patas para encontrar la aguja.
+Cuando el Águila regresó al día siguiente, vio que la Gallina estaba arañando la tierra, pero la aguja no estaba. Así que el Águila voló muy rápido hacia dónde estaban los pollitos, agarró a uno de ellos y se lo llevó lejos. Después de eso, el Águila siempre encontraba a la Gallina arañando la tierra con sus patas para encontrar la aguja.
 
 ##
 Y cuando aparece la sombra de las alas del Águila en la tierra, la Gallina les ordena a sus pollitos: "Aléjense del suelo seco y descubierto." Y ellos le contestan: "No somos tontos, saldremos corriendo."
