@@ -31,13 +31,13 @@ Todo este ajetreo fue interrumpido por la bocina del bus, señal de que estábam
 Los vendedores ambulantes se empujaban para salir del bus. Algunos le entregaron su cambio a los pasajeros. Otros intentaron vender productos por última vez.
 
 ##
-Mientars el bus partía desde la parada, miré por la ventana. Me preguntaba si alguna vez volvería a mi aldea.
+Mientras el bus partía desde la parada, miré por la ventana. Me preguntaba si alguna vez volvería a mi aldea.
 
 ##
 A medida que pasaba el tiempo, el bus se puso muy caluroso. Cerré mis ojos con la esperanza de quedarme dormido.
 
 ##
-Pero volví a pensar en mi casa. ¿Estará a salvo mi madre? ¿Taerán dinero mis conejos? ¿Se acordará mi hermano de regar los árboles que planté?
+Pero volví a pensar en mi casa. ¿Estará a salvo mi madre? ¿Traerán dinero mis conejos? ¿Se acordará mi hermano de regar los árboles que planté?
 
 ##
 Mientras viajaba, recitaba el nombre del lugar donde vivía mi tío en la gran ciudad. Seguí murmurando ese nombre mientras dormía.
