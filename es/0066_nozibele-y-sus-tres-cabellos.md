@@ -7,7 +7,7 @@ Hace mucho tiempo, tres chicas salieron a buscar leña.
 Hacía mucho calor, así que fueron a nadar al río. Jugaron, chapotearon, y nadaron en el agua.
 
 ##
-Repentinamente, se dieron cuenta que era tarde y corrieron hacia la villa.
+Repentinamente, se dieron cuenta que era tarde. Corrieron hacia la villa.
 
 ##
 Cuando estaban cerca de casa, Nozibele se tocó su cuello y se dio cuenta que se le había quedado su collar. "¡Por favor, acompáñenme a buscarlo!" ella les rogó a sus amigas. Pero sus amigas dijeron que era muy tarde.
