@@ -1,19 +1,19 @@
 # Ropa de escuela
 
 ##
-El vestido es largo.
+Este vestido es largo.
 
 ##
-La chompa es grande.
+Esta chompa es grande.
 
 ##
-El bolso es grande.
+Este bolso es grande.
 
 ##
-El cinturón es...
+Este cinturón es...
 
 ##
-El sombrero es pequeño.
+Este sombrero es pequeño.
 
 ##
 Los calcetines son cortos.
