@@ -1,7 +1,7 @@
 # El cocodrilo hambriento
 
 ##
-Había una vez, un cocodrilo que tenía mucha hambre.
+Había una vez un cocodrilo que tenía mucha hambre.
 
 ##
 Buscaba comida muy lenta y silenciosamente. Hasta que...
