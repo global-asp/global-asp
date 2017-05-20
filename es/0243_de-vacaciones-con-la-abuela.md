@@ -1,4 +1,4 @@
-# De Vacaciones con la Abuela
+# De vacaciones con la Abuela
 
 ##
 Odongo y Apiyo vivían en la ciudad con su padre. Esperaban con ansias sus vacaciones. No sólo porque cerraban la escuela, sino porque iban a visitar a su abuela. Ella vivía en una aldea de pescadores cerca de un gran lago.
