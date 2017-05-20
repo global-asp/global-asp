@@ -1,4 +1,4 @@
-# El Día que dejé mi casa para irme a la ciudad
+# El día que dejé mi casa para irme a la ciudad
 
 ##
 La pequeña parada de buses de mi aldea estaba atestada de gente y buses sobrecargados. En el suelo había aun más cosas por cargar. Los pregoneros anunciaban los lugares donde iban sus buses.
