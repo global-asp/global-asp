@@ -13,7 +13,7 @@ Pagmasdan ang mga hayop.
 "Hing," sabi ng kabayo.
 
 ##
-"Igik, igik," sabi ng baboy.
+"Oink, Oink," sabi ng baboy.
 
 ##
 "Tik-ti-la-ok," sabi ng manok.
