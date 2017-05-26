@@ -1,7 +1,7 @@
 # Bagong buhay
 
 ##
-Maraming problema ang aming nayon. Mahaba ang pila sa pag-igib ng tubig kasi isa lang ang gripo.
+Maraming problema ang aming nayon. Mahaba ang pila sa pag-igib ng tubig kasi iisa lang ang gripo.
 
 ##
 Naghihintay lang kami ng pagkaing donasyon galing sa iba.
@@ -34,7 +34,7 @@ Pinuntahan ni tatay ang bawat isa sa kanilang bahay para tawagin ang isang pulon
 Nagtipon ang mga tao sa ilalim ng malaking puno.
 
 ##
-Tumayo si tatay sa harap, "Kailangan natin magtulong-tulong para malutas ang mga problema."
+Tumayo si tatay sa harap, "Kailangan nating magtulong-tulong para malutas ang mga problema."
 
 ##
 "Tutulong akong maglinis," sigaw ng walong taon na si Juma habang nakaupo sa putol na puno.
