@@ -1,13 +1,13 @@
 # Si Anansi at ang Dunong
 
 ##
-Noong unag panahon, walang alam ang mga tao. Hindi sila marunong magtanim, humabi at gumawa ng kasangkapan. Lahat ng karunungan ay tinago ng diyos na si Nyame sa isang palayok sa langit.
+Noong unang panahon, walang alam ang mga tao. Hindi sila marunong magtanim, humabi at gumawa ng kasangkapan. Lahat ng karunungan ay tinago ng diyos na si Nyame sa isang palayok sa langit.
 
 ##
-Isang araw, naisipan ni Nyame na ibigay ang palayok ng karunungan kay Anansi. Tuwing tumitingin si Anansi sa loob palayok, may natututunan siyang bago! Tuwang tuwa si Anansi.
+Isang araw, naisipan ni Nyame na ibigay ang palayok ng karunungan kay Anansi. Tuwing tumitingin si Anansi sa loob ng palayok, may natututunan siyang bago! Tuwang tuwa si Anansi.
 
 ##
-Dahil madamot si Anansi, naisip niya, "Itatago ko ang palayok sa tuktok ng mataas na puno para akin lang ang lahat ng kaalaman!" Tinali niya ang palayok sa kanyang tiyan at nagsimulang umakyat sa puno. Pero nahirapan siya dahil tumatama ang palayok sa kanyang tuhod.
+Dahil madamot si Anansi, naisip niya, "Itatago ko ang palayok sa tuktok ng mataas na puno para sa akin lang ang lahat ng kaalaman!" Tinali niya ang palayok sa kanyang tiyan at nagsimulang umakyat sa puno. Pero nahirapan siya dahil tumatama ang palayok sa kanyang tuhod.
 
 ##
 Nakatingin lang pala sa kanya ang kanyang batang anak sa baba ng puno. "Mas maganda po siguro kung nakatali sa likod ang palayok," sabi nito. Tinali ni Anansi ang palayok sa kanyang likod at madali nga siyang nakaakyat.
