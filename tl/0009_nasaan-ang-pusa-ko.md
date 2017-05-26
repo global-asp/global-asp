@@ -1,7 +1,7 @@
 # Nasaan ang pusa ko?
 
 ##
-Asan ang pusa ko?
+Nasaan ang pusa ko?
 
 ##
 Nasa ilalim ba ng kama?
@@ -16,7 +16,7 @@ Nasa likod ba ng sofa?
 Nasa tabi ba ng basurahan?
 
 ##
-Nasa loob kaya ng basket?
+Nasa loob ba ng basket?
 
 ##
 O sa labas ng bahay?
