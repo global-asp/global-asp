@@ -1,4 +1,4 @@
-# Pagluto
+# Pagluluto
 
 ##
 Kaya kong balatan ang patatas.
@@ -7,7 +7,7 @@ Kaya kong balatan ang patatas.
 At maghiwa ng repolyo.
 
 ##
-Madali magkukod ng karot.
+Madali magkudkod ng karot.
 
 ##
 At maghugas ng patani.
