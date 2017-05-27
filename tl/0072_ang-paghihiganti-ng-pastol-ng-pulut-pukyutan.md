@@ -11,10 +11,10 @@ Makalipas ang kalahating oras, naabot nila ang isang malaki at masukal na puno n
 Ibinaba ni Gingile ang kanyang sibat sa ilalim ng puno, nag-ipon ng mga tuyo at maliliit na sanga, at gumawa ng maliit na apoy. Nang nagliyab nang mabuti ang apoy, naglagay siya ng isang mahaba at tuyong patpat sa puso nito. Kilala ang mga sangang ito sa paggawa ng malaking usok habang ito'y nasusunog. Nag-umpisa siyang umakyat, hawak ang malamig-lamig na bahagi ng patpat sa kanyang mga ngipin.
 
 ##
-Maya-maya ay narinig niya ang malakas na haging ng mga abalang bubuyog. Labas-pasok sila sa hungkag ng puno -- ang kanilang pugad. Nang maabot ni Gingile ang bahay-pukyutan, itinulak niya ang patpat na may usok sa hungkag. Naglabasan ang mga bubuyog, galit at buwisit. Lumipad sila palabas dahil ayaw nila ng usok -- pero hindi bago nila bigyan masasakit na kagat si Gingile!
+Maya-maya ay narinig niya ang malakas na haging ng mga abalang bubuyog. Labas-pasok sila sa hungkag ng puno -- ang kanilang pugad. Nang maabot ni Gingile ang bahay-pukyutan, itinulak niya ang patpat na may usok sa hungkag. Naglabasan ang mga bubuyog, galit at buwisit. Lumipad sila palabas dahil ayaw nila ng usok -- ngunit lumabas sila habang binibigyan ng massakit na kagat si Gingile!
 
 ##
-Nang lumabas ang mga bubuyog, itinulak ni Gingile ang kanyang mga kamay sa loob ng pugad. Nakakuha siya ng isang dakot ng panilan na punung-puno ng pulut-pukyutan, at matataba at mapuputing uod. Iningatan niyang ilagay ang pulut-pukyutan sa supot na dala niya sa kanyang balikat, at bumaba mula sa puno.
+Nang lumabas ang mga bubuyog, ipinasok ni Gingile ang kanyang mga kamay sa loob ng pugad. Nakakuha siya ng isang dakot ng panilan na punung-puno ng pulut-pukyutan, at matataba at mapuputing uod. Iningatan niyang ilagay ang pulut-pukyutan sa supot na dala niya sa kanyang balikat, at bumaba mula sa puno.
 
 
 ##
@@ -27,13 +27,13 @@ Ngunit pinatay ni Gingile ang apoy, pinulot ang kanyang sibat, at nag-umpisang m
 Isang araw makalipas ang ilang linggo, muling narinig ni Gingile ang pantawag sa pulut-pukyutan ni Ngede. Naalala niya ang masarap na pulut-pukyutan at sabik na sinundang muli ang ibon. Matapos pangunahan si Gingile sa dulo ng kagubatan, nagpahinga si Ngede sa isang malaking payong na tinik. "Ahh," isip ni Gingile. "Marahil ay nasa punong ito ang pugad." Dali-dali siyang gumawa ng maliit na apoy at nag-umpisang umakyat, at nilagay ang patpat na pang-usok sa ngipin niya. Naupo at nanood si Ngede.
 
 ##
-Umakyat si Gingile, nagtataka kung bakit hindi niya marinig ang karaniwang haging. "Baka nasa looban ng puno ang bahay-pukyutan," isip niya. Itinulak niya ang sarili niya sa ibang sanga. Pero sa halip na bahay-pukyutan, nakita niya ang sarili niyang nakatitig sa mukha ng isang leopardo! Galit na galit si Leopardo dahil naudlot ang tulog niya. Nagdilim ang kanyang paningin, at binuksan ang kanyang bibig para ilabas ang kanyang napakalaki at napakatalas na mga ngipin.
+Umakyat si Gingile, nagtataka kung bakit hindi niya marinig ang karaniwang haging. "Baka nasa looban ng puno ang bahay-pukyutan," isip niya. Itinulak niya ang sarili niya sa isang sanga. Pero sa halip na bahay-pukyutan, nakita niya ang sarili niyang nakatitig sa mukha ng isang leopardo! Galit na galit si Leopardo dahil naudlot ang tulog niya. Nagdilim ang kanyang paningin, at binuksan ang kanyang bibig para ilabas ang kanyang napakalaki at napakatalas na mga ngipin.
 
 ##
-Bago hagupitin ni Leopardo si Gingile, dali-dali siyang bumaba mula sa puno. Sa kanyang pagmamadali ay hindi siya nakaapak sa isang sanga, bumagsak sa lupa, atnapihit ang bukung-bukong. Dali-dali siyang umika. Sa kabutihang palad, masyadong antok si Leopardo para habulin siya. Nakuha ni Ngede, ang Pastol ng Pulut-Pukyutan, ang kanyang paghihiganti. At may natutunang aral si Gingile.
+Bago pa man mahagupit ni Leopardo si Gingile, dali-dali siyang bumaba mula sa puno. Sa kanyang pagmamadali ay hindi siya nakaapak sa isang sanga, bumagsak siya lupa, atnapihit ang bukung-bukong. Dali-dali siyang umika. Sa kabutihang palad, masyadong antok na si Leopardo para habulin siya. Nakuha ni Ngede, ang Pastol ng Pulut-Pukyutan, ang kanyang paghihiganti. At may natutunang aral si Gingile.
 
 ##
-At dahil diyan, iginagalang ng mga anak ni Gingle si Ngede, ang munting ibon, sa tuwing maririnig nila ang kuwentong ito. Sa tuwing maga-ani sila ng pulut-pukyutan, sinisigurado nilang iniiwan nila ang pinakamalaking bahagi nito para sa Pastol ng Pulut-Pukyutan!
+At dahil diyan, iginagalang ng mga anak ni Gingle si Ngede, ang munting ibon, sa tuwing maririnig nila ang kuwentong ito. Sa tuwing maga-ani sila ng pulut-pukyutan, sinisigurado nilang iiwan nila ang pinakamalaking bahagi nito para sa Pastol ng Pulut-Pukyutan!
 
 ##
 * License: [CC-BY]
