@@ -1,24 +1,24 @@
 # Si Simbegwire
 
 ##
-Nagdalamhati si Simbegwire nang pumanaw ang kanyang Nanay. Ginawa ng Tatay ni Simbegwire ang lahat ng kanyang makakaya para alagaan ang kanyang anak. Unti-unti, natutunan nilang maging masaya, kahit na wala na ang Nanay ni Simbegwire. Tuwing umaga ay naupo sila at pinag-usapan ang darating na araw. Bawat gabi ay magkasama silang naghain ng hapunin. Pagkatapos nilang hugasan ang mga pinggan, tinulungan si Simbegwire ng Tatay niya sa kanyang takdang-aralin.
+Nagdalamhati si Simbegwire nang pumanaw ang kanyang Nanay. Ginawa ng Tatay ni Simbegwire ang lahat ng kanyang makakaya para alagaan ang kanyang anak. Unti-unti, natutunan nilang maging masaya, kahit na wala na ang Nanay ni Simbegwire. Tuwing umaga ay naupo sila at pinag-usapan ang darating na araw. Bawat gabi ay magkasama silang naghain ng hapunan. Pagkatapos nilang hugasan ang mga pinggan, tinulungan si Simbegwire ng Tatay niya sa kanyang takdang-aralin.
 
 ##
 Isang araw, ginabi ng uwi ang Tatay ni Simbegwire. "Nasaan ka na, anak?" tawag niya. Tumakbo si Simbegwire sa kanyang Tatay. Tumigil siya nang nakita niyang hawak ng Tatay niya ang kamay ng isang babae. "Gusto kong makilala mo ang isang taong espesyal, anak. Ito si Anita," nakangiti niyang sinabi.
 
 
 ##
-"Ikinagagalak kitang makilala, Simbegwire. Lagi kang kinukuwento sa akin ng Tatay mo," sabi ni Anita. Pero hindi niya kinamayan o nginitian ang bata. Tuwang-tuwa sa galak ang Tatay ni Simbegwire. Lagi niyang binabanggit na sama-sama silang maninirahan, at kung gaano magiging kaganda ang buhay nila. "Anak, sana ay tanggapin mo si Anita bilang iyong ina," sabi niya.
+"Ikinagagalak kitang makilala, Simbegwire. Lagi kang ikinukwento sa akin ng Tatay mo," sabi ni Anita. Pero hindi niya kinamayan o nginitian ang bata. Tuwang-tuwa sa galak ang Tatay ni Simbegwire. Lagi niyang binabanggit na sama-sama silang maninirahan, at kung gaano magiging kaganda ang buhay nila. "Anak, sana tanggapin mo tanggapin mo si Anita bilang iyong ina," sabi niya.
 
 ##
-Nagbago ang buhay ni Simbegwire. Hindi na siya nakakaupo kasama ng kanyang Tatay tuwing umaga. Masyadong napagod para gumawa ng takdang-aralin si Simbegwire sa gabi dahil sa dami ng gawaing-bagay na iniuutos ni Anita. Natutulog siya kaagad matapos ang hapunin. Ang makulay na kumot na bigay sa kanya ng kanyang Nanay ang tanging nagbibigay-ginhawa kay Simbegwire. Tila hindi napapansin ng kanyang Tatay na hindi masaya si Simbegwire.
+Nagbago ang buhay ni Simbegwire. Hindi na siya nakakaupo kasama ng kanyang Tatay tuwing umaga. Masyado nang pagod para gumawa ng takdang-aralin si Simbegwire sa gabi dahil sa dami ng gawaing-bagay na iniuutos ni Anita. Natutulog siya kaagad matapos ang hapunan. Ang makulay na kumot na bigay sa kanya ng kanyang Nanay ang tanging nagbibigay-ginhawa kay Simbegwire. Tila hindi napapansin ng kanyang Tatay na hindi masaya si Simbegwire.
 
 ##
-Makalipas ang ilang buwan, sinabi ng Tatay ni Simbegwire na luluwas muna siya ng matagal. "Kailangan kong bumiyahe para sa aking trabaho," sabi niya. "Pero alam kong aalagaan ninyo ang isa't isa." Nanlumbay si Simbegwire, pero hindi ito napansin ng kanyang Tatay. Hindi kumibo si Anita. Hindi rin siya masaya.
+Makalipas ang ilang buwan, sinabi ng Tatay ni Simbegwire na luluwas muna siya ng matagal. "Kailangan kong bumiyahe para sa aking trabaho," sabi niya. "Pero alam kong aalagaan ninyo ang isa't isa." Nalumbay si Simbegwire, pero hindi ito napansin ng kanyang Tatay. Hindi kumibo si Anita. Hindi rin siya masaya.
 
 
 ##
-Lumala ang kalagayan ni Simbegwire. Kapag hindi niya tinapos ang kanyang gawaing-bahay, o kapag nagreklamo siya, sinaktan siya ni Anita. Halos ubusin ng babae ang hapunan, at kapiranggot na tira lang ang iniwan para kay Simbegwire. Umiyak si Simbegwire gabi-gabi, yakap-yakap ang kumot ng Nanay niya.
+Lumala ang kalagayan ni Simbegwire. Kapag hindi niya natapos ang kanyang gawaing-bahay, o kapag nagreklamo siya, sinaktan siya ni Anita. Halos ubusin ng babae ang hapunan, at kapiranggot na tira lang ang iniwan para kay Simbegwire. Umiyak si Simbegwire gabi-gabi, yakap-yakap ang kumot ng Nanay niya.
 
 ##
 Isang umaga, tinanghali ng gising si Simbegwire. "Tamad!" sigaw ni Anita. Hinila niya si Simbegwire mula sa kanyang kama. Naipit sa isang pako ang kanyang pinakamamahal na kumot, at napunit ito sa dalawang piraso. 
