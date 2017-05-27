@@ -4,7 +4,7 @@
 Noong unang panahon, may tatlong batang babae na naghanap ng panggatong.
 
 ##
-Pinawisan sila dahil sa init ng araw kaya naisipan nila maligo sa ilog. Tuwang-tuwa sila sa paglaro, pagtampisaw at paglangoy.
+Pinawisan sila dahil sa init ng araw kaya naisipan nilang maligo sa ilog. Tuwang-tuwa sila sa paglaro, pagtampisaw at paglangoy.
 
 ##
 Bigla nilang naalala na malapit na gumabi. Kaya dali-dali silang bumalik sa nayon.
@@ -36,7 +36,7 @@ Bumukas ang pinto at nagulat siya sa nakita. Isang asong nagsasalita! "Anong kai
 
 ##
 Araw-araw, nagluluto, naglilinis at naglalaba si Nozibele para sa aso.
-"Sasaglit lang ako mga kaibigan ko. Pagbalik ko, dapat tapos ka na maglinis, magluto at maglaba."
+"Sasaglit lang ako sa mga kaibigan ko. Pagbalik ko, dapat tapos ka na maglinis, magluto at maglaba."
 
 ##
 Pagkaalis ng aso, bumunot si Nozibele ng tatlong hibla ng buhok sa kanyang ulo. Nilagay niya ang sa sa ilalim ng kama, isa sa likod ng pinto at isa sa kural. Saka siya kumaripas ng takbo pauwi.
