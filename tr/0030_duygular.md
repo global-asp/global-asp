@@ -20,4 +20,4 @@ Annem bana sarıldığında sevilmiş hissederim.
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Kathy Arbuckle
 * Translation: Nahide Büşra Ertekin
-* Language: en
+* Language: tr

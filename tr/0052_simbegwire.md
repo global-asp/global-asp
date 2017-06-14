@@ -53,4 +53,4 @@ Bir sonraki hafta, Anita, Simbegwire'ı, halası ve kuzenleriyle birlikte eve ye
 * Text: Rukia Nantale
 * Illustration: Benjamin Mitchley
 * Translation: Nahide Büşra Ertekin
-* Language: en
+* Language: tr

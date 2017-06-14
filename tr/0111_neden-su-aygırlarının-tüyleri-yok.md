@@ -29,4 +29,4 @@ Tavşan, Su aygırı'nın tüyleri yandığı için mutluydu. Ve bugün bile, su
 * Text: Basilio Gimo, David Ker
 * Illustration: Carol Liddiment
 * Translation: Nahide Büşra Ertekin
-* Language: en
+* Language: tr

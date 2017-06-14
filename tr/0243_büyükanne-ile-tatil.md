@@ -65,4 +65,4 @@ Odongo ve Apiyo okula geri döndüklerinde, arkadaşlarına köy hayatını anla
 * Text: Violet Otieno
 * Illustration: Catherine Groenewald
 * Translation: Nahide Büşra Ertekin
-* Language: en
+* Language: tr

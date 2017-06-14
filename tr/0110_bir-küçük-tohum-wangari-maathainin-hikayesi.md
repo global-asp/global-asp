@@ -41,4 +41,4 @@ Wangari 2011 de öldü, ama biz onu güzel bir ağaç gördüğümüz her zaman 
 * Text: Nicola Rijsdijk
 * Illustration: Maya Marshak
 * Translation: Nahide Büşra Ertekin
-* Language: en
+* Language: tr
