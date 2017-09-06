@@ -1,4 +1,4 @@
-# Bardzo Wysoki Człowiek
+# Bardzo wysoki człowiek
 
 ##
 Jego motyka była za krótka.
@@ -7,7 +7,7 @@ Jego motyka była za krótka.
 Jego wejście do domu było za niskie.
 
 ##
-Jego lóżko było za krótkie.
+Jego łóżko było za krótkie.
 
 ##
 Jego rower był za niski.
@@ -16,7 +16,7 @@ Jego rower był za niski.
 Ten człowiek był po prostu za wysoki!
 
 ##
-Zrobił bardzo długą motykę.
+Zrobił więc bardzo długą motykę.
 
 ##
 Zbudował bardzo wysokie wejście do domu.
@@ -37,5 +37,5 @@ Pewnego dnia opuścił swój dom i zamieszkał w obszernym lesie. Żył bardzo d
 * License: [CC-BY]
 * Text: Cornelius Gulere
 * Illustration: Catherine Groenewald
-* Translation: Aleksandra Migorska
+* Translation: Aleks M.
 * Language: pl
