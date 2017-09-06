@@ -7,7 +7,7 @@ Sakima bodde sammen med foreldrene sine og sin fire år gamle søster. De bodde 
 Da Sakima var tre år gammel, ble han syk og mistet synet. Sakima var en gutt med talenter.
 
 ##
-Sakima kunne mange ting som andre seksåringer ikke kunne. For eksempel kunne kan sitte med eldre landsbymedlemmer og diskutere viktige saker.
+Sakima kunne mange ting som andre seksåringer ikke kunne. For eksempel kunne han sitte med eldre landsbymedlemmer og diskutere viktige saker.
 
 ##
 Foreldrene til Sakima jobbet i huset til den rike mannen. De dro tidlig om morgenen og kom tilbake sent på kvelden. Sakima ble igjen sammen med lillesøstra si.
