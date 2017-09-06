@@ -28,5 +28,5 @@ Ale te buty są nowe.
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Mlungisi Dlamini
-* Translation: Aleks M.
+* Translation: Aleksandra Migorska
 * Language: pl

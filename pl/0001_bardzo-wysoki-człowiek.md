@@ -37,5 +37,5 @@ Pewnego dnia opuścił swój dom i zamieszkał w obszernym lesie. Żył bardzo d
 * License: [CC-BY]
 * Text: Cornelius Gulere
 * Illustration: Catherine Groenewald
-* Translation: Aleks M.
+* Translation: Aleksandra Migorska
 * Language: pl

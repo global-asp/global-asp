@@ -19,5 +19,5 @@ Czuję się kochana, gdy moja mama mnie tuli.
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Kathy Arbuckle
-* Translation: Aleks M.
+* Translation: Aleksandra Migorska
 * Language: pl

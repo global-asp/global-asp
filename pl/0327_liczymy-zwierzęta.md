@@ -28,5 +28,5 @@ Jeden słoń pije wodę razem z lwem.
 * License: [CC-BY]
 * Text: Zanele Buthelezi, Thembani Dladla, Clare Verbeek
 * Illustration: Rob Owen
-* Translation: Aleks M.
+* Translation: Aleksandra Migorska
 * Language: pl

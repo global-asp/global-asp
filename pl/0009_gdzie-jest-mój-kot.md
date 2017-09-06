@@ -28,5 +28,5 @@ O! Tutaj jest!
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Bronwen Heath
-* Translation: Aleks M.
+* Translation: Aleksandra Migorska
 * Language: pl

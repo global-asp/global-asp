@@ -28,5 +28,5 @@ A Ty co robisz?
 * License: [CC-BY]
 * Text: Nina Orange
 * Illustration: Wiehan de Jager
-* Translation: Aleks M.
+* Translation: Aleksandra Migorska
 * Language: pl
