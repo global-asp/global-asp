@@ -19,7 +19,7 @@ Spazzo il pavimento.
 Lavo i piatti.
 
 ##
-Perchè lavoro così duramente... Quando il mio fratellino è impegnato a giocare?
+Perché lavoro così duramente... Quando il mio fratellino è impegnato a giocare?
 
 ##
 * License: [CC-BY-NC]
