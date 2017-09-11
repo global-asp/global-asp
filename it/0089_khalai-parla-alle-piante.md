@@ -1,4 +1,4 @@
-# Khalai parla alle piante.
+# Khalai parla alle piante
 
 ##
 Questa è Khalai. Lei ha sette anni. Nella sua lingua, il Lubukusu, Il suo nome significa "quella buona".
