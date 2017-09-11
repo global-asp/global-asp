@@ -1,10 +1,10 @@
-# Bambini di Cera.
+# Bambini di Cera
 
 ##
-C'era una volta una famiglia che viveva felice
+C'era una volta una famiglia che viveva felice.
 
 ##
-Non litigavano mai fra di loro. I bambini aiutavano i loro genitori a casa e nei campi
+Non litigavano mai fra di loro. I bambini aiutavano i loro genitori a casa e nei campi.
 
 ##
 Ma non erano autorizzati ad avvicinarsi al fuoco.
