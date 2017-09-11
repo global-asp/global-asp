@@ -26,7 +26,7 @@ Faceva freddo e Magozwe era in mezzo alla strada a mendicare. Un uomo si avvicin
 Col passare dei mesi, i ragazzi senzatetto si abituarono a vedere Thomas in giro. Gli piaceva parlare con la gente di strada. Thomas ascoltava le storie di vita della gente. Era serio e paziente, mai maleducato e irrispettoso. Alcuni dei ragazzi cominciarono ad andare alla casa gialla dal tetto blu per mangiare a mezzogiorno.
 
 ##
-Magozwe era seduto sul pavimento a guardare il suo libro di figure, quando Thomas si sedette di fianco a lui. "Di che parla la storia?" Chiese. "Di un ragazzo che diventa un pilota" Rispose Magozwe. "Qual'è il nome del ragazzo?" Chiese Thomas "Non lo so, non so leggere" Disse Magozwe sottovoce.
+Magozwe era seduto sul pavimento a guardare il suo libro di figure, quando Thomas si sedette di fianco a lui. "Di che parla la storia?" Chiese. "Di un ragazzo che diventa un pilota" Rispose Magozwe. "Qual è il nome del ragazzo?" Chiese Thomas "Non lo so, non so leggere" Disse Magozwe sottovoce.
 
 ##
 Quando si conobbero, Magozwe cominciò a raccontare la propria storia a Thomas. La storia di suo zio e di come lui scappò via. Thomas non parlò molto e non disse a Magozwe cosa fare, ma lui ascoltò sempre attentamente. Alcune volte parlavano mentre mangiavano nella casa dal tetto blu.
