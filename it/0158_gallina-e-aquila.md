@@ -13,7 +13,7 @@ Dopo una buona notte di sonno e riposo, Gallina ebbe un'idea brillante. Cominci�
 Aquila era l'unica nel villaggio a possedere un ago, quindi cominciò a cucire per prima. Si fece un paio di bellissime ali e volò in alto, al di sopra di Gallina. Gallina prese in prestito l'ago, ma si stancò presto di cucire. Lasciò l'ago sulla mensola e andò in cucina a preparare da mangiare per i suoi piccini.
 
 ##
-Ma gli altri uccelli video Aquila volare via. Chiesero a Gallina di prestargli l'ago per farsi delle ali anche loro. Presto ci furono milioni di uccelli che volavano per tutto il cielo
+Ma gli altri uccelli video Aquila volare via. Chiesero a Gallina di prestargli l'ago per farsi delle ali anche loro. Presto ci furono milioni di uccelli che volavano per tutto il cielo.
 
 ##
 Quando l'ultimo uccello restituì l'ago prestato, Gallina non c'era. Perciò i suoi figli presero l'ago e cominciarono a giocare con esso. Quando si stancarono, lasciarono l'ago nella sabbia.
