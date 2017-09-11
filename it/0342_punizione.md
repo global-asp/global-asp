@@ -31,7 +31,7 @@ Rahim cominciò a sentirsi male.
 "Mi fa malissimo la pancia" Bisbigliò Rahim.
 
 ##
-Mamma sapeva che questo sarebbe successo. La frutta stava punendo Rahimi!
+Mamma sapeva che questo sarebbe successo. La frutta stava punendo Rahim!
 
 ##
 Più tardi, Rahim chiese scusa a tutti noi. "Non sarò più così ingordo" Promise. E noi tutti gli credemmo.
