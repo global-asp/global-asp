@@ -19,7 +19,7 @@ Oggi fa freddo.
 Oggi piove.
 
 ##
-Ci sono i tuoni
+Ci sono i tuoni.
 
 ##
 Vedo un arcobaleno.
