@@ -13,16 +13,16 @@ La mattina dopo, molto presto, partirono per il villaggio nella macchina del pap
 Dopo un po', i bambini erano stanchi e si addormentarono.
 
 ##
-Papa sveglio Odongo e Apiyo appena arrivarono al villaggio. Trovarono Nyar-Kanyada, la loro nonna, a riposare su un tappeto sotto un albero. Nyar-Kanyada in Luo significa "Figlia della gente di Kannada". Era una donna forte e bellissima.
+Papa sveglio Odongo e Apiyo appena arrivarono al villaggio. Trovarono Nyar-Kanyada, la loro nonna, a riposare su un tappeto sotto un albero. Nyar-Kanyada in Luo significa "Figlia della gente di Kanyada". Era una donna forte e bellissima.
 
 ##
-Near-Kanyada diede loro il benvenuto nella sua casa e ballò intorno alla stanza cantando con gioia. I suoi nipotini erano emozionati di dargli i regali che le avevano portato dalla città. "Prima apri il mio regalo" Disse Odongo. "No, prima il mio!" disse Apiyo.
+Nyar-Kanyada diede loro il benvenuto nella sua casa e ballò intorno alla stanza cantando con gioia. I suoi nipotini erano emozionati di dargli i regali che le avevano portato dalla città. "Prima apri il mio regalo" Disse Odongo. "No, prima il mio!" disse Apiyo.
 
 ##
 Dopo che aprì i regali, Nyar-Kanyada benedì i suoi nipotini nel modo tradizionale.
 
 ##
-Poi Ndongo e Apiyo uscirono in giardino. Inseguirono farfalle e uccellini.
+Poi Odongo e Apiyo uscirono in giardino. Inseguirono farfalle e uccellini.
 
 ##
 Si arrampicarono sugli alberi e si schizzarono con l'acqua del lago.
@@ -34,10 +34,10 @@ Quando diventò buio, tornarono a casa per cena. Prima che potessero finire di m
 Il giorno seguente, il papà ripartì per tornare in città, lasciando i bambini con Nyar-Kanyada.
 
 ##
-Ndongo e Apiyo aiutarono la nonna con le faccende di casa. Andarono a prendere l'acqua e la legna per il fuoco. Raccolsero le uova dalle galline e le verdure dal giardino.
+Odongo e Apiyo aiutarono la nonna con le faccende di casa. Andarono a prendere l'acqua e la legna per il fuoco. Raccolsero le uova dalle galline e le verdure dal giardino.
 
 ##
-Nyar-Kanyanda insegnò i suoi nipotini come fare soffici uguali da mangiare con lo stufato. Mostrò loro come fare il riso al cocco da mangiare con il pesce arrosto.
+Nyar-Kanyada insegnò i suoi nipotini come fare soffici uguali da mangiare con lo stufato. Mostrò loro come fare il riso al cocco da mangiare con il pesce arrosto.
 
 ##
 Una mattina, Odongo portò le mucche di sua nonna a pascolare. Incapparono nella fattoria del vicino. Il contadino era arrabbiato con Odongo. Lo minacciò di tenersi le mucche per aver mangiato il suo raccolto. Dopo quel giorno, il ragazzo si assicuro che le mucche non finissero di nuovo nei guai.
