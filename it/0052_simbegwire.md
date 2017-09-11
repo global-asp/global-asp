@@ -13,7 +13,7 @@ Un giorno, il papà di Simbegwire tornò a casa più tardi del solito. "Dove sei
 La vita di Simbegwire cambiò. Non aveva più tempo di sedersi con suo padre le mattine. Anita le dava così tante faccende di casa da fare che era sempre troppo stanca per fare i compiti la sera. Andava dritta a letto dopo cena. Il suo unico conforto era la copertina colorata che sua madre le diede. Il papà di Simbegwire non sembrava notare che sua figlia era infelice.
 
 ##
-Dopo alcuni mesi, il papà di Simbewire disse loro che sarebbe stato via di casa per un po'. "Devo viaggiare per lavoro" Disse:" Ma so che vi prenderete cura l'una dell'altra." Simbegwire aveva un' espressione triste ma suo padre non la notò. Anita non disse nulla, non era felice nemmeno lei.
+Dopo alcuni mesi, il papà di Simbegwire disse loro che sarebbe stato via di casa per un po'. "Devo viaggiare per lavoro" Disse:" Ma so che vi prenderete cura l'una dell'altra." Simbegwire aveva un' espressione triste ma suo padre non la notò. Anita non disse nulla, non era felice nemmeno lei.
 
 ##
 Le cose peggiorarono per Simbegwire. Se non finiva le faccende o si lamentava, Anita la picchiava. A cena, la donna mangia gran parte del cibo, lasciando a Simbegwire solo alcuni avanzi. Ogni notte Simbegwire piangeva fino ad addormentarsi, abbracciando la copertina della mamma.
