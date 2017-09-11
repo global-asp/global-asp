@@ -22,7 +22,7 @@ Zanele si è pettinata i capelli.
 Thabo si è tagliato i capelli.
 
 ##
-Thumb si è rasato i capelli.
+Themba si è rasato i capelli.
 
 ##
 * License: [CC-BY-NC]
