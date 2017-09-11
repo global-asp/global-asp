@@ -31,7 +31,7 @@ Altra gente va al suo banco. Comprano le banane di Tom e le mangiano.
 Presto, il cesto è vuoto. Tom conta i soldi che ha guadagnato.
 
 ##
-Poi tom compra sapone, zucchero e pane. Mette le cose nel suo cesto.
+Poi Tom compra sapone, zucchero e pane. Mette le cose nel suo cesto.
 
 ##
 Tom bilancia il cesto sulla sua testa e torna a casa.
