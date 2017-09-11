@@ -1,4 +1,4 @@
-# Perchè gli ippopotami non hanno il pelo
+# Perché gli ippopotami non hanno il pelo
 
 ##
 Un giorno, Coniglio stava costeggiando la riva del fiume.
