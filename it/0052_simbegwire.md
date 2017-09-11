@@ -22,7 +22,7 @@ Le cose peggiorarono per Simbegwire. Se non finiva le faccende o si lamentava, A
 Una mattina, Simbegwire era ancora a letto, in ritardo. "Razza di pigrona!" Gridò Anita. Tirò Simbegwire fuori dal letto. La copertina preziosa si impigliò in un chiodo e si strappò in due pezzi.
 
 ##
-Simbegwire era molto triste. Decise di scappare via di casa. Prese con sé i pezzi della copertina di sua madre, impacchettò un po' di cibo e andò via. Seguì la strada che suo padre prese quando andò via
+Simbegwire era molto triste. Decise di scappare via di casa. Prese con sé i pezzi della copertina di sua madre, impacchettò un po' di cibo e andò via. Seguì la strada che suo padre prese quando andò via.
 
 ##
 Quando la notte arrivò, si arrampicò su un albero alto, vicino ad un ruscello e si costruì un letto con i rami. Prima di addormentarsi, cantò: "Maamma, maamma, maamma, mi hai lasciato. Mi hai lasciato e non sei mai più tornata. Papà non mi vuole più bene. Mamma quando torni? mi hai lasciato."
