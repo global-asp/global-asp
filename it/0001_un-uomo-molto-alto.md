@@ -1,13 +1,13 @@
 # Un uomo molto alto
 
 ##
-La sua zappa era troppo corta
+La sua zappa era troppo corta.
 
 ##
-La sua porta era troppo bassa
+La sua porta era troppo bassa.
 
 ##
-Il suo letto era troppo piccolo
+Il suo letto era troppo piccolo.
 
 ##
 La sua bicicletta era troppo bassa.
