@@ -1,4 +1,4 @@
-# Mi Libro Ilustrado
+# Mi libro ilustrado
 
 ##
 Una chica
