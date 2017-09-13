@@ -7,7 +7,7 @@ Pollo y Milpiés eran amigos. Pero siempre competían. Un día, decidieron jugar
 Fueron a la cancha de fútbol y comenzaron a jugar. El Pollo era rápido, pero Milpiés era mucho más rápido. El Pollo pateaba lejos el balón, pero Milpiés lo pateaba aún más lejos. Así que el Pollo se empezó a enojar.
 
 ##
-Decidieron hacer un lanzamiento de penal. Milpiés fue el primer portero y el Pollo anotó sólo un gol. Ahora le toca al Pollo ser portero.
+Decidieron hacer un lanzamiento de penal. Milpiés fue el primer portero y el Pollo anotó sólo un gol. Enseguida le tocó al Pollo ser portero.
 
 ##
 Milpiés lanzó el balón e hizo un gol. Milpiés dribló el balón y anotó. Milpiés cabeceó el balón y anotó. Milpiés anotó cinco goles.
@@ -22,10 +22,10 @@ El Pollo estaba tan enfadado que con su pico abierto se tragó a Milpiés.
 Camino a casa, el Pollo se encontró con la Mamá Milpiés. Y ella le preguntó, "¿Has visto a mi hijo?" El Pollo no le respondió nada y Mamá Milpiés se empezó a preocupar.
 
 ##
-Luego, Mamá Milpiés escuchó una pequeña vocecita. "Ayúdame, mamá!" gritaba la vocecita. Mamá Milpiés miró para todos lados y trataba de escuchar atentamente. La vocecita venía de adentro del Pollo.
+Luego, Mamá Milpiés escuchó una pequeña vocecita. "Ayúdame, mamá!" gritaba la vocecita. Mamá Milpiés miró para todos lados tratando de escuchar atentamente. La vocecita venía del interior del Pollo.
 
 ##
-Mamá Milpiés gritó, "¡Usa tus poderes especiales, hijo mío!" Los Milpiés pueden producir un olor muy malo con un sabor terrible. El Pollo comenzó a sentirse enfermo.
+Mamá Milpiés gritó, "¡Usa tus poderes especiales, hijo mío!" Los Milpiés pueden producir un olor muy desagradable con un sabor terrible. El Pollo comenzó a sentirse enfermo.
 
 ##
 El Pollo eructó. Luego, tragaba y escupía. Después, estornudaba y tosía. ¡El Milpiés era asqueroso!
