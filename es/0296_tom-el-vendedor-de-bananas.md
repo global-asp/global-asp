@@ -1,31 +1,31 @@
-# Tom, el vendedor de bananas
+# Tom, el vendedor de plátanos
 
 ##
-Tom lleva una cesta de bananas maduras.
+Tom lleva una cesta de plátanos maduros.
 
 ##
-Tom va al mercado a vender bananas.
+Tom va al mercado a vender plátanos.
 
 ##
 La gente compra fruta en el mercado.
 
 ##
-Pero nadie compra las bananas de Tom. Prefieren comprarle a las mujeres.
+Pero nadie compra los plátanos de Tom. Prefieren comprarle a las mujeres.
 
 ##
 "En nuestra comunidad, sólo las mujeres venden fruta," le dice la gente. "¿Qué clase de hombre es éste?" se pregunta la gente.
 
 ##
-Pero Tom no se rinde. Sigue gritando, "¡Compren mis bananas! ¡Compren mis dulces bananas maduras!"
+Pero Tom no se rinde. Sigue gritando, "¡Compren mis plátanos! ¡Compren mis dulces plátanos maduros!"
 
 ##
-Una mujer coge un montón de bananas de la bandeja. Revisa las bananas cuidadosamente.
+Una mujer coge un montón de plátanos de la bandeja. Revisa las plátanos cuidadosamente.
 
 ##
-La mujer compra las bananas.
+La mujer compra los plátanos.
 
 ##
-Más gente viene al puesto. Compran las bananas de Tom y se las comen.
+Más gente viene al puesto. Compran los plátanos de Tom y se las comen.
 
 ##
 Al poco rato, la cesta está vacía. Tom cuenta el dinero que ganó.
