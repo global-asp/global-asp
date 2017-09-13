@@ -19,7 +19,7 @@ Siete cebras están corriendo hacia el agua.
 Ocho ranas y nueve peces están nadando en el agua.
 
 ##
-Un león ruge. También quiere beber. ¿Quién tiene miedo del león?
+Un león ruge. También quiere beber. ¿Quién le tiene miedo al león?
 
 ##
 Un elefante está bebiendo agua con el león.
