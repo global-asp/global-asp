@@ -13,7 +13,7 @@ El Perro pagó un poco más, porque no tenía la cantidad de dinero exacta.
 El chofer estaba a punto de darle el vuelto al Perro, cuando la Cabra se arrancó sin pagar nada.
 
 ##
-El chofer estaba muy enfadado/enojado. Se fue sin darle el vuelto/cambio al Perro.
+El chofer estaba muy enojado. Se fue sin darle el cambio al Perro.
 
 ##
 Debido a esto, hasta el día de hoy, el Perro corre detrás del carro para mirar adentro y encontrar al chofer que le debe su vuelto.
