@@ -1,7 +1,5 @@
 # Tingi y las vacas
 
-Tingi y las vacas
-
 ##
 Tingi vivía con su abuela.
 
