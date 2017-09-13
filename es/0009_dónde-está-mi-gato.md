@@ -4,22 +4,22 @@
 ¿Dónde está mi gato?
 
 ##
-¿Está debajo de la cama?
+¿Estará debajo de la cama?
 
 ##
-¿Está encima del armario?
+¿Estará encima del armario?
 
 ##
-¿Está detrás del sofá?
+¿Estará detrás del sofá?
 
 ##
-¿Está al lado del bote de basura?
+¿Estará al lado del bote de basura?
 
 ##
-¿Está dentro de la cesta?
+¿Estará dentro de la cesta?
 
 ##
-¿Está afuera de la casa?
+¿Estará afuera de la casa?
 
 ##
 ¡Aquí está!
