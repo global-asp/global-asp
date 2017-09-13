@@ -1,7 +1,7 @@
 # La decisión
 
 ##
-Mi villa/comunidad/pueblo tenía muchos problemas. Hacíamos una larga fila/cola para recolectar agua de una llave.
+Mi pueblo tenía muchos problemas. Hacíamos una larga cola para recolectar agua de una llave.
 
 ##
 Esperábamos la comida que otros donaban.
@@ -13,10 +13,10 @@ Cerrábamos con llave nuestras casas temprano por los ladrones.
 Muchos niños abandonaban la escuela.
 
 ##
-Las chicas jóvenes trabajaban como sirvientas en otras villas/pueblos/comunidades.
+Las chicas jóvenes trabajaban como sirvientas en otros pueblos.
 
 ##
-Los chicos jóvenes daban vueltas en la villa/pueblos/comunidades mientras otros trabajaban en granjas.
+Los chicos jóvenes daban vueltas en el pueblo mientras otros trabajaban en granjas.
 
 ##
 Cuando el viento soplaba, residuos de papel quedaban colgando en los árboles y cercas.
