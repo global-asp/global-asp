@@ -1,7 +1,7 @@
 # La decisión
 
 ##
-Mi pueblo tenía muchos problemas. Hacíamos una larga cola para recolectar agua de una llave.
+Mi pueblo tenía muchos problemas. Hacíamos una larga fila para recolectar agua de una llave.
 
 ##
 Esperábamos la comida que otros donaban.
