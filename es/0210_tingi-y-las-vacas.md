@@ -1,5 +1,7 @@
 # Tingi y las vacas
 
+Tingi y las vacas
+
 ##
 Tingi vivía con su abuela.
 
@@ -31,7 +33,7 @@ Uno de los soldados puso su pie directamente sobre él, pero Tingi se quedó en 
 Cuando estuvieron a salvo, Tingi y su abuela salieron.
 
 ##
-Se escurrieron a casa muy tranquilamente.
+Se escabulleron a casa muy tranquilamente.
 
 ##
 * License: [CC-BY]
