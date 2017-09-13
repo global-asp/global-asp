@@ -1,19 +1,19 @@
-# De vacaciones con la Abuela
+# De vacaciones con la abuela
 
 ##
 Odongo y Apiyo vivían en la ciudad con su padre. Esperaban con ansias sus vacaciones. No sólo porque cerraban la escuela, sino porque iban a visitar a su abuela. Ella vivía en una aldea de pescadores cerca de un gran lago.
 
 ##
-Odongo y Apiyo estaban emocionadas por visitar de nuevo a su abuela. La noche antes del viaje, empacaron sus cosas y dejaron todo listo para irse a la aldea. No pudieron dormir y se quedaron toda la noche hablando sobre sus vacaciones.
+Odongo y Apiyo estaban emocionadas con la idea de visitar de nuevo a su abuela. La noche antes del viaje, empacaron sus cosas y dejaron todo listo para irse a la aldea. No pudieron dormir y se quedaron toda la noche hablando sobre sus vacaciones.
 
 ##
-Temprano a la mañana siguiente, partieron de viaje a la aldea en el auto de su padre. Pasaron por las montañas y vieron animales salvajes y plantaciones de té. Contaron autos y cantaron canciones.
+Temprano a la mañana siguiente, salieron de viaje a la aldea en el auto de su padre. Pasaron por las montañas y vieron animales salvajes y plantaciones de té. Contaron autos y cantaron canciones.
 
 ##
-Al poco tiempo, los niños se cansaron y se quedaron dormidos.
+Al poco tiempo, se cansaron y se quedaron dormidos.
 
 ##
-El padre despertó a Odongo y Apiyo cuando llegaron a la aldea. Se encontraron a su abuela, Nyar-Kanyada, descansando en una manta bajo un árbol. Nyar-Kanyada significa 'hija de la gente de Kanyada' en el idioma Luo. La abuela era una mujer fuerte y hermosa.
+El padre despertó a Odongo y Apiyo cuando llegaron a la aldea. Se encontraron a su abuela, Nyar-Kanyada, descansando con una manta debajo de un árbol. Nyar-Kanyada significa 'hija de la gente de Kanyada' en el idioma Luo. La abuela era una mujer fuerte y hermosa.
 
 ##
 Nyar-Kanyada les dio la bienvenida a su casa, bailando y cantando de alegría. Sus nietos estaban ansiosos por entregarle los regalos que le trajeron de la ciudad. "Abre mi regalo primero," dijo Odongo. "¡No, mi regalo primero!" dijo Apiyo.
@@ -31,10 +31,10 @@ Escalaron árboles y chapotearon en el lago.
 Cuando oscureció, volvieron a la casa a cenar. ¡Se estaban quedando dormidos antes de terminar de comer!
 
 ##
-Al día siguiente, el padre de los niños se fue de vuelta a la ciudad y dejó a los niños con Nyar-Kanyada.
+Al día siguiente, el padre de los niños se fue de vuelta a la ciudad y los dejó con Nyar-Kanyada.
 
 ##
-Odongo y Apiyo ayudaron a su abuela con las tareas del hogar. Fueron a buscar agua y leña. Recolectaron los huevos de las gallinas y cogieron verduras de la huerta.
+Odongo y Apiyo ayudaron a su abuela con las tareas del hogar. Fueron a buscar agua y leña. Recolectaron los huevos de las gallinas y recolectaron verduras de la huerta.
 
 ##
 Nyar-Kanyada le enseñó a sus nietos a hacer ugali para comer con estofado. Les enseñó a hacer arroz con coco para comerlo con pescado asado.
@@ -52,7 +52,7 @@ Al final del día, tomaban té juntos. Le ayudaban a su abuela a contar cuánto 
 Pero las vacaciones se terminaron muy rápido y los niños tuvieron que regresar a la ciudad. Nyar-Kanyada le regaló una gorra a Odongo y un chaleco a Apiyo. Luego les empacó comida para su viaje de vuelta a casa.
 
 ##
-Cuando su padre vino a recogerlos, no querían irse. Los niños le suplicaron a Nyar-Kanyada que se fuera con ellos a la ciudad. Ella sonrió y les dijo, "estoy muy vieja para la ciudad. Estaré esperándolos cuando vuelvan a mi aldea otra vez."
+Cuando su padre vino a recogerlos, no querían irse. Los niños le suplicaron a Nyar-Kanyada que se fuera con ellos a la ciudad. Ella sonrió y les dijo: "Estoy muy vieja para la ciudad. Estaré esperándolos cuando vuelvan a mi aldea otra vez."
 
 ##
 Odongo y Apiyo le dieron un abrazo muy apretado y le dijeron adiós.
