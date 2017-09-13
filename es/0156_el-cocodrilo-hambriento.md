@@ -10,7 +10,7 @@ Buscaba comida muy lenta y silenciosamente. Hasta que...
 ¡¡¡Zas!!! ¡El cocodrilo ataca!
 
 ##
-Después de eso, él ya no tiene hambre, y está muy contento.
+Después de eso, ya no tiene hambre, y está muy contento.
 
 ##
 Hasta que le vuelve a dar hambre otra vez.
