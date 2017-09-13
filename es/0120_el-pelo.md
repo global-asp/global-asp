@@ -10,19 +10,19 @@ Anna tiene el pelo largo.
 Cathy es la que tiene el pelo más largo.
 
 ##
-Zama se ha trenzado su pelo.
+Zama se ha trenzado el pelo.
 
 ##
 Baba tiene barba.
 
 ##
-Zanele se ha peinado su pelo.
+Zanele se ha peinado el pelo.
 
 ##
-Thabo se ha cortado su pelo.
+Thabo se ha cortado el pelo.
 
 ##
-Themba se ha rapado su pelo.
+Themba se ha rapado el pelo.
 
 ##
 * License: [CC-BY-NC]
