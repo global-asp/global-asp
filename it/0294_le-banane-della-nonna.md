@@ -1,4 +1,4 @@
-# Le Banane della Nonna
+# Le banane della nonna
 
 ##
 Il giardino della nonna era magnifico, pieno di saggina, miglio e manioca. Ma il meglio di tutto erano le banane. Anche se la nonna aveva tanti nipotini io in fondo sapevo di essere la sua preferita. Mi invitava spesso a casa sua. Mi diceva anche piccoli segreti. Ma c'era un segreto che non condivideva con me: dove maturava le banane.
