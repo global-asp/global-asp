@@ -1,4 +1,4 @@
-# Anansi e la Saggezza
+# Anansi e la saggezza
 
 ##
 Tanto tempo fa, la gente non sapeva niente. Non sapeva piantare il grano o tessere panni o costruire attrezzi di metallo. Il dio Nyame, lassù nel cielo, possedeva tutta la saggezza del mondo. La teneva al sicuro in un vaso di argilla.
