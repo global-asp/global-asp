@@ -1,4 +1,4 @@
-# Bambini di Cera
+# Bambini di cera
 
 ##
 C'era una volta una famiglia che viveva felice.
