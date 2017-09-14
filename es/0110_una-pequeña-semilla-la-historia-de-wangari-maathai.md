@@ -1,4 +1,4 @@
-# Una pequeña semilla: La historia de Wangari Maathai
+# Una pequeña semilla: la historia de Wangari Maathai
 
 ##
 En una aldea ubicada en la cuesta del Monte Kenia en África del Este, una niña pequeña trabajaba en los campos con su madre. Su nombre era Wangari.
