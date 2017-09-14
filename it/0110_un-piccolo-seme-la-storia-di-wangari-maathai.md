@@ -1,4 +1,4 @@
-# Un Piccolo Seme: La Storia di Wangari Maathai
+# Un piccolo seme: la storia di Wangari Maathai
 
 ##
 In un villaggio sulle colline del monte Kenya nel Africa dell' Est, una bambina lavorava nei campi con sua madre. Il suo nome era Wangari.
