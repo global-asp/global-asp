@@ -1,4 +1,4 @@
-# Tingi e le Mucche
+# Tingi e le mucche
 
 ##
 Tingi viveva con sua nonna.
