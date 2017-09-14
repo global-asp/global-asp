@@ -1,4 +1,4 @@
-# Bimbo Asino
+# Bimbo asino
 
 ##
 Fu una piccola bimba a vedere per prima la misteriosa figura in lontananza.
