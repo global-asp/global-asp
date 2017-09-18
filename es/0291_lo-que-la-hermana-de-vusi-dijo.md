@@ -10,7 +10,7 @@ Cuando iba hacia la casa de sus padre, Vusi se encontró con dos chicos recogien
 "¡¿Qué acabas de hacer?!" Vusi le gritó. "Ese huevo era para hacer el pastel de boda de mi hermana." ¿Qué dirá mi hermana cuando sepa que no habrá pastel de boda?"
 
 ##
-Los chicos se disculparon por lo ocurrido. "No te podemos ayudar con la torta, pero este palo para caminar es un regalo para tu hermana," uno de los chicos dijo. Luego, Vusi siguió caminando.
+Los chicos se disculparon por lo ocurrido. "No te podemos ayudar con la pastel, pero este palo para caminar es un regalo para tu hermana," uno de los chicos dijo. Luego, Vusi siguió caminando.
 
 ##
 Mientras caminaba, se encontró con dos hombres que estaban construyendo una casa. "¿Nos dejarías usar ese fuerte palo?" uno de los hombres preguntó. Pero el palo no era lo suficientemente fuerte para trabajos de construcción, así que se quebró. 
@@ -19,7 +19,7 @@ Mientras caminaba, se encontró con dos hombres que estaban construyendo una cas
 "¿Qué acabas de hacer?" Vusi gritó. "Ese palo era un regalo para mi hermana. Los recolectores de fruta me lo dieron porque rompieron el huevo para el pastel de boda de mi hermana. Ahora, ni huevo, ni pastel, ni regalo habrá para su boda. ¡¿Qué dirá mi hermana?!"
 
 ##
-Los constructores se disculparon por haber roto el palo. "No te podemos ayudar con la torta, pero aquí tienes un poco de paja para tu hermana," uno de ellos dijo. Y así, Vusi continuó caminando.
+Los constructores se disculparon por haber roto el palo. "No te podemos ayudar con la pastel, pero aquí tienes un poco de paja para tu hermana," uno de ellos dijo. Y así, Vusi continuó caminando.
 
 ##
 Ahora Vusi se encontró con un granjero y una vaca. "¡Qué deliciosa paja! ¿Puedo comer un poquito?" la vaca preguntó. Pero la paja estaba tan rica que la vaca se la comió toda.
