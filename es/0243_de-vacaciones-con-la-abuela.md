@@ -13,7 +13,7 @@ Temprano a la mañana siguiente, salieron de viaje a la aldea en el auto de su p
 Al poco tiempo, se cansaron y se quedaron dormidos.
 
 ##
-El padre despertó a Odongo y Apiyo cuando llegaron a la aldea. Se encontraron a su abuela, Nyar-Kanyada, descansando con una manta debajo de un árbol. Nyar-Kanyada significa 'hija de la gente de Kanyada' en el idioma Luo. La abuela era una mujer fuerte y hermosa.
+El padre despertó a Odongo y Apiyo cuando llegaron a la aldea. Se encontraron a su abuela, Nyar-Kanyada, descansando con una manta debajo de un árbol. Nyar-Kanyada significa "hija de la gente de Kanyada" en el idioma Luo. La abuela era una mujer fuerte y hermosa.
 
 ##
 Nyar-Kanyada les dio la bienvenida a su casa, bailando y cantando de alegría. Sus nietos estaban ansiosos por entregarle los regalos que le trajeron de la ciudad. "Abre mi regalo primero," dijo Odongo. "¡No, mi regalo primero!" dijo Apiyo.
