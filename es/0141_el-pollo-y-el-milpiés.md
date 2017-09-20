@@ -22,7 +22,7 @@ El Pollo estaba tan enfadado que con su pico abierto se tragó a Milpiés.
 Camino a casa, el Pollo se encontró con la Mamá Milpiés. Y ella le preguntó, "¿Has visto a mi hijo?" El Pollo no le respondió nada y Mamá Milpiés se empezó a preocupar.
 
 ##
-Luego, Mamá Milpiés escuchó una pequeña vocecita. "Ayúdame, mamá!" gritaba la vocecita. Mamá Milpiés miró para todos lados tratando de escuchar atentamente. La vocecita venía del interior del Pollo.
+Luego, Mamá Milpiés escuchó una pequeña vocecita. "¡Ayúdame, mamá!" gritaba la vocecita. Mamá Milpiés miró para todos lados tratando de escuchar atentamente. La vocecita venía del interior del Pollo.
 
 ##
 Mamá Milpiés gritó, "¡Usa tus poderes especiales, hijo mío!" Los Milpiés pueden producir un olor muy desagradable con un sabor terrible. El Pollo comenzó a sentirse enfermo.
