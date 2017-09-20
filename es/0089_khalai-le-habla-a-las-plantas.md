@@ -1,7 +1,7 @@
 # Khalai le habla a las plantas
 
 ##
-Ella es Khalai. Tiene siete años. Su nombre significa 'bondadosa' en su idioma llamado Lubukusu.
+Ella es Khalai. Tiene siete años. Su nombre significa "bondadosa" en su idioma llamado Lubukusu.
 
 ##
 Khalai despierta y le habla a los naranjos. "Por favor naranjos crezcan mucho para que nos den muchas naranjas maduras."
