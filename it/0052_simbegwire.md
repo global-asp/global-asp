@@ -16,7 +16,7 @@ La vita di Simbegwire cambiò. Non aveva più tempo di sedersi con suo padre le 
 Dopo alcuni mesi, il papà di Simbegwire disse loro che sarebbe stato via di casa per un po'. "Devo viaggiare per lavoro" Disse:" Ma so che vi prenderete cura l'una dell'altra." Simbegwire aveva un' espressione triste ma suo padre non la notò. Anita non disse nulla, non era felice nemmeno lei.
 
 ##
-Le cose peggiorarono per Simbegwire. Se non finiva le faccende o si lamentava, Anita la picchiava. A cena, la donna mangia gran parte del cibo, lasciando a Simbegwire solo alcuni avanzi. Ogni notte Simbegwire piangeva fino ad addormentarsi, abbracciando la copertina della mamma.
+Le cose peggiorarono per Simbegwire. Se non finiva le faccende o si lamentava, Anita la picchiava. A cena la donna mangiava gran parte del cibo, lasciando a Simbegwire solo alcuni avanzi. Ogni notte Simbegwire piangeva fino ad addormentarsi, abbracciando la copertina della mamma.
 
 ##
 Una mattina, Simbegwire era ancora a letto, in ritardo. "Razza di pigrona!" Gridò Anita. Tirò Simbegwire fuori dal letto. La copertina preziosa si impigliò in un chiodo e si strappò in due pezzi.
