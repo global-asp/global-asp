@@ -13,10 +13,10 @@ La mattina dopo, molto presto, partirono per il villaggio nella macchina del pap
 Dopo un po', i bambini erano stanchi e si addormentarono.
 
 ##
-Papa sveglio Odongo e Apiyo appena arrivarono al villaggio. Trovarono Nyar-Kanyada, la loro nonna, a riposare su un tappeto sotto un albero. Nyar-Kanyada in Luo significa "Figlia della gente di Kanyada". Era una donna forte e bellissima.
+Papà svegliò Odongo e Apiyo appena arrivarono al villaggio. Trovarono Nyar-Kanyada, la loro nonna, mentre riposava su un tappeto sotto un albero. Nyar-Kanyada in Luo significa "Figlia della gente di Kanyada". Era una donna forte e bellissima.
 
 ##
-Nyar-Kanyada diede loro il benvenuto nella sua casa e ballò intorno alla stanza cantando con gioia. I suoi nipotini erano emozionati di dargli i regali che le avevano portato dalla città. "Prima apri il mio regalo" Disse Odongo. "No, prima il mio!" disse Apiyo.
+Nyar-Kanyada diede loro il benvenuto nella sua casa e ballò intorno alla stanza cantando con gioia. I suoi nipotini erano emozionati di darle regali che le avevano portato dalla città. "Prima apri il mio regalo" Disse Odongo. "No, prima il mio!" disse Apiyo.
 
 ##
 Dopo che aprì i regali, Nyar-Kanyada benedì i suoi nipotini nel modo tradizionale.
@@ -37,19 +37,19 @@ Il giorno seguente, il papà ripartì per tornare in città, lasciando i bambini
 Odongo e Apiyo aiutarono la nonna con le faccende di casa. Andarono a prendere l'acqua e la legna per il fuoco. Raccolsero le uova dalle galline e le verdure dal giardino.
 
 ##
-Nyar-Kanyada insegnò i suoi nipotini come fare soffici uguali da mangiare con lo stufato. Mostrò loro come fare il riso al cocco da mangiare con il pesce arrosto.
+Nyar-Kanyada insegnò ai suoi nipotini come fare soffici ugali da mangiare con lo stufato. Mostrò loro come fare il riso al cocco da mangiare con il pesce arrosto.
 
 ##
-Una mattina, Odongo portò le mucche di sua nonna a pascolare. Incapparono nella fattoria del vicino. Il contadino era arrabbiato con Odongo. Lo minacciò di tenersi le mucche per aver mangiato il suo raccolto. Dopo quel giorno, il ragazzo si assicuro che le mucche non finissero di nuovo nei guai.
+Una mattina, Odongo portò le mucche di sua nonna a pascolare. Incapparono nella fattoria del vicino. Il contadino era arrabbiato con Odongo. Lo minacciò di tenersi le mucche per aver mangiato il suo raccolto. Dopo quel giorno il bambino si assicurò che le mucche non finissero di nuovo nei guai.
 
 ##
-In un altro giorno, i bambini andarono al mercato con Nyar-Kanyada. Lei aveva una bancarella che vendeva verdure, zucchero e sale. Ad Apiyo piaceva dire ai clienti i prezzi della merce. Odongo preparava i sacchetti con le cose che clienti avevano comprato.
+Un altro giorno, i bambini andarono al mercato con Nyar-Kanyada. Lei aveva una bancarella che vendeva verdure, zucchero e sale. Ad Apiyo piaceva dire ai clienti i prezzi della merce. Odongo preparava i sacchetti con le cose che i clienti avevano comprato.
 
 ##
 Alla fine della giornata bevvero tè chai insieme. Aiutarono la nonna a contare i soldi che aveva guadagnato.
 
 ##
-Ma, troppo presto, le vacanze finirlo e i bambini dovettero tornare in città. Nyar-Kanyada diede a Odongo un cappello e ad Apiyo una felpa. Preparò del cibo ber il loro viaggio.
+Ma troppo presto le vacanze finirono e i bambini dovettero tornare in città. Nyar-Kanyada diede a Odongo un cappello e ad Apiyo una felpa. Preparò del cibo per il loro viaggio.
 
 ##
 Quando il padre arrivò a prenderli, loro non volevano andarsene. I bimbi pregarono Nyar-Kanyada di andare con loro in città. Lei sorrise e disse "Sono troppo vecchia per la città. Aspetterò che veniate a trovarmi di nuovo al mio villaggio."
@@ -58,7 +58,7 @@ Quando il padre arrivò a prenderli, loro non volevano andarsene. I bimbi pregar
 Odongo e Apiyo la abbracciarono forte e la salutarono.
 
 ##
-Quando Odongo e Apiyo tornarono a scuola, raccontarono i loro amici della vita nel villaggio. Alcuni bambini pensavano che la vita in città era bella. Altri pensavano che il villaggio era meglio. Ma soprattutto, tutti concordarono sul fatto che Odongo e Apiyo avessero una nonna fantastica!
+Quando Odongo e Apiyo tornarono a scuola, raccontarono i loro amici della vita nel villaggio. Alcuni bambini pensarono che la vita in città fosse bella. Altri pensarono che il villaggio fosse meglio. Ma soprattutto, tutti concordarono sul fatto che Odongo e Apiyo avessero una nonna fantastica!
 
 ##
 * License: [CC-BY]
