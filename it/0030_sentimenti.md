@@ -13,7 +13,7 @@ Mi sento sciocca quando gioco con i miei amici.
 Mi sento triste quando mio padre dice che non ha soldi.
 
 ##
-Mi sento amata quando mia mamma mi abbraccio.
+Mi sento amata quando mia mamma mi abbraccia.
 
 ##
 * License: [CC-BY-NC]
