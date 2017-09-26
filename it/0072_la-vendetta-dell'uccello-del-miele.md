@@ -1,4 +1,4 @@
-# La vendetta della Nettarovìa
+# La vendetta dell’uccello del miele
 
 ##
 Questa è la storia di Ngede, la Nettarovìa, e di un avido giovane uomo chiamato Gingile. Un giorno, mentre Gingile era fuori a caccia, sentì il verso i Ngede. A Gingile venne l'acquolina solo al pensiero del miele. Si fermò e ascoltò attentamente, cercando finché non vide l'uccellino tra i rami, proprio sopra la sua testa. "Chip-Chip-Chip" cinguettò il piccolo uccellino mentre volava sull'altro albero. "Chip-Chip-Chip" richiamò, fermandosi di tanto in tanto per assicurarsi che Gingile lo seguisse.
