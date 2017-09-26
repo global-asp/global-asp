@@ -13,22 +13,22 @@ Era così interessante guardare nonna, le banane, le foglie di banano e il grand
 Quando tornai, nonna era seduta fuori ma senza il cesto o le banane. "Nonna, dov'è il cesto, dove sono le banane e dove.." Ma l'unica risposta che ricevetti fu: "Sono nel mio posto magico". Era così deludente!
 
 ##
-Due giorni dopo, nonna mi mando  a prendere il suo bastone da passeggio in camera sua. Appena aprii la porta fui benvenuta da un forte odore di banane in maturazione. Nella stanza interna c'era il grande cesto in vimini della nonna. Era ben nascosto da una vecchia coperta. Io la sollevai e odorai quel fantastico profumo.
+Due giorni dopo, nonna mi mandò a prendere il suo bastone da passeggio in camera sua. Appena aprii la porta fui benvenuta da un forte odore di banane in maturazione. Nella stanza interna c'era il grande cesto in vimini della nonna. Era ben nascosto da una vecchia coperta. Io la sollevai e odorai quel fantastico profumo.
 
 ##
-La voce di nonna mi fece sobbalzare quando chiamò. "Che cosa stai facendo? sbrigati e portami il bastone!" Io mi sbrigai col bastone. "Perché sorridi?" Chiese nonna. La sua domanda mi fece realizzare che stavo ancora sorridendo per la scoperta del suo posto magico.
+La voce di nonna mi fece sobbalzare quando mi chiamò. "Che cosa stai facendo? sbrigati e portami il bastone!" Io mi sbrigai col bastone. "Perché sorridi?" Chiese nonna. La sua domanda mi fece realizzare che stavo ancora sorridendo per la scoperta del suo posto magico.
 
 ##
-Il giorno seguente, quando nonna venne a visitare mia madre, Io corsi dentro casa per controllare le banane ancora una volta. Ce n'erano tante ben mature. Ne presi una e la nascosi sotto il mio vestito. Dopo aver coperto il cesto di nuovo, andai dietro la casa e la mangiai in fretta. Era la banana più dolce che avessi mai assaggiato.
+Il giorno seguente, quando nonna venne a visitare mia madre, io corsi dentro casa per controllare le banane ancora una volta. Ce n'erano tante ben mature. Ne presi una e la nascosi sotto il mio vestito. Dopo aver coperto il cesto di nuovo, andai dietro la casa e la mangiai in fretta. Era la banana più dolce che avessi mai assaggiato.
 
 ##
-Il giorno seguente, mentre nonna era in giardino a raccogliere verdure, Io sgattaiolai e sbirciai le banane. Erano quasi tutte mature. Non potei fare a meno che prenderne un paio di caschi. Appena sgattaiolai verso la porta, udii nonna tossire fuori. Riuscii a nascondere le banane sotto il mio vestito e camminare di fianco a lei.
+Il giorno seguente, mentre nonna era in giardino a raccogliere le verdure, io sgattaiolai e sbirciai le banane. Erano quasi tutte mature. Non potei fare a meno che prenderne un paio di caschi. Appena sgattaiolai verso la porta, udii nonna tossire fuori. Riuscii a nascondere le banane sotto il mio vestito e camminare di fianco a lei.
 
 ##
-Il giorno seguente era giorno di mercato. Nonna si alzò presto. Lei prendeva sempre le banane mature e la manioca per venderle al mercato. Io non mi sbrigai per visitarla quel giorno. Ma non avrei potuto evitarla a lungo.
+Il giorno seguente era il giorno del mercato. Nonna si alzò presto. Lei prendeva sempre le banane mature e la manioca per venderle al mercato. Io non mi sbrigai per visitarla quel giorno. Ma non avrei potuto evitarla a lungo.
 
 ##
-Più tardi sulla sera fui chiamata da mia mamma, mio padre e mia nonna. Sapevo perché. Quella notte, quando andai a letto per dormire, sapevo che non avrei mai più rubato, né da mia nonna, né dai miei genitori e sicuramente da nessun altro.
+Più tardi verso sera fui chiamata da mia mamma, mio padre e mia nonna. Sapevo perché. Quella notte, quando andai a letto per dormire, sapevo che non avrei mai più rubato, né da mia nonna, né dai miei genitori e sicuramente da nessun altro.
 
 ##
 * License: [CC-BY]
