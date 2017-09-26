@@ -35,7 +35,7 @@ Quando si conobbero, Magozwe cominciò a raccontare la propria storia a Thomas. 
 Intorno al decimo compleanno di Magozwe, Thomas gli regalò un nuovo libro di storie. Era la storia di un ragazzo di villaggio che crebbe per diventare un famoso calciatore. Thomas gli lesse la storia tante volte, fino a che un giorno disse: "Credo sia ora che tu vada a scuola e impari a leggere. Che ne dici?" Thomas spiegò che lui conosceva un posto dove i bimbi potevano vivere e andare a scuola.
 
 ##
-Magozwe pensò a questo posto nuovo e al fatto di andare a scuola. E se suo zio avesse ragione? Se lui fosse davvero troppo stupido per imparare qualcosa? E se lo avessero picchiato in questo nuovo posto? Era spaventato. "Forse è meglio che rimango a vivere per strada" Pensò.
+Magozwe pensò a questo posto nuovo e al fatto di andare a scuola. E se suo zio avesse ragione? Se lui fosse davvero troppo stupido per imparare qualcosa? E se lo avessero picchiato in questo nuovo posto? Era spaventato. "Forse è meglio che rimanga a vivere per strada" Pensò.
 
 ##
 Condivise le sue paure con Thomas. Con il tempo, l'uomo rassicurò il ragazzo sul fatto che la vita sarebbe stata migliore in quel posto nuovo.
