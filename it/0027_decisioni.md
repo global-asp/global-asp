@@ -25,7 +25,7 @@ Quando il vento soffiava, la spazzatura si impigliava su alberi e staccionate.
 La gente si tagliava con i pezzi di vetro che venivano buttati in giro con noncuranza.
 
 ##
-Poi, un giorno, il rubinetto si seccò e i nostri contenitori erano vuoti.
+Poi, un giorno, il rubinetto si seccò e i nostri contenitori furono vuoti.
 
 ##
 Mio padre andò di casa in casa chiedendo alla gente di partecipare alla riunione del villaggio.
