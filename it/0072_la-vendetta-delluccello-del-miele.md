@@ -1,7 +1,7 @@
 # La vendetta dell'uccello del miele
 
 ##
-Questa è la storia di Ngede, il uccello del miele, e di un avido giovane uomo chiamato Gingile. Un giorno, mentre Gingile era fuori a caccia, sentì il verso i Ngede. A Gingile venne l'acquolina solo al pensiero del miele. Si fermò e ascoltò attentamente, cercando finché non vide l'uccellino tra i rami, proprio sopra la sua testa. "Chip-Chip-Chip" cinguettò il piccolo uccellino mentre volava sull'altro albero. "Chip-Chip-Chip" richiamò, fermandosi di tanto in tanto per assicurarsi che Gingile lo seguisse.
+Questa è la storia di Ngede, l'uccello del miele, e di un avido giovane uomo chiamato Gingile. Un giorno, mentre Gingile era fuori a caccia, sentì il verso i Ngede. A Gingile venne l'acquolina solo al pensiero del miele. Si fermò e ascoltò attentamente, cercando finché non vide l'uccellino tra i rami, proprio sopra la sua testa. "Chip-Chip-Chip" cinguettò il piccolo uccellino mentre volava sull'altro albero. "Chip-Chip-Chip" richiamò, fermandosi di tanto in tanto per assicurarsi che Gingile lo seguisse.
 
 ##
 Dopo mezz'ora, raggiunsero un grosso albero di fichi selvatici. Ngede saltò sui rami follemente. Poi, si appollaiò su uno dei rami e sollevò la testa verso Gingile come per dire "Eccolo qui! Vieni! Perché ci metti tanto?" Gingile non riusciva a vedere nemmeno un' ape da sotto l'albero , ma si fidò di Ngede.
@@ -28,7 +28,7 @@ Un giorno, qualche settimana dopo, Gingile sentì di nuovo la chiamata del miele
 Gingile si arrampicò, chiedendosi perché non sentisse il solito ronzare. "Forse il nido è nelle profondità dell'albero." Si arrampicò un ramo più in sù. Ma invece di un nido, si ritrovò a fissare le fauci di un leopardo! Leopardo era veramente arrabbiato, qualcuno aveva interrotto maleducatamente il suo sonnellino. Strinse gli occhi e aprì la sua bocca per mostrare i grossi aguzzi denti.
 
 ##
-Prima che Leopardo potesse azzannare Gingile, quest'ultimo si affrettò a scendere dall'albero. Nella fretta, mancò un ramo e atterrò con un tonfo pesante, slogandosi la caviglia. Zoppicò via più veloce che poté! Fortunatamente per lui, Leopardo era ancora troppo assonnato per inseguirlo. Ngede, il uccello del miele, ebbe la sua vendetta.
+Prima che Leopardo potesse azzannare Gingile, quest'ultimo si affrettò a scendere dall'albero. Nella fretta, mancò un ramo e atterrò con un tonfo pesante, slogandosi la caviglia. Zoppicò via più veloce che poté! Fortunatamente per lui, Leopardo era ancora troppo assonnato per inseguirlo. Ngede, l'uccello del miele, ebbe la sua vendetta.
 
 ##
 Così, quando  i bambini di Gingile ascoltano la storia di Ngede, portano rispetto al piccolo uccellino. Ogni volta che raccolgono il miele, si assicurano di lasciare la parte più grossa del favo all'uccello del miele!
