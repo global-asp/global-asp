@@ -34,7 +34,7 @@ Confusione e rabbia crebbero dentro Asino. Non poteva fare questo, non poteva fa
 Asino si vergognò. Cominciò a correre via il più veloce e lontano che poté.
 
 ##
-Quando smise di correre, era notte e Asino si era perso. "Hi-ho?" ragliò nell'oscurità. "Hi-ho?" rispose l'eco. Era da solo. Acciambellatosi su sé stesso si addormentò in un sonno profondo e tormentato.
+Quando smise di correre, era notte e Asino si era perso. "Hi-ho?" ragliò nell'oscurità. "Hi-ho?" rispose l'eco. Era da solo. Acciambellatosi su se stesso si addormentò in un sonno profondo e tormentato.
 
 ##
 Asino si sveglio trovando uno strano vecchio a osservarlo. Asino lo guardò negli occhi e cominciò a sentire un barlume di speranza.
