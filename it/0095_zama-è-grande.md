@@ -19,7 +19,7 @@ Io posso tener testa all'acqua fredda e al sapone blu e odoroso.
 Mamma mi ricorda "Non dimenticarti i denti" Io rispondo: "Mai, non io!"
 
 ##
-Dopo essermi lavato, saluto Nonno e Zia e gli auguro una buona giornata.
+Dopo essermi lavato, saluto Nonno e Zia e auguro loro una buona giornata.
 
 ##
 Poi mi vesto "Ora sono grande. mamma." Dico.
