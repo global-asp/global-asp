@@ -1,7 +1,7 @@
-# Pollo e Millepiede
+# Pollo e Millepiedi
 
 ##
-Pollo e Millepiedi erano amici. Ma erano sempre in competizione fra loro. Un giorno decisero di giocare a calcio per decidere di giocare a calcio per decidere chi fosse il miglior giocatore.
+Pollo e Millepiedi erano amici. Ma erano sempre in competizione fra loro. Un giorno decisero di giocare a calcio per decidere chi fosse il miglior giocatore.
 
 ##
 Andarono in un campo da calcio e cominciarono la partita. Pollo era veloce, ma Millepiedi di più. Pollo calciava lontano, ma Millepiedi di più. Pollo cominciò a mettere il broncio.
