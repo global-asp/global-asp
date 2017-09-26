@@ -16,7 +16,7 @@ Per tutto il tempo, il figlio giovane di Anansi era rimasto sotto l'albero e ad 
 In un batter d'occhio, raggiunse la cima dell'albero. Ma poi si fermò e riflettè: "dovrei essere l'unico ad avere tutta la saggezza e qui mio figlio è stato più intelligente di me!" Anansi si arrabbiò così tanto, che lanciò il vaso giù dall'albero.
 
 ##
-Il vaso si ruppe in mille pezzi. La saggezza si sparse ovunque, libera di essere condivisa da tutti. Ed è così che la gente imparò ad allevare, coltivare, tessere, costruire attrezzi di metallo e tutte le altre cose che la gente ora sa fare.
+Il vaso si ruppe in mille pezzi. La saggezza si sparse ovunque, libera di essere condivisa con tutti. Ed è così che la gente imparò ad allevare, coltivare, tessere, costruire attrezzi di metallo e tutte le altre cose che la gente ora sa fare.
 
 ##
 * License: [CC-BY]
