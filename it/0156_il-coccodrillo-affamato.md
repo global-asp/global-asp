@@ -10,10 +10,10 @@ Cercava il cibo piano e lentamente. E poi..
 BOOM! Il coccodrillo colpì!
 
 ##
-Dopo l'attacco, non era più affamato ed era felice.
+Dopo l’attacco, non fu più affamato e fu felice.
 
 ##
-Fino a quando non gli torna la fame.
+Fino a quando non gli tornò la fame.
 
 ##
 * License: [CC-BY]
