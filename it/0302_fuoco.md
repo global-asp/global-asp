@@ -7,13 +7,13 @@ Guarda, il fuoco!
 Il fuoco brucia.
 
 ##
-il fuoco cucina.
+Il fuoco cucina.
 
 ##
-il fuoco riscalda.
+Il fuoco riscalda.
 
 ##
-il fuoco da luce.
+Il fuoco dà luce.
 
 ##
 Guarda, il fuoco!
