@@ -1,7 +1,7 @@
 # Khalai parla alle piante
 
 ##
-Questa è Khalai. Lei ha sette anni. Nella sua lingua, il Lubukusu, Il suo nome significa "quella buona".
+Questa è Khalai. Lei ha sette anni. Nella sua lingua, il lubukusu, il suo nome significa "quella buona".
 
 ##
 Khalai si sveglia e dice all'arancio: "Per favore arancio, cresci tanto e dacci tante arance mature."
@@ -13,7 +13,7 @@ Khalai va a scuola camminando. Per la via, parla all'erba. "Per favore erba, cre
 Khalai passa dei fiori selvatici. "Per favore fiori, continuate a fiorire, così posso mettervi tra i miei capelli."
 
 ##
-A scuola, Khalai parla all'albero in mezzo al parco. "Per favore albero, cresci i tuoi lunghi rami, così possiamo leggere sotto la tua ombra."
+A scuola, Khalai parla all'albero in mezzo al parco. "Per favore albero, fai crescere i tuoi lunghi rami, così possiamo leggere sotto la tua ombra."
 
 ##
 Khalai parla alla siepe intorno alla sua scuola. "Per favore, cresci forte e impedisci alle persone cattive di entrare qui."
