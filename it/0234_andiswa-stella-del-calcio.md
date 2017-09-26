@@ -10,7 +10,7 @@ Il coach si mise le mani sui fianchi "In questa scuola, solo i ragazzi possono g
 I ragazzi le dissero di andare a giocare a pallavolo. Dicevano che pallavolo era per le ragazze, mentre calcio era per i ragazzi. Andiswa era arrabbiata.
 
 ##
-Il giorno seguente, a scuola si teneva una grande partita di calcio. Il coach era preoccupato perché il suo miglio giocatore era ammalato e non poteva giocare.
+Il giorno seguente, a scuola si teneva una grande partita di calcio. Il coach era preoccupato perché il suo miglior giocatore era ammalato e non poteva giocare.
 
 ##
 Andiswa corse dal coach e lo pregò di farla giocare. Il coach non era convinto su cosa fare. Alla fine decise che Andiswa poteva far parte della squadra.
