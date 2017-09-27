@@ -7,7 +7,7 @@ Un día, el Conejo estaba caminando por la ribera.
 El Hipopótamo estaba allí también, paseando y comiendo un poco de césped verde y rico.
 
 ##
-El Hipopótamo no vio que el Conejo estaba allí y le pisó su patita por accidente. El Conejo empezó a gritarle, "¡Oye Hipopótamo! ¿Acaso no puedes ver que estás pisando mi patita?"
+El Hipopótamo no vio que el Conejo estaba allí y le pisó su patita sin querer. El Conejo empezó a gritarle, "¡Oye Hipopótamo! ¿Acaso no puedes ver que estás pisando mi patita?"
 
 ##
 El Hipopótamo le pidió disculpas al Conejo: "Lo siento mucho. No te vi. ¡Por favor, perdóname!" Pero el Conejo no le creyó y le dijo, "¡Lo hiciste a propósito! ¡Ya verás que algún día pagarás por esto!"
