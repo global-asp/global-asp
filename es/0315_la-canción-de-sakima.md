@@ -19,7 +19,7 @@ A Sakima le encantaba cantar. Un día su madre le preguntó, "¿Dónde aprendes 
 Sakima le respondió, "Simplemente llegan, madre. Las escucho en mi cabeza y después las canto."
 
 ##
-A Sakima le gustaba cantarle a su hermana pequeña, especialmente cuando ella tenía hambre. A su hermana le escuchaba cantar la canción favorita de Sakima. Y se relajaba bailando con su canción.
+A Sakima le gustaba cantarle a su hermana pequeña, especialmente cuando ella tenía hambre. Su hermana le escuchaba cantar la canción favorita de Sakima. Y se relajaba bailando con su canción.
 
 ##
 "¿Podrías cantarla una y otra vez, Sakima?", le suplicaba su hermana. Sakima asentía y le cantaba una y otra vez.
