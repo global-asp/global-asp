@@ -4,7 +4,7 @@
 Este vestido es largo.
 
 ##
-Esta chompa es grande.
+Este suéter es grande.
 
 ##
 Este bolso es grande.
