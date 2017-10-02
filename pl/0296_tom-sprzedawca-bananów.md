@@ -41,4 +41,4 @@ Tom próbuje zachować balans, gdy niesie pojemnik na głowie i zadowolony wraca
 * Text: Humphreys Odunga
 * Illustration: Zablon Alex Nguku
 * Translation: Aleksandra Migorska
-* Language: en
+* Language: pl
