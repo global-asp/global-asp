@@ -58,7 +58,7 @@ Quando il padre arrivò a prenderli, loro non volevano andarsene. I bimbi pregar
 Odongo e Apiyo la abbracciarono forte e la salutarono.
 
 ##
-Quando Odongo e Apiyo tornarono a scuola, raccontarono i loro amici della vita nel villaggio. Alcuni bambini pensarono che la vita in città fosse bella. Altri pensarono che il villaggio fosse meglio. Ma soprattutto, tutti concordarono sul fatto che Odongo e Apiyo avessero una nonna fantastica!
+Quando Odongo e Apiyo tornarono a scuola, raccontarono ai loro amici della vita nel villaggio. Alcuni bambini pensarono che la vita in città fosse bella. Altri pensarono che il villaggio fosse meglio. Ma soprattutto, tutti concordarono sul fatto che Odongo e Apiyo avessero una nonna fantastica!
 
 ##
 * License: [CC-BY]
