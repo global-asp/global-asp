@@ -46,7 +46,7 @@ Una mujer dijo, "Las mujeres pueden reunirse conmigo para cultivar alimentos."
 Otro hombre se puso de pie y dijo, "Los hombres construiremos un pozo."
 
 ##
-Todos juntos gritamos a una voz, "Nosotros debemos cambiar nuestras vidas." Y desde ese día, todos trabajábamos juntos para solucionar nuestros problemas.
+Todos juntos gritamos a una voz, "Nosotros debemos cambiar nuestras vidas." Y desde ese día, todos trabajamos juntos para solucionar nuestros problemas.
 
 ##
 * License: [CC-BY]
