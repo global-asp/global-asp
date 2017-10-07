@@ -28,7 +28,7 @@ Simbegwire estaba muy enfadada. Ella decidió irse de su casa. Tomó los pedazos
 Cuando atardeció, Simbegwire se trepó a un árbol muy alto que estaba cerca de un riachuelo e hizo una cama en sus ramas. Mientras se quedaba dormida, ella cantaba: "Maamá, maamá, maamá, me abandonaste. Me abandonaste y nunca regresaste. Mi padre ya no me ama. Madre, ¿cuándo regresarás? Me abandonaste."
 
 ##
-A la mañana siguiente, Simbegwire cantó una vez más. Cuando unas mujeres vinieron a iban a lavar sus ropas en el riachuelo, escucharon la triste canción que venía de lo alto del árbol. Pensaron que sólo era el viento moviendo las hojas, y siguieron con su trabajo. Pero una de las mujeres le puso más atención a la canción. 
+A la mañana siguiente, Simbegwire cantó una vez más. Cuando unas mujeres vinieron a lavar sus ropas en el riachuelo, escucharon la triste canción que venía de lo alto del árbol. Pensaron que sólo era el viento moviendo las hojas, y siguieron con su trabajo. Pero una de las mujeres le puso más atención a la canción. 
 
 ##
 Esta mujer miró hacia arriba del árbol. Cuando vio a la niña con su manta en pedazos, gritó, "¡Simbegwire, la hija de mi hermano!" Las otras mujeres dejaron de lavar y ayudaron a Simbegwire a bajar del árbol. Su tía la abrazó y trató de consolarla.
