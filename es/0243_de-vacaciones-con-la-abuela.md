@@ -4,7 +4,7 @@
 Odongo y Apiyo vivían en la ciudad con su padre. Esperaban con ansias sus vacaciones. No sólo porque cerraban la escuela, sino porque iban a visitar a su abuela. Ella vivía en una aldea de pescadores cerca de un gran lago.
 
 ##
-Odongo y Apiyo estaban emocionadas con la idea de visitar de nuevo a su abuela. La noche antes del viaje, empacaron sus cosas y dejaron todo listo para irse a la aldea. No pudieron dormir y se quedaron toda la noche hablando sobre sus vacaciones.
+Odongo y Apiyo estaban emocionados con la idea de visitar de nuevo a su abuela. La noche antes del viaje, empacaron sus cosas y dejaron todo listo para irse a la aldea. No pudieron dormir y se quedaron toda la noche hablando sobre sus vacaciones.
 
 ##
 Temprano a la mañana siguiente, salieron de viaje a la aldea en el auto de su padre. Pasaron por las montañas y vieron animales salvajes y plantaciones de té. Contaron autos y cantaron canciones.
