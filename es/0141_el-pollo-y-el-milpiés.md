@@ -10,7 +10,7 @@ Fueron a la cancha de fútbol y comenzaron a jugar. El Pollo era rápido, pero M
 Decidieron hacer un lanzamiento de penal. Milpiés fue el primer portero y el Pollo anotó sólo un gol. Enseguida le tocó al Pollo ser portero.
 
 ##
-Milpiés lanzó el balón e hizo un gol. Milpiés dribló el balón y anotó. Milpiés cabeceó el balón y anotó. Milpiés anotó cinco goles.
+Milpiés lanzó el balón e anotó un gol. Milpiés dribló el balón y anotó. Milpiés cabeceó el balón y anotó. Milpiés anotó cinco goles.
 
 ##
 El Pollo estaba furioso por haber perdido. Era un mal perdedor. Milpiés se empezó a reír porque su amigo estaba armando un escándalo.
