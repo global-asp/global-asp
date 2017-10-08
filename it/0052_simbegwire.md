@@ -37,7 +37,7 @@ La donna guardò sull'albero. Quando vide la bambina e pezzi della coperta color
 La zia di Simbegwire portò la bambina a casa con sé. Diede a Simbegwire cibo caldo e le rimboccò le coperte a letto lasciandole la copertina della mamma. Quella notte, Simbegwire pianse quando andò a letto. Ma erano lacrime di sollievo. Sapeva che sua zia si sarebbe presa cura di lei.
 
 ##
-Quando il padre di Simbegwire tornò a casa, trovo la sua cameretta vuota. "Cosa è successo Anita?" Chiese con il cuore pesante. La donna spiegò che Simbegwire era scappata via. " Volevo che mi rispettasse" Disse. "Ma forse sono stata troppo severa." Il papà di Simbegwire lasciò casa e andò in direzione del ruscello. Raggiunse il villaggio della sorella e scoprì che lei aveva visto Simbegwire.
+Quando il padre di Simbegwire tornò a casa, trovo la sua cameretta vuota. "Cosa è successo Anita?" Chiese con il cuore pesante. La donna spiegò che Simbegwire era scappata via. "Volevo che mi rispettasse" Disse. "Ma forse sono stata troppo severa." Il papà di Simbegwire lasciò casa e andò in direzione del ruscello. Raggiunse il villaggio della sorella e scoprì che lei aveva visto Simbegwire.
 
 ##
 Simbegwire stava giocando con i suoi cuginetti quando vide suo padre da lontano. Aveva paura che fosse arrabbiato, quindi corse in casa per nascondersi. Ma il padre andò da lei e le disse "Simbegwire, tu hai trovato la madre perfetta per te. Una che ti ama e ti capisce. Sono fiero di te e ti voglio bene." Concordarono che Simbegwire sarebbe rimasta con sua zia per quanto avrebbe voluto.
