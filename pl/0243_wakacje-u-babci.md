@@ -34,7 +34,7 @@ Po zmroku wrócili do domu na kolację i zanim skończyli jeść już usypiali!
 Następnego dnia ich ojciec wrócił do miasta zostawiając swoje dzieci z babcią Nyar-Kanyada.
 
 ##
-Ondogo i Apiyo pomogli babci w pracach  wokół domu. Przynieśli wodę i drewno na ogień. Zebrali jajka od kur i zebrali warzywa z ogrodu.
+Ondogo i Apiyo pomogli babci w pracach wokół domu. Przynieśli wodę i drewno na ogień. Zebrali jajka od kur i zebrali warzywa z ogrodu.
 
 ##
 Nyar-Kanyada nauczyła wnuki jak przyrządzić delikatne ugali, aby jeść je z gulaszem. Pokazała im też jak zrobić ryż kokosowy z pieczoną rybą.
