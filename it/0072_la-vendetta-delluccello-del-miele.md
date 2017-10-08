@@ -10,7 +10,7 @@ Dopo mezz'ora, raggiunsero un grosso albero di fichi selvatici. Ngede saltò sui
 Così, Gingile appoggiò la sua lancia sotto l'albero, raccolse un po' di rami secchi e fece un piccolo fuoco. Quando il fuoco iniziò a bruciare bene, mise un lungo ramo secco nel centro. Quel tipo di legno era ben noto per la quantità di fumo che produceva al bruciare. Gingile cominciò a scalare con il legnetto fumante fra i denti.
 
 ##
-Presto riuscì a sentire il forte ronzare delle api lavoratrici. Uscivano ed entravano nella cavità dell'albero. Quando Gingile raggiunse l'alveare, vi spinse il legnetto fumante dentro. Le api si affrettarono ad uscire, arrabbiatissime! Volarono via perché a loro non piaceva il fumo - ma non prima di aver punto Gingile malamente!.
+Presto riuscì a sentire il forte ronzare delle api lavoratrici. Uscivano ed entravano nella cavità dell'albero. Quando Gingile raggiunse l'alveare, vi spinse il legnetto fumante dentro. Le api si affrettarono ad uscire, arrabbiatissime! Volarono via perché a loro non piaceva il fumo - ma non prima di aver punto Gingile malamente!
 
 ##
 Quando le api se ne andarono, Gingile mise le mani nel nido. Le tirò fuori piene di pesante favo, gocciolante di dolcissimo miele e piene di grosse e bianche larve. Con cautela, mise il favo nella sacca che portava sulle spalle e cominciò a scendere dall'albero.
