@@ -43,7 +43,7 @@ Quando il padre di Simbegwire tornò a casa, trovo la sua cameretta vuota. "Cosa
 Simbegwire stava giocando con i suoi cuginetti quando vide suo padre da lontano. Aveva paura che fosse arrabbiato, quindi corse in casa per nascondersi. Ma il padre andò da lei e le disse "Simbegwire, tu hai trovato la madre perfetta per te. Una che ti ama e ti capisce. Sono fiero di  te e ti voglio bene." Concordarono che Simbegwire sarebbe rimasta con sua zia per quanto avrebbe voluto.
 
 ##
-Suo padre la visitò ogni giorno. Una volta venne con Anita. Lei prese la mano di Simbegwire. "Ti chiedo scusa piccolina, mi sbagliavo." Pianse "Mi daresti un'altra possibilità?" Simbegwire guardò suo padre e la sua faccia preoccupata. Poi, lentamente, fece un passo verso Anita e la abbracciò.
+Suo padre la visitò ogni giorno. Una volta venne con Anita. Lei prese la mano di Simbegwire. "Ti chiedo scusa piccolina, mi sbagliavo," pianse. "Mi daresti un'altra possibilità?" Simbegwire guardò suo padre e la sua faccia preoccupata. Poi, lentamente, fece un passo verso Anita e la abbracciò.
 
 ##
 La settimana seguente, Anita invitò Simbegwire a casa, insieme a sua zia e i suoi cugini, per una cena. Che festa! Anita preparò tutte le pietanze preferite di Simbegwire e tutti mangiarono a sazietà. Dopo, i bambini giocavano mentre i grandi parlavano. Simbegwire si sentì felice e coraggiosa. Decise che presto, molto presto, sarebbe tornata a casa per vivere con suo padre e la sua matrigna.
