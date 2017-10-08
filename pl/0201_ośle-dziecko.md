@@ -43,7 +43,7 @@ Osiołek obudził się i zauważył staruszka, który mu się przyglądał.Gdy s
 Osiołek zamieszkał ze staruszkiem, który nauczył go jak przeżyć. Osiołek słuchał i uczył się od staruszka, a staruszek od osiołka. Pomagali sobie i często się śmiali.
 
 ##
-Pewnego ranka , staruszek poprosił osiołka, aby ten zaniósł go na szczyt góry.
+Pewnego ranka, staruszek poprosił osiołka, aby ten zaniósł go na szczyt góry.
 
 ##
 Wysoko pośród chmur obaj usnęli. Osiołek śnił o matce, która była ciężko chora i wzywała go. Gdy się zbudził...
