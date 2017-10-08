@@ -7,7 +7,7 @@ In un villaggio sulle colline del monte Kenya nel Africa dell' Est, una bambina 
 Wangari adorava stare all'aria aperta. Nel suo orto di famiglia rompeva il terreno con il suo machete e schiacciava piccoli semini nel suo caldo suolo.
 
 ##
-Il suo momento preferito della giornata era subito dopo il tramonto. Quando diventava troppo buio per vedere le piante, Wangari  sapeva che era ora di tornare a casa. Seguiva il sentiero tracciato attraverso i campi, attraversando i suoi fiumi.
+Il suo momento preferito della giornata era subito dopo il tramonto. Quando diventava troppo buio per vedere le piante, Wangari sapeva che era ora di tornare a casa. Seguiva il sentiero tracciato attraverso i campi, attraversando i suoi fiumi.
 
 ##
 Wangari era una ragazza intelligente e non vedeva l'ora di andare a scuola. Ma sua madre e suo padre volevano che rimanesse a casa ad aiutarli. Quando compì sette anni, suo fratello maggiore persuase i suoi genitori a lasciarla andare a scuola.
