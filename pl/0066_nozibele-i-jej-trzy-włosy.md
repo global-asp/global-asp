@@ -19,7 +19,7 @@ Mimo to, Nozibele wróciła nad rzekę sama. Znalazła naszyjnik i pospiesznie z
 Nieopodal zauważyła światło dobiegające z jakiejś chatki. Przyśpieszyła kroku i zapukała do drzwi chatki.
 
 ##
-Ku jej zdziwieniu, drzwi otworzył pies i zapytał: "Czego chcesz?" "Zgubiłam się i muszę gdzieś przenocować" - odpowiedziała Nozibele. " Wejdź, bo jak nie, to będę gryzł!" Nozibele posłusznie weszła do środka.
+Ku jej zdziwieniu, drzwi otworzył pies i zapytał: "Czego chcesz?" "Zgubiłam się i muszę gdzieś przenocować" - odpowiedziała Nozibele. "Wejdź, bo jak nie, to będę gryzł!" Nozibele posłusznie weszła do środka.
 
 ##
 "Ugotuj dla mnie" - rozkazał pies. "Ale ja nigdy nie gotowałam dla psa" - odpowiedziała dziewczynka. "Gotuj, bo jak nie, to będę gryzł!" Więc Nozibele ugotowała dla psa.
