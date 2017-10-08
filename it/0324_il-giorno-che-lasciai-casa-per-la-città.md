@@ -1,7 +1,7 @@
 # Il giorno che lasciai casa per la città
 
 ##
-La piccola fermata d'autobus nel mio villaggio era molto movimentata, con tanta gente e autobus stracarichi. Per terra c'erano addirittura altre valigie e bagagli da caricare. I  bagarini urlavano le destinazioni degli autobus.
+La piccola fermata d'autobus nel mio villaggio era molto movimentata, con tanta gente e autobus stracarichi. Per terra c'erano addirittura altre valigie e bagagli da caricare. I bagarini urlavano le destinazioni degli autobus.
 
 ##
 "Città! Città! Direzione West!" Udii un bagarino urlare. Quello era l'autobus che dovevo prendere.
