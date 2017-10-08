@@ -19,7 +19,7 @@ Kierowca był tym bardzo poirytowany. Odjechał nie dając Psu reszty.
 I właśnie dlatego do dziś Pies biega za samochodami, aby zajrzeć do środka w poszukiwaniu kierowcy, który jest mu winien resztę pieniędzy.
 
 ##
-Koza ucieka od dźwięku pojazdów, bo boi się, że ją aresztują za to, 	że nie zapłaciła swojej części.
+Koza ucieka od dźwięku pojazdów, bo boi się, że ją aresztują za to, że nie zapłaciła swojej części.
 
 ##
 Za to Krowie nie przeszkadzają auta, które ją mijają. Krowa nie spieszy się, gdy przechodzi przez jezdnię, bo zapłaciła wtedy swoją część co do grosika.
