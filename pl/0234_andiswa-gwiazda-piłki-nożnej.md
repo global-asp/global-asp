@@ -1,4 +1,4 @@
-# Andiswa - Gwiazda Piłki Nożnej
+# Andiswa – Gwiazda Piłki Nożnej
 
 ##
 Andiswa przyglądała się chłopcom, którzy grali w nogę. Zawsze chciała do nich dołączyć. Zapytała trenera czy może z nimi pograć.
