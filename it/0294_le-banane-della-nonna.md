@@ -4,7 +4,7 @@
 Il giardino della nonna era magnifico, pieno di saggina, miglio e manioca. Ma il meglio di tutto erano le banane. Anche se la nonna aveva tanti nipotini io in fondo sapevo di essere la sua preferita. Mi invitava spesso a casa sua. Mi diceva anche piccoli segreti. Ma c'era un segreto che non condivideva con me: dove maturava le banane.
 
 ##
-Un giorno vidi un grosso cesto in vimini messo al sole fuori da casa della nonna. Quando gli chiesi per cosa fosse l'unica risposta che ottenni fu "è il mio cesto magico." Di fianco al cesto c'erano diverse foglie di banana che nonna rigirava di tanto in tanto. Ero curiosa. " A che cosa servono le foglie nonna?" Chiesi. L'unica risposta che ricevetti fu: "sono le mie foglie magiche."
+Un giorno vidi un grosso cesto in vimini messo al sole fuori da casa della nonna. Quando gli chiesi per cosa fosse l'unica risposta che ottenni fu "è il mio cesto magico." Di fianco al cesto c'erano diverse foglie di banana che nonna rigirava di tanto in tanto. Ero curiosa. "A che cosa servono le foglie nonna?" Chiesi. L'unica risposta che ricevetti fu: "sono le mie foglie magiche."
 
 ##
 Era così interessante guardare nonna, le banane, le foglie di banano e il grande cesto in vimini. Ma nonna mi mandò da mia madre per una commissione. "Nonna, per favore, lasciami guardare mentre prepari.." "Non essere testarda, bambina, fai come ti viene detto" Insistette lei. E io corsi via.
