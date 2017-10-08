@@ -22,13 +22,13 @@ Quando l'ultimo uccello restituì l'ago prestato, Gallina non c'era. Perciò i s
 Quel pomeriggio, Aquila tornò. Chiese l'ago perché doveva sistemare delle piume che si erano staccate durante il volo. Gallina guardò sulla mensola. Cercò in cucina Guardò nel cortile. Ma l'ago non era da nessuna parte.
 
 ##
-"Dammi solo un giorno" Implorò Gallina: "Poi potrai aggiustare la tua ala e volare di nuovo a prendere del cibo."  "Solo un altro giorno!" Rispose Aquila. "Se non riesci a trovare l'ago, mi dovrai dare uno dei tuoi pulcini come pagamento."
+"Dammi solo un giorno" Implorò Gallina: "Poi potrai aggiustare la tua ala e volare di nuovo a prendere del cibo." "Solo un altro giorno!" Rispose Aquila. "Se non riesci a trovare l'ago, mi dovrai dare uno dei tuoi pulcini come pagamento."
 
 ##
 Quando Aquila tornò il giorno dopo, trovò Gallina a raspare nella sabbia, ma nessun ago. Aquila volò basso velocissima e acchiappò uno dei pulcini. Ed è per questo che ora, ogni volta che Aquila appare, trova Gallina a raspare nella sabbia in cerca dell'ago.
 
 ##
-Appena l'ombra delle ali di Aquila si proietta sul suolo, Gallina avvisa i suoi pulcini. "State alla larga dalla terra secca e spiazzata!" E loro rispondono:  "Non siamo sciocchi. Scapperemo"
+Appena l'ombra delle ali di Aquila si proietta sul suolo, Gallina avvisa i suoi pulcini. "State alla larga dalla terra secca e spiazzata!" E loro rispondono: "Non siamo sciocchi. Scapperemo"
 
 ##
 * License: [CC-BY]
