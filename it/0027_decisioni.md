@@ -34,7 +34,7 @@ Mio padre andò di casa in casa chiedendo alla gente di partecipare alla riunion
 La gente si riunì sotto un grande albero e ascoltò.
 
 ##
-Mio padre si alzò e disse "Dobbiamo lavorare insieme per risolvere i nostri  problemi."
+Mio padre si alzò e disse "Dobbiamo lavorare insieme per risolvere i nostri problemi."
 
 ##
 Una bimba di otto anni di nome Juma, che sedeva su un ramo, urlò: "Io posso aiutare a pulire."
