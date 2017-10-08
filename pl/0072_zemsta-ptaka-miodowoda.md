@@ -4,13 +4,13 @@
 Oto historia o ptaku miodowodzie Ngede oraz o skąpcu Gingile. Gdy pewnego dnia Gingile polował, nagle usłyszał śpiew Ngede. Skąpcowi na samą myśl o miodzie poleciała ślina. Zatrzymał się i nasłuchiwał, aż ptak pokazał się tuż nad głową skąpca - w gałęziach drzew. „Ćwir, ćwir, ćwir" śpiewał miodowód i przeskakiwał z jednego drzewa na kolejne, przerywając od czasu do czasu, aby upewnić się, że Gingile za nim podąża.
 
 ##
-Po około pół godzinie dotarli do ogromnego drzewa figowego. Między gęstymi konarami Ngede skakał jak oszalały i kiedy nagle usadowił się na jednej z gałęzi, przechylił głowę w stronę Gingila tak jakby chciał  powiedzieć: „To już tutaj! Na co Ty czekasz?!" Gingile nie widział  jeszcze pszczół , ale ufał ptakowi.
+Po około pół godzinie dotarli do ogromnego drzewa figowego. Między gęstymi konarami Ngede skakał jak oszalały i kiedy nagle usadowił się na jednej z gałęzi, przechylił głowę w stronę Gingila tak jakby chciał powiedzieć: „To już tutaj! Na co Ty czekasz?!" Gingile nie widział jeszcze pszczół , ale ufał ptakowi.
 
 ##
 Gingile odłożył swoją włócznie, zebrał pare fig i rozpalił małe ognisko. Kiedy już ognisko było dobrze rozpalone, Gingile włożył suchy długi kij w sam środek ognia. A ponieważ było to wyjątkowo dymne drewno, włożył dymiący się kij w zęby i zaczął wspinać się na drzewo.
 
 ##
-Już słyszał głośne bzyczenie pracowitych pszczół, które wlatywały  i wylatywały z dziupli z ulem w pościechu. Kiedy Gingile wepchnął dymiący sie kij do ula, pszczoły zaczęły latać jak oszalałe! Odleciały, bo nie lubią dymu, ale przedtem kilka z nich boleśnie urządliły skąpca.
+Już słyszał głośne bzyczenie pracowitych pszczół, które wlatywały i wylatywały z dziupli z ulem w pościechu. Kiedy Gingile wepchnął dymiący sie kij do ula, pszczoły zaczęły latać jak oszalałe! Odleciały, bo nie lubią dymu, ale przedtem kilka z nich boleśnie urządliły skąpca.
 
 ##
 Kiedy pszczoły opuściły ul, włożył rękę do środka i wyjął ciężki płat ociekający miodem. Ostrożnie włożył płat do torby, którą miał ze sobą i zaczął schodzić z drzewa.
