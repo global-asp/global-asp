@@ -10,7 +10,7 @@ Nella strada per la casa dei genitori, Vusi incontrò due ragazzi che raccogliev
 "Che cosa hai fatto?" Pianse Vusi. "Quell'uovo era per una torta! la torta era per il matrimonio di mia sorella. Che cosa farà lei ora senza torta di matrimonio?"
 
 ##
-I ragazzi si sentirono in colpa per aver stuzzicato Vusi. " Non possiamo aiutarti con la torta, ma prendi questo bastone da passeggio per tua sorella." Disse uno. Vusi continuò per il suo cammino.
+I ragazzi si sentirono in colpa per aver stuzzicato Vusi. "Non possiamo aiutarti con la torta, ma prendi questo bastone da passeggio per tua sorella." Disse uno. Vusi continuò per il suo cammino.
 
 ##
 Per la strada incontrò due uomini che stavano costruendo una casa. "Possiamo usare quel bastone robusto?" chiese uno. Ma il bastone non era abbastanza robusto per costruire e si ruppe.
