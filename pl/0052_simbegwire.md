@@ -31,7 +31,7 @@ Kiedy nadszedł wieczór, wspięła się na wysokie drzewo, niedalego strumyczka
 Następnego ranka, Simbegwire znów nuciła swoją piosenkę. Kobiety, które właśnie przyszły uprać swoje ubrania nad strumyczkiem, usłyszały smutną piosenkę dobiegającą z wysokiego drzewa. Pomyślały, że to tylko liście szeleszczą, na wietrze i dalej pracowały, lecz jedna z kobiet ostrożnie przysłuchiwała się pieśni.
 
 ##
-Gdy ta kobieta spojrzała w górę, na drzewo -  ujrzała dziewczynkę i jej potargany kocyk. „Simbegwire, córeczko mojego brata!" zapłakała. Druga kobieta przestała prać i pomogła Simbegwire zejść z drzewa. Ciotka utuliła dziewczynkę i próbowała ją uspokoić.
+Gdy ta kobieta spojrzała w górę, na drzewo - ujrzała dziewczynkę i jej potargany kocyk. „Simbegwire, córeczko mojego brata!" zapłakała. Druga kobieta przestała prać i pomogła Simbegwire zejść z drzewa. Ciotka utuliła dziewczynkę i próbowała ją uspokoić.
 
 ##
 Zabrała dziewczynkę do swojego domu, gdzie ją nakarmiła i ułożyła do łóżka z kocykiem matki. Tej nocy Simbegwire płakała przed zaśnięciem, ale były to łzy ukojenia. Wiedziała, ze ciotka dobrze się nią zaopiekuje.
@@ -40,7 +40,7 @@ Zabrała dziewczynkę do swojego domu, gdzie ją nakarmiła i ułożyła do łó
 Kiedy ojciec wrócił do domu, zastał pokój dziewczynki pusty. „Co się stało Anito?" zapytał z ciężkim sercem. Kobieta wytłumaczyła mu, ze córka uciekła. „Chciałam aby mnie szanowała", odpowiedziała, „ale możliwe, że byłam zbyt surowa." Ojciec Simbegwire wyszedł z domu i udał się w kierunku strumyczka. Potem poszedł w kierunku wioski, gdzie mieszkała jego siostra, by dowiedzieć się czy może ona widziała Simbegwire.
 
 ##
-Simbegwire bawiła się z kuzynem, gdy z daleka zauważyła tatę. Przestraszyła się, że może ojciec jest na nią zły i ukryła się w domu. Lecz ojciec rzekł: „Simbegwire, nie znalazłem Ci idealnej matki. Takiej, która by Cię kochała i rozumiała. Ja natomiast jestem z Ciebie bardzo  dumny i kocham Cię." Ustalili, że Simbegwire zostanie z ciotką tak długo jak tylko zechce.
+Simbegwire bawiła się z kuzynem, gdy z daleka zauważyła tatę. Przestraszyła się, że może ojciec jest na nią zły i ukryła się w domu. Lecz ojciec rzekł: „Simbegwire, nie znalazłem Ci idealnej matki. Takiej, która by Cię kochała i rozumiała. Ja natomiast jestem z Ciebie bardzo dumny i kocham Cię." Ustalili, że Simbegwire zostanie z ciotką tak długo jak tylko zechce.
 
 ##
 Ojciec odwiedział ją codziennie, aż kiedyś przyszedł z Anitą. Kobieta wyciągnęła dłoń w stronę dziewczynki i powiedziała: „Jest mi tak przykro dziecinko, myliłam się," płakała. „Czy dasz mi jeszcze jedną szanse?" Simbegwire spojrzała na zatroskaną twarz ojca, po czym powoli podeszła do Anity i przytuliła sie do niej.
