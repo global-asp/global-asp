@@ -4,7 +4,7 @@
 Ogród babci był wspaniały, pełen sorgo, proso, manioki. Jednak najlepsze były banany. I mimo, że babcia miała wiele wnucząt, czułam, że byłam jej ulubienicą. Często zapraszała mnie do domu. Ale był jeden sekret, którym się ze mną nie podzieliła: gdzie dojrzewały banany.
 
 ##
-Pewnego dnia zauważyłam duży słomiany kosz stojący w słońcu na zewnątrz. Kiedy zapytałam co tam  jest, babcia tylko powiedziała, że jest to magiczny kosz. Obok kosza było kilka liści bananowca, które babcia obracała od czasu do czasu. Byłam ciekawa: „po co te liście babciu?" Jedyne co babcia odpowiadała to: „to moje magiczne liście."
+Pewnego dnia zauważyłam duży słomiany kosz stojący w słońcu na zewnątrz. Kiedy zapytałam co tam jest, babcia tylko powiedziała, że jest to magiczny kosz. Obok kosza było kilka liści bananowca, które babcia obracała od czasu do czasu. Byłam ciekawa: „po co te liście babciu?" Jedyne co babcia odpowiadała to: „to moje magiczne liście."
 
 ##
 Oglądanie babci z bananami, z liśćmi i z dużym słomianym koszem było intrygujące. Ale babcia wysłała mnie do mamy. „Babciu, proszę pozwól mi patrzeć jak przygotowujesz..." „Nie bądź uparta dziecko, zrób jak mówię." - rozkazała babcia. Postanowiłam biec.
