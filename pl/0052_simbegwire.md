@@ -52,5 +52,5 @@ Kolejnego tygodnia, Anita zaprosiła Simbegwire wraz z ciotką i kuzynami do dom
 * License: [CC-BY]
 * Text: Rukia Nantale
 * Illustration: Benjamin Mitchley
-* Translation: Aleks M.
-* Language: Polish language
+* Translation: Aleksandra Migorska
+* Language: pl
