@@ -1,4 +1,4 @@
-# Tom - sprzedawca bananów
+# Tom – sprzedawca bananów
 
 ##
 Tom niesie pojemnik z dojrzałymi bananami.
