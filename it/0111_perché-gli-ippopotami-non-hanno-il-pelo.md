@@ -16,7 +16,7 @@ Ippopotamo si scusò con Coniglio. "Mi dispiace, non ti ho visto. Per favore, pe
 Coniglio andò a cercare Fuoco e disse "Vai a bruciare Ippopotamo quando esce dall'acqua per mangiare l'erba. Mi ha schiacciato il piede!" Fuoco rispose: "Non c'è problema Coniglio, mio amico. Farò quello che mi hai chiesto."
 
 ##
-Più tardi, Ippopotamo stava mangiando l'erba lontano dal fiume quando.. "Whoosh!" Fuoco esplose in mille fiamme. Le fiamme incominciarono a bruciare il pelo di Ippopotamo.
+Più tardi, Ippopotamo stava mangiando l'erba lontano dal fiume quando: "Whoosh!" Fuoco esplose in mille fiamme. Le fiamme incominciarono a bruciare il pelo di Ippopotamo.
 
 ##
 Ippopotamo cominciò a piangere e corse in acqua. Il suo pelo si era bruciato tutto con il fuoco. Ippopotamo continuò a piangere "Il mio pelo si è bruciato col fuoco! Il mio pelo è sparito! Il mio bellissimo pelo!"
