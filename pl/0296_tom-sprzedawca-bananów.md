@@ -10,7 +10,7 @@ Tom idzie sprzedać banany.
 Ludzie na bazarku kupują różne owoce.
 
 ##
-Ale nikt nie kupuje bananów Tom'a. Ludzie wolą kupować od kobiet.
+Ale nikt nie kupuje bananów Toma. Ludzie wolą kupować od kobiet.
 
 ##
 Ludzie mówią, że "u nas tylko kobiety sprzedają owoce. Od kiedy to facet sprzedaje owoce?"
@@ -25,7 +25,7 @@ Nagle jedna z kobiet podchodzi bliżej i zaczyna dokładnie oglądać pęczek ba
 Kobieta postanawia kupić te banany.
 
 ##
-Więcej osób zaczyna kupować banany Tom'a.
+Więcej osób zaczyna kupować banany Toma.
 
 ##
 Po pewnym czasie, okazuje się, że Tom sprzedał wszystkie banany i liczy pieniądzie, które zarobił.
