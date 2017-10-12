@@ -7,7 +7,7 @@ Jeden słoń zamierza pić wodę.
 Dwie żyrafy zamierzają pić wodę.
 
 ##
-Trzy bawoły i cztery ptaki rownież zamierzają pić wodę.
+Trzy bawoły i cztery ptaki również zamierzają pić wodę.
 
 ##
 Pięć antylop i sześć dzików podchodzą do wodopoju.
