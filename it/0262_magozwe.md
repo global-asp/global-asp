@@ -26,7 +26,7 @@ Faceva freddo e Magozwe era in mezzo alla strada a mendicare. Un uomo si avvicin
 Col passare dei mesi, i ragazzi senzatetto si abituarono a vedere Thomas in giro. Gli piaceva parlare con la gente di strada. Thomas ascoltava le storie di vita della gente. Era serio e paziente, mai maleducato e irrispettoso. Alcuni dei ragazzi cominciarono ad andare alla casa gialla dal tetto blu per mangiare a mezzogiorno.
 
 ##
-Magozwe era seduto sul pavimento a guardare il suo libro di figure, quando Thomas si sedette di fianco a lui. "Di che parla la storia?" Chiese. "Di un ragazzo che diventa un pilota" Rispose Magozwe. "Qual è il nome del ragazzo?" Chiese Thomas "Non lo so, non so leggere" Disse Magozwe sottovoce.
+Magozwe era seduto sul pavimento a guardare il suo libro di figure, quando Thomas si sedette di fianco a lui. "Di che parla la storia?" Chiese. "Di un ragazzo che diventa un pilota," rispose Magozwe. "Qual è il nome del ragazzo?" Chiese Thomas "Non lo so, non so leggere," disse Magozwe sottovoce.
 
 ##
 Quando si conobbero, Magozwe cominciò a raccontare la propria storia a Thomas. La storia di suo zio e di come lui scappò via. Thomas non parlò molto e non disse a Magozwe cosa fare, ma lui ascoltò sempre attentamente. Alcune volte parlavano mentre mangiavano nella casa dal tetto blu.
@@ -35,7 +35,7 @@ Quando si conobbero, Magozwe cominciò a raccontare la propria storia a Thomas. 
 Intorno al decimo compleanno di Magozwe, Thomas gli regalò un nuovo libro di storie. Era la storia di un ragazzo di villaggio che crebbe per diventare un famoso calciatore. Thomas gli lesse la storia tante volte, fino a che un giorno disse: "Credo sia ora che tu vada a scuola e impari a leggere. Che ne dici?" Thomas spiegò che lui conosceva un posto dove i bimbi potevano vivere e andare a scuola.
 
 ##
-Magozwe pensò a questo posto nuovo e al fatto di andare a scuola. E se suo zio avesse ragione? Se lui fosse davvero troppo stupido per imparare qualcosa? E se lo avessero picchiato in questo nuovo posto? Era spaventato. "Forse è meglio che rimanga a vivere per strada" Pensò.
+Magozwe pensò a questo posto nuovo e al fatto di andare a scuola. E se suo zio avesse ragione? Se lui fosse davvero troppo stupido per imparare qualcosa? E se lo avessero picchiato in questo nuovo posto? Era spaventato. "Forse è meglio che rimanga a vivere per strada," pensò.
 
 ##
 Condivise le sue paure con Thomas. Con il tempo, l'uomo rassicurò il ragazzo sul fatto che la vita sarebbe stata migliore in quel posto nuovo.
@@ -47,7 +47,7 @@ Così, Magozwe si trasferì in una stanza in una casa dal tetto verde. Condivise
 Magozwe cominciò ad andare a scuola, ed era difficile. Doveva recuperare molto. A volte avrebbe voluto arrendersi. Ma poi pensò al pilota e al calciatore delle storie. Come loro, non si arrese.
 
 ##
-Magozwe era seduto nel giardino della casa dal tetto verde, a leggere un libro di storie della scuola. Thomas lo raggiunse e si sedette di fianco a lui. "Di che parla la storia?" Chiese Thomas. "Di un ragazzo che diventa insegnante." Rispose Magozwe. "Come si chiama il ragazzo?" Chiese Thomas. "Il suo nome è Magozwe." disse Magozwe sorridendo.
+Magozwe era seduto nel giardino della casa dal tetto verde, a leggere un libro di storie della scuola. Thomas lo raggiunse e si sedette di fianco a lui. "Di che parla la storia?" Chiese Thomas. "Di un ragazzo che diventa insegnante," rispose Magozwe. "Come si chiama il ragazzo?" Chiese Thomas. "Il suo nome è Magozwe," disse Magozwe sorridendo.
 
 ##
 * License: [CC-BY]
