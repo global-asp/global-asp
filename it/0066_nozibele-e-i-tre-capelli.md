@@ -37,7 +37,7 @@ Appena il cane se ne andò, Nozibele si strappò tre capelli dalla testa. Ne mis
 Quando il cane tornò, cercò Nozibele. "Nozibele, dove sei?" gridò "Sono qui, sotto il letto." Disse il primo capello "Sono qui, dietro la porta." Disse il secondo capello "Sono qui, nel recinto," disse il terzo capello.
 
 ##
-Il cane capì che Nozibele l'aveva fregato. Così corse al villaggio. Ma I fratelli di Nozibele lo stavano aspettando con dei grandi bastoni. Il cane scappò e non lo rividero mai più.
+Il cane capì che Nozibele l'aveva fregato. Così corse al villaggio. Ma i fratelli di Nozibele lo stavano aspettando con dei grandi bastoni. Il cane scappò e non lo rividero mai più.
 
 ##
 * License: [CC-BY]
