@@ -16,7 +16,7 @@ Dopo un po', i bambini erano stanchi e si addormentarono.
 Papà svegliò Odongo e Apiyo appena arrivarono al villaggio. Trovarono Nyar-Kanyada, la loro nonna, mentre riposava su un tappeto sotto un albero. Nyar-Kanyada in Luo significa "Figlia della gente di Kanyada". Era una donna forte e bellissima.
 
 ##
-Nyar-Kanyada diede loro il benvenuto nella sua casa e ballò intorno alla stanza cantando con gioia. I suoi nipotini erano emozionati di darle regali che le avevano portato dalla città. "Prima apri il mio regalo" Disse Odongo. "No, prima il mio!" disse Apiyo.
+Nyar-Kanyada diede loro il benvenuto nella sua casa e ballò intorno alla stanza cantando con gioia. I suoi nipotini erano emozionati di darle regali che le avevano portato dalla città. "Prima apri il mio regalo," disse Odongo. "No, prima il mio!" disse Apiyo.
 
 ##
 Dopo che aprì i regali, Nyar-Kanyada benedì i suoi nipotini nel modo tradizionale.
