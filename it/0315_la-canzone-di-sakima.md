@@ -31,7 +31,7 @@ Una sera, Quando i suoi genitori tornarono a casa, erano molto silenziosi. Sakim
 "Cosa succede, Mamma, Papà?" Chiese Sakima. Sakima scoprì che il figlio dell'uomo ricco era scomparso. L'uomo era molto triste e solo.
 
 ##
-"Io posso cantare per lui, potrebbe renderlo felice di nuovo" Disse Sakima ai suoi genitori. Ma i suoi genitori lo destituirono. "Lui è molto ricco, tu sei solo un ragazzo cieco. Pensi che la tua canzone lo aiuterà?"
+"Io posso cantare per lui, potrebbe renderlo felice di nuovo," disse Sakima ai suoi genitori. Ma i suoi genitori lo destituirono. "Lui è molto ricco, tu sei solo un ragazzo cieco. Pensi che la tua canzone lo aiuterà?"
 
 ##
 Tuttavia, Sakima non si arrese. La sua sorellina lo appoggiò. Disse "Le canzoni di Sakima mi calmano quando sono affamata. Calmeranno anche l'uomo ricco."
