@@ -7,7 +7,7 @@ Fu una piccola bimba a vedere per prima la misteriosa figura in lontananza.
 Man mano che la figura si avvicinava, vide che si trattava di una donna molto incinta.
 
 ##
-Timida ma coraggiosa, la bimba si avvicinò alla donna. "Dobbiamo tenerla con noi" Decise la gente della piccola bimba. "Terremo lei e il suo bimbo al sicuro."
+Timida ma coraggiosa, la bimba si avvicinò alla donna. "Dobbiamo tenerla con noi," decise la gente della piccola bimba. "Terremo lei e il suo bimbo al sicuro."
 
 ##
 Il bimbo stava arrivando. "Spingi!" "Portate delle coperte!" "Acqua!" "SPINGIIIIII!!"
