@@ -22,19 +22,19 @@ Anche noi eravamo arrabbiati con Rahim, ma lui non si sentiva in colpa.
 "Non punirai Rahim?" Chiese il mio fratellino.
 
 ##
-"Rahim, presto te ne pentirai" Avvertì la mamma.
+"Rahim, presto te ne pentirai," avvertì la mamma.
 
 ##
 Rahim cominciò a sentirsi male.
 
 ##
-"Mi fa malissimo la pancia" Bisbigliò Rahim.
+"Mi fa malissimo la pancia," bisbigliò Rahim.
 
 ##
 Mamma sapeva che questo sarebbe successo. La frutta stava punendo Rahim!
 
 ##
-Più tardi, Rahim chiese scusa a tutti noi. "Non sarò più così ingordo" Promise. E noi tutti gli credemmo.
+Più tardi, Rahim chiese scusa a tutti noi. "Non sarò più così ingordo," promise. E noi tutti gli credemmo.
 
 ##
 * License: [CC-BY]
