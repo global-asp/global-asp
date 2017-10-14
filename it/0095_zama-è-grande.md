@@ -7,7 +7,7 @@ Il mio fratellino si addormenta molto tardi. Io mi alzo presto perché sono un g
 Io sono quello che lascia entrare il sole.
 
 ##
-"Tu sei la mia stella del mattino." dice mamma.
+"Tu sei la mia stella del mattino," dice mamma.
 
 ##
 Io mi lavo da solo, non ho bisogno di aiuto.
@@ -16,13 +16,13 @@ Io mi lavo da solo, non ho bisogno di aiuto.
 Io posso tener testa all'acqua fredda e al sapone blu e odoroso.
 
 ##
-Mamma mi ricorda "Non dimenticarti i denti" Io rispondo: "Mai, non io!"
+Mamma mi ricorda: "Non dimenticarti i denti." Io rispondo: "Mai, non io!"
 
 ##
 Dopo essermi lavato, saluto Nonno e Zia e auguro loro una buona giornata.
 
 ##
-Poi mi vesto "Ora sono grande. mamma." Dico.
+Poi mi vesto. "Ora sono grande, mamma," dico.
 
 ##
 Io posso abbottonarmi e allacciarmi le scarpe.
