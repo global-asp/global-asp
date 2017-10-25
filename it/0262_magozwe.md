@@ -1,7 +1,7 @@
 # Magozwe
 
 ##
-Nella affollata città di Nairobi, lontano da un'amorevole vita in casa, viveva un gruppo di ragazzi senza tetto. Vivevano alla giornata. Ogni mattina, impacchettavano i loro materassi dopo aver dormito sui freddi pavimenti. Per scaldarsi un po', accendevano fuochi nei bidoni nella spazzatura. In questo gruppo di ragazzi c'era anche Magozwe. Lui era il più giovane.
+Nella affollata città di Nairobi, lontano da un'amorevole vita in casa, viveva un gruppo di ragazzi senza tetto. Vivevano alla giornata. Ogni mattina, impacchettavano i loro materassi dopo aver dormito sui freddi pavimenti. Per scaldarsi un po', accendevano fuochi nei bidoni della spazzatura. In questo gruppo di ragazzi c'era anche Magozwe. Lui era il più giovane.
 
 ##
 Quando i genitori di Magozwe morirono, lui aveva solo cinque anni. Andò a vivere con suo zio. A quell'uomo non importava nulla del ragazzo. Non dava a Magozwe abbastanza cibo. Lo faceva lavorare troppo.
