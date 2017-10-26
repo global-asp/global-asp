@@ -25,7 +25,7 @@ Robotnikom zrobiło się głupio. „Nie możemy pomóc Ci z tortem, ale proszę
 Podczas wędrówki Vusi spotkał rolnika z krową. „Co za pysznie wyglądająca słoma - mogę kęsa?" - zapytała krowa. Ale słoma była tak pyszna, że krowa zjadła całą słomę!
 
 ##
-„Coś Ty narobiła?" - krzyczał Vusi. „To był prezent dla mojej siostry. Robotnicy dali mi ją, bo złamali kij od zbieraczy owoców. Zbieracze owoców dali mi kij bo zbili jajko na tort na ślub mojej siostry. A teraz nie ma ani jajka, ani tortu, ani prezentu. „Co powie moja siostra?"
+„Coś Ty narobiła?" - krzyczał Vusi. „To był prezent dla mojej siostry. Robotnicy dali mi ją, bo złamali kij od zbieraczy owoców. Zbieracze owoców dali mi kij bo zbili jajko na tort na ślub mojej siostry. A teraz nie ma ani jajka, ani tortu, ani prezentu. Co powie moja siostra?"
 
 ##
 Krowie było głupio. Rolnik pozwolił Vusiemu zabrać krowę jako prezent dla siostry. Vusi szedł dalej.
