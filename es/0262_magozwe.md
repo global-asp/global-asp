@@ -31,7 +31,7 @@ Magozwe estaba sentado en la calle mirando su libro cuando Thomas vino y se sent
 Cuando volvieron a reunirse, Magozwe le relató la historia de su vida a Thomas. Le habló de su tío y de por qué huyó de esa casa. Thomas no hablaba mucho, y no le decía a Magozwe qué hacer, pero siempre le escuchaba con atención. Algunas veces conversaban mientras comían en la casa del techo azul.
 
 ##
-Cuando Magozwe cumplió alrededor de diez años, Thomas le regaló un nuevo libro de cuentos. Era la historia de un niño de una aldea que creció y se convirtió en un famoso jugador de fútbol. Thomas le leyó esa historia a Magozwe en muchas ocasiones, hasta que un día le dijo, "creo que ya es tiempo que vayas a la escuela y aprendas a leer. ¿Qué te parece?" Thomas le explicó que conocía un lugar donde los niños podían vivir e ir a la escuela.
+Cuando Magozwe cumplió alrededor de diez años, Thomas le regaló un nuevo libro de cuentos. Era la historia de un niño de una aldea que creció y se convirtió en un famoso jugador de fútbol. Thomas le leyó esa historia a Magozwe en muchas ocasiones, hasta que un día le dijo, "Creo que ya es tiempo que vayas a la escuela y aprendas a leer. ¿Qué te parece?" Thomas le explicó que conocía un lugar donde los niños podían vivir e ir a la escuela.
 
 ##
 Magozwe pensó en este nuevo lugar y en ir a la escuela. Pero, ¿y si su tío tenía razón y era demasiado estúpido para aprender? ¿Y si volvían a darle golpizas en este nuevo lugar? Magozwe sintió miedo. "Quizá sea mejor seguir viviendo en la calle," pensó.
