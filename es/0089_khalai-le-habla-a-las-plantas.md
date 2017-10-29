@@ -13,7 +13,7 @@ Khalai le habla al pasto mientras camina a su escuela. "Por favor pasto, crece m
 Khalai pasa frente a unas flores silvestres. "Por favor flores, sigan floreciendo para ponerlas en mi cabello."
 
 ##
-En la escuela, Khalai le habla a un árbol que está en el medio del recinto. "Por favor árbol, crece con ramas muy grandes para que podamos leer bajo tu sombra."
+En la escuela, Khalai le habla a un árbol que está en medio del recinto. "Por favor árbol, crece con ramas muy grandes para que podamos leer bajo tu sombra."
 
 ##
 Khalai le habla a la cerca de arbustos que rodea su escuela. "Por favor, crece muy fuerte para que detengas a la gente mala que quiera entrar."
