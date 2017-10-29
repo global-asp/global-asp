@@ -1,7 +1,7 @@
 # ¡Zama es genial!
 
 ##
-Mi hermano pequeño se despierta muy tarde. Yo despierto temprano, ¡Porque soy genial!
+Mi hermano pequeño se despierta muy tarde. Yo despierto temprano, ¡porque soy genial!
 
 ##
 Yo soy la que deja que la luz del sol entre a nuestra casa.
@@ -34,7 +34,7 @@ Y me aseguro que mi hermano pequeño sepa todas las noticias de la escuela.
 En clases, doy lo mejor de mí en todos los sentidos.
 
 ##
-Todos los días hago estas cosas buenas. Pero lo que más me gusta hacer es ¡Jugar, jugar y jugar!
+Todos los días hago estas cosas buenas. Pero lo que más me gusta hacer es ¡jugar, jugar y jugar!
 
 ##
 * License: [CC-BY]
