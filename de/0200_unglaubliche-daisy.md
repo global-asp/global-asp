@@ -64,5 +64,5 @@ Sie sagten, "Oh Daisy, du bist toll!"
 * License: [CC-BY]
 * Text: Nozizwe Herero
 * Illustration: Siya Masuku
-* Translation: Anna Westpfahl
+* Translation: chabauer
 * Language: de
