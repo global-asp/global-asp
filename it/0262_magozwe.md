@@ -20,7 +20,7 @@ Un giorno, mentre Magozwe frugava nel bidone della spazzatura, trovò un vecchio
 Le figure raccontavano la storia di un ragazzo che crebbe per diventare un pilota. Magozwe sognava ad occhi aperti di essere un pilota. A volte immaginava di essere il ragazzo della storia.
 
 ##
-Faceva freddo e Magozwe era in mezzo alla strada a mendicare. Un uomo si avvicinò. "Ciao, sono Thomas. Lavoro qui vicino, in un posto dove puoi mangiare qualcosa" disse l'uomo. Indicò una casa gialla con un tetto blu. "Spero verrai lì a mangiare qualcosa..?" chiese. Magozwe guardò l'uomo e poi la casa. "Forse" rispose, e se ne andò.
+Faceva freddo e Magozwe era in mezzo alla strada a mendicare. Un uomo si avvicinò. "Ciao, sono Thomas. Lavoro qui vicino, in un posto dove puoi mangiare qualcosa" disse l'uomo. Indicò una casa gialla con un tetto blu. "Spero verrai lì a mangiare qualcosa?" chiese. Magozwe guardò l'uomo e poi la casa. "Forse" rispose, e se ne andò.
 
 ##
 Col passare dei mesi, i ragazzi senzatetto si abituarono a vedere Thomas in giro. Gli piaceva parlare con la gente di strada. Thomas ascoltava le storie di vita della gente. Era serio e paziente, mai maleducato e irrispettoso. Alcuni dei ragazzi cominciarono ad andare alla casa gialla dal tetto blu per mangiare a mezzogiorno.
