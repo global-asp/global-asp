@@ -9,7 +9,6 @@ Mahilig lumabas si Wangari. Sa gulayan ng kanyang pamilya, hinughog niya ang lup
 ##
 Ang paborito niyang panahon ay ang dapit-hapon. Alam ni Wangari na oras na para umuwi kapag masyado nang madilim para tingnan ang mga halaman. Sinusundan niya ang makipot na daan sa kabukiran at binabagtas ang ilog sa kanyang pag-uwi.
 
-
 ##
 Matalino si Wangari at sabik siyang pumasok sa eskuwela. Ngunit nais ng ina at ama niya na manatili siya sa bahay at tulungan sila. Noong siya ay pitong taong gulang, hinikayat ng kuya niya ang kanilang mga magulang na papasukin siya sa eskuwela.
 
@@ -36,7 +35,6 @@ Nagsumikap nang husto si Wangari. Napansin ito ng mga tao sa buong mundo at bini
 
 ##
 Pumanaw si Wangari noong 2011, pero maaari natin siyang alalahanin sa tuwing makakakita tayo ng magandang puno.
-
 
 ##
 * License: [CC-BY]
