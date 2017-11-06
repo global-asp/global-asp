@@ -6,7 +6,6 @@ Nagdalamhati si Simbegwire nang pumanaw ang kanyang Nanay. Ginawa ng Tatay ni Si
 ##
 Isang araw, ginabi ng uwi ang Tatay ni Simbegwire. "Nasaan ka na, anak?" tawag niya. Tumakbo si Simbegwire sa kanyang Tatay. Tumigil siya nang nakita niyang hawak ng Tatay niya ang kamay ng isang babae. "Gusto kong makilala mo ang isang taong espesyal, anak. Ito si Anita," nakangiti niyang sinabi.
 
-
 ##
 "Ikinagagalak kitang makilala, Simbegwire. Lagi kang ikinukwento sa akin ng Tatay mo," sabi ni Anita. Pero hindi niya kinamayan o nginitian ang bata. Tuwang-tuwa sa galak ang Tatay ni Simbegwire. Lagi niyang binabanggit na sama-sama silang maninirahan, at kung gaano magiging kaganda ang buhay nila. "Anak, sana tanggapin mo tanggapin mo si Anita bilang iyong ina," sabi niya.
 
@@ -15,7 +14,6 @@ Nagbago ang buhay ni Simbegwire. Hindi na siya nakakaupo kasama ng kanyang Tatay
 
 ##
 Makalipas ang ilang buwan, sinabi ng Tatay ni Simbegwire na luluwas muna siya ng matagal. "Kailangan kong bumiyahe para sa aking trabaho," sabi niya. "Pero alam kong aalagaan ninyo ang isa't isa." Nalumbay si Simbegwire, pero hindi ito napansin ng kanyang Tatay. Hindi kumibo si Anita. Hindi rin siya masaya.
-
 
 ##
 Lumala ang kalagayan ni Simbegwire. Kapag hindi niya natapos ang kanyang gawaing-bahay, o kapag nagreklamo siya, sinaktan siya ni Anita. Halos ubusin ng babae ang hapunan, at kapiranggot na tira lang ang iniwan para kay Simbegwire. Umiyak si Simbegwire gabi-gabi, yakap-yakap ang kumot ng Nanay niya.
@@ -34,7 +32,6 @@ Kinaumagahan, inawit itong muli ni Simbegwire. Nang dumating ang mga kababaihan 
 
 ##
 Tumingin ang babae sa itaas ng puno. Nang makita niya ang bata at ang makukulay na kapiraso ng kumot, umiyak siya, "Simbegwire, anak ng aking kapatid!" Tumigil sa paghuhugas ang ibang babae at tinulungang bumaba si Simbegwire mula sa puno. Niyakap ng kanyang tiyahin si Simbegwire at pinatahan siya.
-
 
 ##
 Dinala si Simbegwire ng kanyang tiyahin sa kanilang bahay. Naghain siya ng mainit na pagkain para kay Simbegwire at pinatulog kasama ng kanyang mahal na kumot. Nang gabing iyon, lumuha si Simbegwire sa kanyang pagtulog. Pero ito ay luha ng ginhawa. Alam niyang aalagaan siya ng kanyang tiyahin.
