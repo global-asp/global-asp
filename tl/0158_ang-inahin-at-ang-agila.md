@@ -3,7 +3,6 @@
 ##
 Noong unang panahon, magkaibigan sina Inahin at Agila. Mapayapa silang nanirahan kasama ang ibang mga ibon. Walang nakalilipad sa kanila.
 
-
 ##
 Isang araw, nagkaroon ng tagtuyot sa nayon. Kinailangang maglakad ng malayo ni Agila. Bumalik na sobrang pagod si Agila. "Siguro naman mayroong mas madaling paraan para maglakbay," sabi ni Agila.
 
