@@ -7,7 +7,6 @@ Ito ang kuwento ni Ngede, ang Pastol ng Pulut-Pukyutan, at ni Gingile, isang bin
 Makalipas ang kalahating oras, naabot nila ang isang malaki at masukal na puno ng igos. Masayang lumukso si Ngede sa mga sanga nito. Sa wakas ay nanatili siya sa isang sanga at tumingin kay Gingile na para bang gusto niyang sabihin, "Ito na! Halika! Ano pa'ng hinihintay mo?" Walang makitang mga bubuyog si Gingile, pero pinagkatiwalaan niya si Ngede.
 
 ##
-
 Ibinaba ni Gingile ang kanyang sibat sa ilalim ng puno, nag-ipon ng mga tuyo at maliliit na sanga, at gumawa ng maliit na apoy. Nang nagliyab nang mabuti ang apoy, naglagay siya ng isang mahaba at tuyong patpat sa puso nito. Kilala ang mga sangang ito sa paggawa ng malaking usok habang ito'y nasusunog. Nag-umpisa siyang umakyat, hawak ang malamig-lamig na bahagi ng patpat sa kanyang mga ngipin.
 
 ##
@@ -15,7 +14,6 @@ Maya-maya ay narinig niya ang malakas na haging ng mga abalang bubuyog. Labas-pa
 
 ##
 Nang lumabas ang mga bubuyog, ipinasok ni Gingile ang kanyang mga kamay sa loob ng pugad. Nakakuha siya ng isang dakot ng panilan na punung-puno ng pulut-pukyutan, at matataba at mapuputing uod. Iningatan niyang ilagay ang pulut-pukyutan sa supot na dala niya sa kanyang balikat, at bumaba mula sa puno.
-
 
 ##
 Nasaksihan ni Ngede ang lahat ng ginawa ni Gingile. Naghintay siyang maiwanan ng isang malaking piraso ng pulut-pukyutan bilang pasasalamat sa Pastol ng Pulut-Pukyutan. Humagibis siya sa mga sanga, papalapit nang papalapit sa lupa. Nang maabot ni Gingile ang ilalim ng puno, dumapo si Ngede sa isang bato malapit sa batang lalaki at naghintay sa kanyang gantimpala.
