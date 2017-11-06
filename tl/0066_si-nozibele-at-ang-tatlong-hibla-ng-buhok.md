@@ -33,7 +33,6 @@ Bumukas ang pinto at nagulat siya sa nakita. Isang asong nagsasalita! "Anong kai
 "Hindi ko alam kung paano ayusin ang kama para sa isang aso," sagot ni Nozibele.
 "Kung ayaw mong ayusin ang kama ko, kakagatin kita!" banta ng aso. Kaya inayos ni Nozibele ang kama nito.
 
-
 ##
 Araw-araw, nagluluto, naglilinis at naglalaba si Nozibele para sa aso.
 "Sasaglit lang ako sa mga kaibigan ko. Pagbalik ko, dapat tapos ka na maglinis, magluto at maglaba."
