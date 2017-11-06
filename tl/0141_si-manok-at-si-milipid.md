@@ -9,7 +9,6 @@ Nagtungo sila sa putbolan at inumpisahan ang kanilang laro. Mabilis si Manok, pe
 ##
 Napagpasyahan nilang maglaro ng penalty shoot-out. Nag-goalkeeper muna si Milipid. Isang gol lang ang na-iskor ni Manok. Pagkatapos, naging taya naman si Manok para depensahan ang gol.
 
-
 ##
 Sinipa ni Milipid ang bola at naka-iskor siya. Dinribol ni Milipid ang bola at naka-iskor siya. Inulunan ni Milipid ang bola at naka-iskor siya. Naka-limang gol si Milipid. 
 
