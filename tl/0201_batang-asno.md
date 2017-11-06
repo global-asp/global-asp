@@ -3,7 +3,6 @@
 ##
 Isang batang babae ang unang nakakita ng kakaibang hugis mula sa malayo.
 
-
 ##
 Habang papalapit nang papalapit ang hugis, nakita niyang isa itong babaeng nagdadalang-tao.
 
@@ -30,7 +29,6 @@ Ngayon, kung hindi nagbago ang batang ito at nanatiling maliit, marahil ay iba a
 
 ##
 Unti-unting umiral ang pagkalito at galit kay Asno. Hindi siya puwedeng gumawa ng ganito at ganyan. Hindi siya puwedeng maging ganito at ganyan. Isang araw, tinadyakan niya ang kanyang ina sa sobrang galit.
-
 
 ##
 Nakaramdam ng pagkahiya si Asno. Tumakbo siya ng napakabilis para tumakas.
