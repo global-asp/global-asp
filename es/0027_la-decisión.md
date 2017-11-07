@@ -37,7 +37,7 @@ La gente se reunió debajo de un árbol grande para escuchar.
 Mi padre se puso de pie y dijo, "Necesitamos trabajar juntos para resolver nuestros problemas."
 
 ##
-Juma, quien tenía 8 años y estaba sentado en un tronco de un árbol, gritó, "¡Yo puedo ayudar limpiando!"
+Juma, quien tenía ocho años y estaba sentado en un tronco de un árbol, gritó, "¡Yo puedo ayudar limpiando!"
 
 ##
 Una mujer dijo, "Las mujeres pueden reunirse conmigo para cultivar alimentos." 
