@@ -37,7 +37,7 @@ Osiołek czuł się winny i zaczął uciekać najszybciej jak potrafił i jak na
 Kiedy wreszcie się zatrzymał, było już ciemno. "Halo?" - wyszeptał. "Halo?" - odpowiedziało echo. Był sam. Zwinął się w kulkę i zapadł w głęboki sen.
 
 ##
-Osiołek obudził się i zauważył staruszka, który mu się przyglądał.Gdy spojrzał w oczy staruszka, poczuł dziwne uczucie nadziei.
+Osiołek obudził się i zauważył staruszka, który mu się przyglądał. Gdy spojrzał w oczy staruszka, poczuł dziwne uczucie nadziei.
 
 ##
 Osiołek zamieszkał ze staruszkiem, który nauczył go jak przeżyć. Osiołek słuchał i uczył się od staruszka, a staruszek od osiołka. Pomagali sobie i często się śmiali.
