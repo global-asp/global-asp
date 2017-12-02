@@ -7,10 +7,10 @@ Hønemor og Tusenbein var venner. Men de likte alltid å konkurrere. Én dag spi
 De dro til fotballbanen og startet kampen. Hønemor var rask, men Tusenbein var raskere. Hønemor sparket langt, men Tusenbein sparket lengre. Hønemor ble surere og surere.
 
 ##
-Så lagde de en straffekonkurranse. Først var Tusenbein keeper. Hønemor skårte bare ett mål. Så var det Hønemors tur til å forsvare målet. 
+Så lagde de en straffekonkurranse. Først var Tusenbein keeper. Hønemor skåret bare ett mål. Så var det Hønemors tur til å forsvare målet. 
 
 ##
-Tusenbein sparket ballen og skårte. Tusenbein driblet ballen og skårte. Tusenbein headet ballen og skårte. Fem mål skårte Tusenbein.
+Tusenbein sparket ballen og skåret. Tusenbein driblet ballen og skåret. Tusenbein headet ballen og skåret. Fem mål skåret Tusenbein.
 
 ##
 Hønemor ble sint fordi hun tapte. Hun var en veldig dårlig taper. Tusenbein begynte å le av vennen som lagde så mye bråk.
@@ -22,8 +22,7 @@ Hønemor var så sint at hun åpnet nebbet og slukte Tusenbein.
 Da Hønemor gikk hjemover møtte hun Mor Tusenbein. "Har du sett barnet mitt?" spurte Mor Tusenbein. Hønemor sa ikke noe. Mor Tusenbein ble urolig.
 
 ##
-Så hørte Mor Tusenbein en svak stemme: "Mamma, hjelp meg!". Mor Tusenbein så seg rundt og lyttet spent. 
-Lyden kom fra inni høna.
+Så hørte Mor Tusenbein en svak stemme: "Mamma, hjelp meg!". Mor Tusenbein så seg rundt og lyttet spent. Lyden kom fra inni høna.
 
 ##
  Mor Tusenbein ropte: "Bruk det trikset du kan, barnet mitt!". Tusenbein kan lage en dårlig lukt og en sånn fæl smak. Hønemor kjente hun ble dårlig. 
