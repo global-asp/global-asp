@@ -22,7 +22,7 @@ Sakima svarte, "De kommer bare, mamma. Jeg hører dem i hodet mitt og så synger
 Sakima likte å synge for lillesøstera si, særlig hvis hun var sulten. Søstera hans pleide å høre på at han sang yndlingssangen sin. Hun beveget seg til den lindrende låten.
 
 ##
-"Kan du synge den igjen og igjen, Sakima," pleide søstra hans å be ham. Sakima aksepterte og sang den igjen og igjen.
+"Kan du synge den igjen og igjen, Sakima," pleide søstera hans å be ham. Sakima aksepterte og sang den igjen og igjen.
 
 ##
 Én kveld da foreldrene hans kom hjem, var de veldig stille. Sakima visste at noe var galt.
@@ -34,10 +34,10 @@ Sakima likte å synge for lillesøstera si, særlig hvis hun var sulten. Søster
 "Jeg kan synge for ham. Kanskje han blir glad igjen," sa Sakima til foreldrene sine. Men foreldrene hans avfeide ham. "Han er veldig rik. Du er bare en blind gutt. Tror du sangen din kommer til å hjelpe ham?"
 
 ##
-Likevel ga ikke Sakima opp. Lillesøstra hans støttet ham. Hun sa, "Sakimas sanger er lindrende når jeg er sulten. De kommer til å virke lindrende på den rike mannen også."
+Likevel ga ikke Sakima opp. Lillesøstera hans støttet ham. Hun sa, "Sakimas sanger er lindrende når jeg er sulten. De kommer til å virke lindrende på den rike mannen også."
 
 ##
-Neste dag ba Sakima lillesøstra si om å lede ham til huset til den rike mannen.
+Neste dag ba Sakima lillesøstera si om å lede ham til huset til den rike mannen.
 
 ##
 Han stod nedenfor et stort vindu og begynte å synge favorittsangen sin. Sakte begynte hodet til den rike mannen å vise seg gjennom det store vinduet.
