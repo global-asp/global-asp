@@ -28,7 +28,7 @@ Men Gingile slukket bålet, plukket opp spydet, begynte å gå hjem, og overså 
 Gingile klatret, men lurte på hvorfor han ikke hørte den sedvanlige summingen. "Kanskje bolet er dypt inne i treet," tenkte han for seg selv. Han dro seg opp etter en annen gren. Men i stedet for bolet, stirret han inn i ansiktet til en leopard! Leopard var veldig sint for at søvnen hennes ble så brått avbrutt. Hun knep igjen øynene og åpnet munnen for å vise de veldig lange og skarpe tennene sine.
 
 ##
-Før Leopard kunne svinge labben etter Gingile, skyndte han seg ned treet. I hastverket bommet han på en gren, og landet med et høyt brak  på bakken og forstuet ankelen. Han hinket videre så fort han kunne. Heldigvis for han var Leopard fortsatt for søvnig til å jage ham. Ngede, honningguiden, hadde fått sin hevn. Og Gingile hadde fått seg en lærepenge.
+Før Leopard kunne svinge labben etter Gingile, skyndte han seg ned treet. I hastverket bommet han på en gren, og landet med et høyt brak på bakken og forstuet ankelen. Han hinket videre så fort han kunne. Heldigvis for han var Leopard fortsatt for søvnig til å jage ham. Ngede, honningguiden, hadde fått sin hevn. Og Gingile hadde fått seg en lærepenge.
 
 ##
 Og slik var det at når barna til Gingile hørte fortellingen om Ngede, respekterte de den lille fuglen. Hver gang de sanket honning sørget de for å gi den største delen av vokskaka til honningguiden!
