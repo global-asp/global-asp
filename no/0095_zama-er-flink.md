@@ -17,7 +17,7 @@ Jeg vasker meg selv, jeg vil ikke ha hjelp.
 Jeg kan takle kaldt vann og blå stinkende såpe.
 
 ##
-Mamma påminner, “Glem ikke tennene.”
+Mamma påminner, "Glem ikke tennene."
 Jeg svarer: "Aldri, ikke jeg!"
 
 ##
