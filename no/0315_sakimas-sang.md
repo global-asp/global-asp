@@ -10,7 +10,7 @@ Da Sakima var tre år gammel, ble han syk og mistet synet. Sakima var en gutt me
 Sakima kunne mange ting som andre seksåringer ikke kunne. For eksempel kunne han sitte med eldre landsbymedlemmer og diskutere viktige saker.
 
 ##
-Foreldrene til Sakima jobbet i huset til den rike mannen. De dro tidlig om morgenen og kom tilbake sent på kvelden. Sakima ble igjen sammen med lillesøstra si.
+Foreldrene til Sakima jobbet i huset til den rike mannen. De dro tidlig om morgenen og kom tilbake sent på kvelden. Sakima ble igjen sammen med lillesøstera si.
 
 ##
 Sakima elsket å synge sanger. En dag spurte moren hans ham, "Hvor har du lært disse sangene, Sakima?"
@@ -19,7 +19,7 @@ Sakima elsket å synge sanger. En dag spurte moren hans ham, "Hvor har du lært 
 Sakima svarte, "De kommer bare, mamma. Jeg hører dem i hodet mitt og så synger jeg."
 
 ##
-Sakima likte å synge for lillesøstra si, særlig hvis hun var sulten. Søstra hans pleide å høre på at han sang yndlingssangen sin. Hun beveget seg til den lindrende låten.
+Sakima likte å synge for lillesøstera si, særlig hvis hun var sulten. Søstera hans pleide å høre på at han sang yndlingssangen sin. Hun beveget seg til den lindrende låten.
 
 ##
 "Kan du synge den igjen og igjen, Sakima," pleide søstra hans å be ham. Sakima aksepterte og sang den igjen og igjen.
