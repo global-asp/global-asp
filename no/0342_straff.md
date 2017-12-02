@@ -19,7 +19,7 @@ Mamma er sint på Rahim.
 Vi er også sinte på Rahim. Men Rahim er ikke lei seg.
 
 ##
-"Skal du ikke strafffe Rahim?" spør lillebror.
+"Skal du ikke straffe Rahim?" spør lillebror.
 
 ##
 "Rahim. du vil snart angre" advarer mamma.
