@@ -13,7 +13,7 @@ Etter en god natts søvn fikk Høne en lys idé. Hun begynte å samle sammen fj�
 Det var bare Ørn i landsbyen som hadde en synål, så hun begynte først å sy. Hun laget seg et par nydelige vinger og fløy høyt i sky. Høne lånte nålen men ble fort trøtt av å sy. Hun la nålen i skapet og gikk for å lage mat til barna sine.
 
 ##
-Men de andre fuglene hadde sett Ørn som fløy avgårde. De ba Høne om å få låne nålen for å sy vinger til seg selv også. Snart fløy det fugler overalt under himmelen.
+Men de andre fuglene hadde sett Ørn som fløy av gårde. De ba Høne om å få låne nålen for å sy vinger til seg selv også. Snart fløy det fugler overalt under himmelen.
 
 ##
 Da den siste fuglen leverte tilbake nålen de hadde lånt, var ikke Høne der. Så barna hennes tok nålen og begynte å leke med den. Da de ble lei av å leke lot de nålen ligge igjen i sanden.
