@@ -1,19 +1,19 @@
 # Geit, Hund og Ku
 
 ##
-Geit, Hund og Ku var gode venner. En dag dro de på en reise med en buss.
+Geit, Hund og Ku var gode venner. En dag dro de på reise med en buss.
 
 ##
-Da de ankom bestemmelsesstedet, ba sjåføren dem om betale billetten sin. Ku betalte sin billett.
+Da de kom fram ba sjåføren dem om betale billetten sin. Ku betalte sin billett.
 
 ##
 Hund betalte litt ekstra fordi han ikke hadde akkurat med penger.
 
 ##
-Sjåføren var på vei til å gi Hund vekslepengene, da Geit stakk av uten å betale.
+Sjåføren skulle akkurat til å gi Hund gi Hund vekslepengene, da Geit stakk av uten å betale.
 
 ##
-Sjåføren ble veldig irritert. Han kjørte av gårde uten å gi tilbake Hunds vekslepenger.
+Sjåføren ble veldig sur. Han kjørte av gårde uten å gi tilbake Hunds vekslepenger.
 
 ##
 Det er derfor Hund, selv i dag, løper mot biler for å sjekke om han ser sjåføren som skylder ham vekslepenger.
