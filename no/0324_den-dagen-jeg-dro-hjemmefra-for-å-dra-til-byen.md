@@ -34,7 +34,7 @@ Gateselgere dyttet hverandre for å komme seg ut av bussen. Noen ga tilbake veks
 I det bussen forlot busstasjonen, stirret jeg ut av vinduet. Jeg lurte på om jeg noensinne skulle komme tilbake til landsbyen min igjen.
 
 ##
-Etterhvert som reisen fortsatte ble det veldig varmt i bussen. Jeg lukket øynene og håpet å få sove.
+Etter hvert som reisen fortsatte ble det veldig varmt i bussen. Jeg lukket øynene og håpet å få sove.
 
 ##
 Men tankene mine vandret hjem. Kommer moren min til å bli trygg? Kommer kaninene mine til å innbringe noen penger? Kommer broren min til å huske å vanne de nyutsprungne trærne mine?
