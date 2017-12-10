@@ -1,10 +1,10 @@
 # Avgjørelse
 
 ##
-Landsbyen min hadde mange problemer. Vi dannet en lang rekke for å hente vann fra en pumpe.
+Landsbyen min hadde mange problemer. Vi stilte oss på en lang rekke for å hente vann fra en pumpe.
 
 ##
-Vi ventet på mat som andre hadde donert.
+Vi ventet på mat som andre hadde gitt oss.
 
 ##
 Vi låste husene våre tidlig på grunn av tyver.
@@ -22,10 +22,10 @@ Unge gutter drev rundt i landsbyen mens andre jobbet på gårdene til folk.
 Når vinden blåste, ble papirbiter hengende fast på trær og gjerder.
 
 ##
-Folk skar seg på henslengte glasskår.
+Folk skar seg på glasskår som hadde blitt kastet skjødesløst.
 
 ##
-Så en dag tørket vannet i pumpa opp og beholderne våre var tomme.
+Så en dag tørket vannet i pumpa opp og beholderne våre ble tomme.
 
 ##
 Faren min gikk fra hus til hus for å be folk delta på et folkemøte.
@@ -46,7 +46,7 @@ En kvinne sa: "Kvinnene kan bli med meg og dyrke mat."
 En annen mann reiste seg og sa: "Mennene skal grave en brønn."
 
 ##
-Vi ropte alle sammen med én stemme: "Vi må forandre livene våre." Fra den dagen samarbeidet vi for å løse problemene våre.
+Vi ropte alle sammen med én stemme: "Vi må forandre livet vårt." Fra den dagen samarbeidet vi for å løse problemene våre.
 
 ##
 * License: [CC-BY]
