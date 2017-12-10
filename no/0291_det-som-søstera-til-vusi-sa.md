@@ -4,7 +4,7 @@
 Tidlig en morgen ropte bestemoren til Vusi på ham: "Vusi, vær snill og ta med dette egget til foreldrene dine. De vil lage en stor kake til søstera di sitt bryllup."
 
 ##
-På vei til foreldrene sine møtte Vusi to gutter som plukket frukt. Én gutt snappet egget fra Vusi og slengte det på et tre. Egget knuste.
+På vei til foreldrene sine møtte Vusi to gutter som plukket frukt. Én gutt snappet egget fra Vusi og kastet det på et tre. Egget knuste.
 
 ##
 "Hva har du gjort?" ropte Vusi. "Det egget var ment for en kake. Kaka var for bryllupet til søstera mi. Hva kommer søstera mi til å si hvis det ikke blir noen bryllupskake?"
