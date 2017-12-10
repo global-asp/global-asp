@@ -7,7 +7,7 @@ En dag gikk Kanin langs elvebredden.
 Flodhest var der også. Han gikk en tur og spiste litt fint grønt gress.
 
 ##
-Flodhest så ikke at Kanin var der og hun tråkka uheldigvis på foten til Kanin. Kanin skrek og begynte og rope til Flodhest: "Hei Flodhest! Kan du ikke se at du tråkker på foten min?"
+Flodhest så seg ikke for så hun var uheldig og tråkket på foten til Kanin. Kanin skrek og begynte og rope til Flodhest: "Hei Flodhest! Kan du ikke se at du tråkker på foten min?"
 
 ##
 Flodhest ba om unnskyldning til Kanin: "Jeg er lei meg, vennen min, jeg så deg ikke. Vær så snill å tilgi meg!" Men Kanin ville ikke høre, og han ropte til Flodhest: "Du gjorde det med vilje! En dag kommer du til å få se! Dette kommer til å straffe seg!"
@@ -23,7 +23,7 @@ Flodhest begynte å gråte og løp mot vannet. Alt håret hennes brant opp i il
 
 ##
 Kanin var glad for at håret til Flodhest brant.
-Og til denne dag, av frykt for vannet, går ikke flodhesten langt fra vannet.
+Og den dag i dag, av frykt for ilden, går ikke flodhesten langt fra vannet.
 
 ##
 * License: [CC-BY]
