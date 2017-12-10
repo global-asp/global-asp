@@ -28,7 +28,7 @@ Hvis jeg var en tigger ville jeg ikke godtatt mynter.
 Hvis jeg var en lege ville jeg behandla folk med klaps på kinnet.
 
 ##
-Hvis jeg var var en prest ville jeg tatt med meg alle til himmelen.
+Hvis jeg var en prest ville jeg tatt med meg alle til himmelen.
 
 ##
 Hvis jeg var en mygg ville jeg sovet under et myggnett.
