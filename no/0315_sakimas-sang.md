@@ -31,7 +31,7 @@ Sakima likte å synge for lillesøstera si, særlig hvis hun var sulten. Søster
 "Hva er i veien, mamma, pappa?" spurte Sakima. Sakima fikk vite at den rike mannens sønn var borte. Mannen var veldig lei seg og ensom.
 
 ##
-"Jeg kan synge for ham. Kanskje han blir glad igjen," sa Sakima til foreldrene sine. Men foreldrene hans avfeide ham. "Han er veldig rik. Du er bare en blind gutt. Tror du sangen din kommer til å hjelpe ham?"
+"Jeg kan synge for ham. Kanskje han blir glad igjen", sa Sakima til foreldrene sine. Men foreldrene hans avfeide ham. "Han er veldig rik. Du er bare en blind gutt. Tror du sangen din kommer til å hjelpe ham?"
 
 ##
 Likevel ga ikke Sakima opp. Lillesøstera hans støttet ham. Hun sa, "Sakimas sanger er lindrende når jeg er sulten. De kommer til å virke lindrende på den rike mannen også."
