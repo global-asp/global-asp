@@ -13,7 +13,7 @@ Jeg føler meg tullete når jeg leker med vennene mine.
 Jeg blir trist når pappa sier at han ikke har penger.
 
 ##
-Jeg føler meg elsket når mamma gir meg en klem.
+Jeg føler mamma er glad i meg når hun gir meg en klem.
 
 ##
 * License: [CC-BY-NC]
