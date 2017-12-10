@@ -7,7 +7,7 @@ Det var ei lita jente som først så den mystiske skikkelsen i det fjerne.
 Etter hvert som skikkelsen kom nærmere, så hun at det var en høygravid kvinne.
 
 ##
-Sjenert men modig gikk den lille jenta nærmere kvinnen. "Vi må beholde henne her hos oss," bestemte de som var med den lille jenta. "Vi skal beskytte henne og barnet hennes."
+Sjenert men modig gikk den lille jenta nærmere kvinnen. "Vi må beholde henne her hos oss", bestemte de som var med den lille jenta. "Vi skal beskytte henne og barnet hennes."
 
 ##
 Barnet var snart på vei. "Dytt!" "Hent pledd!" "Vann!" "Dyyyytt!"
@@ -16,7 +16,7 @@ Barnet var snart på vei. "Dytt!" "Hent pledd!" "Vann!" "Dyyyytt!"
 Men da de fikk se babyen, vek alle tilbake i sjokk. "Et esel?"
 
 ##
-Alle sammen begynte å krangle. "Vi sa vi skulle beskytte mor og barn, og det skal vi gjøre," sa noen. Men de kommer til å bringe ulykke!" sa andre.
+Alle sammen begynte å krangle. "Vi sa vi skulle beskytte mor og barn, og det skal vi gjøre", sa noen. Men de kommer til å bringe ulykke!" sa andre.
 
 ##
 Og slik var det at kvinnen ble alene igjen. Hun lurte på hva hun skulle gjøre med dette rare barnet. Hun lurte på hva hun skulle gjøre med seg selv.
