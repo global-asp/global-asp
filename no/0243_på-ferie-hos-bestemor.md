@@ -13,10 +13,10 @@ Tidlig neste morgen dro de til landsbyen i bilen til faren sin. De kjørte forbi
 Etter en stund ble barna trøtte og sovnet.
 
 ##
-Faren vekket Odongo og Apiyo idet de ankom landsbyen. De fant Nyar-Kanyada, bestemoren sin, som hvilte på en matte under et tre. På luo betyr Nyar-Kanyada "datteren til Kanyada-folket". Hun var en sterk og vakker kvinne.
+Faren vekket Odongo og Apiyo idet de ankom landsbyen. De fant Nyar-Kanyada, bestemoren sin, som hvilte på en matte under et tre. På luo betyr Nyar-Kanyada "datteren til Kanyada-folket." Hun var en sterk og vakker kvinne.
 
 ##
-Nya-Kanyada ønsket dem velkommen og danset rundt i rommet mens hun sang av glede. Barnebarna hennes var begeistret over å overrekke gavene de hadde tatt med fra byen. "Åpne min gave først," sa Odongo. "Nei, min gave først!" sa Apiyo.
+Nya-Kanyada ønsket dem velkommen og danset rundt i rommet mens hun sang av glede. Barnebarna hennes var begeistret over å overrekke gavene de hadde tatt med fra byen. "Åpne min gave først", sa Odongo. "Nei, min gave først!" sa Apiyo.
 
 ##
 Etter at hun hadde åpnet gavene, velsignet Nyar-Kanyada barnebarna sine på tradisjonelt vis.
