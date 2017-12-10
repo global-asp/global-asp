@@ -1,7 +1,7 @@
 # Honningguidens hevn
 
 ##
-Dette er historien om Ngede, honningguiden, og en grådig ung mann ved navn Gingile. En dag mens Gingile var ute på jakt kalte Ngede på ham. Gingile fikk vann i munnen ved tanken på honning. Han stoppet og lyttet oppmerksomt, og lette til han så fuglen i grenene over hodet sitt. "Tsjitikk, tsjitikk, tsjitikk," kvitret den lille fuglen idet den fløy til det neste treet, og det neste. "Tsjitikk, tsjitikk, tsjitikk," kallet han, og stoppet innimellom for å forsikre seg om at Gingile fulgte etter.
+Dette er historien om Ngede, honningguiden, og en grådig ung mann ved navn Gingile. En dag mens Gingile var ute på jakt kalte Ngede på ham. Gingile fikk vann i munnen ved tanken på honning. Han stoppet og lyttet oppmerksomt, og lette til han så fuglen i grenene over hodet sitt. "Tsjitikk, tsjitikk, tsjitikk", kvitret den lille fuglen idet den fløy til det neste treet, og det neste. "Tsjitikk, tsjitikk, tsjitikk", kallet han, og stoppet innimellom for å forsikre seg om at Gingile fulgte etter.
 
 ##
 Etter en halvtime nådde de et stort vilt fikentre. Ngede hoppet rundt som en gal blant grenene. Han slo seg ned på en gren og strakk hodet mot Gingile som om han sa: "Her er det! Kom nå! Hvorfor bruker du så lang tid?" Gingile kunne ikke se noen bier fra under treet, men han stolte på Ngede.
@@ -22,10 +22,10 @@ Ngede så ivrig på alt som Gingile gjorde. Han ventet på at han skulle legge i
 Men Gingile slukket bålet, plukket opp spydet, begynte å gå hjem, og overså fuglen. Ngede ropte sint: "Vik-tor, vik-tor!" Gingile stoppet og stirret på den lille fuglen og lo høyt. "Du ville ha litt honning, du, lille venn? Ha! Men jeg gjorde alt arbeidet og fikk alle stikkene. Hvorfor skulle jeg dele noe av denne deilige honningen med deg?" Ngede var rasende! Dette var da ingen måte å behandle ham på! Men han skulle få hevnen sin.
 
 ##
-Én dag flere uker senere hørte Gingile igjen kallet fra Ngede. Han husket den deilige honningen, og fulgte ivrig etter fuglen nok en gang. Etter at den hadde ledet Gingile langs skogkanten, stoppet den for å hvile i et stort akasietre. "Å," tenkte Gingile. "Bolet må være i dette treet." Han tente raskt det lille bålet sitt og begynte å klatre med den rykende grenen mellom tennene. Ngede satt og ventet.
+Én dag flere uker senere hørte Gingile igjen kallet fra Ngede. Han husket den deilige honningen, og fulgte ivrig etter fuglen nok en gang. Etter at den hadde ledet Gingile langs skogkanten, stoppet den for å hvile i et stort akasietre. "Å", tenkte Gingile. "Bolet må være i dette treet." Han tente raskt det lille bålet sitt og begynte å klatre med den rykende grenen mellom tennene. Ngede satt og ventet.
 
 ##
-Gingile klatret, men lurte på hvorfor han ikke hørte den sedvanlige summingen. "Kanskje bolet er dypt inne i treet," tenkte han for seg selv. Han dro seg opp etter en annen gren. Men i stedet for bolet, stirret han inn i øynene til en leopard! Leopard var veldig sint for at søvnen hennes ble så brått avbrutt. Hun knep igjen øynene og åpnet munnen for å vise de veldig lange og skarpe tennene sine.
+Gingile klatret, men lurte på hvorfor han ikke hørte den sedvanlige summingen. "Kanskje bolet er dypt inne i treet", tenkte han for seg selv. Han dro seg opp etter en annen gren. Men i stedet for bolet, stirret han inn i øynene til en leopard! Leopard var veldig sint for at søvnen hennes ble så brått avbrutt. Hun knep igjen øynene og åpnet munnen for å vise de veldig lange og skarpe tennene sine.
 
 ##
 Før Leopard kunne svinge labben etter Gingile, skyndte han seg ned treet. I hastverket bommet han på en gren, og landet med et høyt brak på bakken og forstuet ankelen. Han hinket videre så fort han kunne. Heldigvis for han var Leopard fortsatt for søvnig til å jage ham. Ngede, honningguiden, hadde fått sin hevn. Og Gingile hadde fått seg en lærepenge.
