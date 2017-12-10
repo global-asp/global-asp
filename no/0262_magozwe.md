@@ -10,7 +10,7 @@ Da Magozwes foreldre døde var han bare fem år. Han dro for å bo med onkelen s
 Hvis Magozwe klagde eller stilte spørsmål, slo onkelen hans ham. Når Magozwe spurte om han kunne gå på skolen, slo onkelen hans ham og sa: "Du er for dum for å lære noe som helst." Etter tre år med denne behandlingen rømte Magozwe fra onkelen sin. Han begynte å bo på gata.
 
 ##
-Livet på gata var vanskelig og de fleste guttene slet hver dag bare for å finne mat. Noen ganger ble de arrestert, andre ganger ble de slått. Når de ble syke var det ingen som kunne hjelpe dem. Gjengen var avhengig av de få pengene de fikk fra å tigge og fra å selge plast og annet til resirkulering. Livet var enda vanskeligere på grunn av slåsskamper med rivaliserende gjenger som ville ha kontroll over deler av byen.
+Livet på gata var vanskelig, og de fleste guttene slet hver dag bare for å finne mat. Noen ganger ble de arrestert, andre ganger ble de slått. Når de ble syke var det ingen som kunne hjelpe dem. Gjengen var avhengig av de få pengene de fikk fra å tigge og fra å selge plast og annet til resirkulering. Livet var enda vanskeligere på grunn av slåsskamper med rivaliserende gjenger som ville ha kontroll over deler av byen.
 
 ##
 En dag mens Magozwe lette i noen søppelbøtter, fant han en gammel fillete barnebok. Han fjernet møkka fra den og la den i sekken sin. Hver påfølgende dag tok han ut boka og så på bildene. Han visste ikke hvordan han skulle lese ordene.
@@ -40,10 +40,10 @@ Magozwe tenkte på dette nye stedet og på å gå på skolen. Hva om onkelen han
 Han snakket om det han var redd for med Thomas. Med tiden forsikret mannen gutten om at livet kunne bli bedre på det nye stedet.
 
 ##
-Dermed flyttet Magozwe inn i et rom i et hus med grønt tak. Han delte rommet med to andre gutter. Tilsammen var det ti barn som bodde i det huset. Sammen med tante Cissy og mannen hennes, tre hunder, en katt, og en gammel geit.
+Dermed flyttet Magozwe inn i et rom i et hus med grønt tak. Han delte rommet med to andre gutter. Til sammen var det ti barn som bodde i det huset. Sammen med tante Cissy og mannen hennes, tre hunder, en katt og en gammel geit.
 
 ##
-Magozwe begynte på skolen og det var vanskelig. Han hadde mye å ta igjen. Av og til ville han gi opp. Men han tenkte på piloten og fotballspilleren i barnebøkene. Som dem ga han ikke opp.
+Magozwe begynte på skolen, og det var vanskelig. Han hadde mye å ta igjen. Av og til ville han gi opp. Men han tenkte på piloten og fotballspilleren i barnebøkene. Som dem ga han ikke opp.
 
 ##
 Magozwe satt på tunet ved huset med det grønne taket og leste en barnebok fra skolen. Thomas kom og satte seg ved siden av ham. "Hva handler fortellingen om?" spurte Thomas. "Den handler om en gutt som blir lærer," svarte Magozwe. "Hva heter gutten?" spurte Thomas. "Han heter Magozwe," svarte Magozwe med et smil.
