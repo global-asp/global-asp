@@ -4,7 +4,7 @@
 Jeg skreller potetene.
 
 ##
-Jeg kutter en kål.
+Jeg skjærer opp et kålhode.
 
 ##
 Jeg river gulerøttene.
