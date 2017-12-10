@@ -22,7 +22,7 @@ Sakima svarte, "De kommer bare, mamma. Jeg hører dem i hodet mitt og så synger
 Sakima likte å synge for lillesøstera si, særlig hvis hun var sulten. Søstera hans pleide å høre på at han sang yndlingssangen sin. Hun beveget seg til den lindrende låten.
 
 ##
-"Kan du synge den igjen og igjen, Sakima," pleide søstera hans å be ham. Sakima aksepterte og sang den igjen og igjen.
+"Kan du synge den igjen og igjen, Sakima?" pleide søstera hans å be ham. Sakima aksepterte og sang den igjen og igjen.
 
 ##
 Én kveld da foreldrene hans kom hjem, var de veldig stille. Sakima visste at noe var galt.
