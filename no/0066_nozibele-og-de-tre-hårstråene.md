@@ -7,7 +7,7 @@ For lenge, lenge siden gikk tre jenter ut for å samle ved.
 Det var en varm dag så de gikk ned til elven for å svømme. De lekte og plasket og svømte i vannet.
 
 ##
-Plutselig innså de at det var blitt sent. De skyndte seg tilbake til landsbyen.
+Plutselig merket de at det var blitt sent. De skyndte seg tilbake til landsbyen.
 
 ##
 Da de var nesten hjemme la Nozibele hånden på halsen. Hun hadde glemt halsbåndet! "Vær så snill og dra tilbake sammen med meg!" tryglet hun vennene sine. Men vennene hennes sa at det var for sent.
@@ -16,10 +16,10 @@ Da de var nesten hjemme la Nozibele hånden på halsen. Hun hadde glemt halsbån
 Så Nozibele gikk tilbake til elven alene. Hun fant halsbåndet og skynde seg hjem. Men hun gikk seg vill i mørket.
 
 ##
-I det fjerne så hun lys som kom fra en hytte. Hun skyndte seg mot den og banket på døra.
+I det fjerne så hun lys som kom fra en hytte. Hun løp mot hytta og banket på døra.
 
 ##
-Til hennes forbauselse var det hund som åpnet døra og sa, "Hva er det du vil?" "Jeg har gått meg vill og trenger et sted å sove," sa Nozibele. "Kom inn, ellers biter jeg deg!" sa hunden. Så Nozibele gikk inn.
+Så forundret hun ble da det var en hund som åpnet døra og sa, "Hva er det du vil?" "Jeg har gått meg vill og trenger et sted å sove," sa Nozibele. "Kom inn, ellers biter jeg deg!" sa hunden. Så Nozibele gikk inn.
 
 ##
 Da sa hunden, "Lag mat for meg!" "Men jeg har aldri laget mat for en hund før," svarte hun. "Lag mat, ellers biter jeg deg!" sa hunden. Så Nozibele laget litt mat til hunden.
