@@ -22,7 +22,7 @@ Khalai snakker med hekken rundt skolen sin. "Vær så snill, voks deg stor og st
 Når Khalai kommer hjem fra skolen, besøker hun appelsintreet. "Er appelsinene dine modne ennå?" spør Khalai.
 
 ##
-"Appelsinene er fortsatt grønne," sukker Khalai. "Vi sees i morgen, appelsintre," sier Khalai. "Kanskje du har en moden appelsin til meg da!"
+"Appelsinene er fortsatt grønne", sukker Khalai. "Vi sees i morgen, appelsintre", sier Khalai. "Kanskje du har en moden appelsin til meg da!"
 
 ##
 * License: [CC-BY]
