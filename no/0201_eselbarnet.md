@@ -1,7 +1,7 @@
 # Eselbarnet
 
 ##
-Det var en liten jente som først så den mystiske skikkelsen i det fjerne.
+Det var ei lita jente som først så den mystiske skikkelsen i det fjerne.
 
 ##
 Etter hvert som skikkelsen kom nærmere, så hun at det var en høygravid kvinne.
@@ -25,10 +25,10 @@ Og slik var det at kvinnen ble alene igjen. Hun lurte på hva hun skulle gjøre 
 Men til slutt aksepterte hun at han var hennes barn og at hun var moren hans.
 
 ##
-Hvis bare barnet hadde beholdt den lille størrelsen, hadde alt kanskje vært annerledes. Men eselbarnet vokste og vokste helt til han ikke lenger fikk plass på morens rygg. Og uansett hvor hardt hand forsøkte, klarte han ikke å oppføre seg som et menneske. Moren hans for ofte sliten og frustrert. Noen gang satte hun ham til å gjøre arbeid som var ment for dyr.
+Hvis bare barnet hadde beholdt den lille størrelsen, hadde alt kanskje vært annerledes. Men eselbarnet vokste og vokste helt til han ikke lenger fikk plass på morens rygg. Og uansett hvor hardt han forsøkte, klarte han ikke å oppføre seg som et menneske. Moren hans var ofte sliten og frustrert. Noen gang satte hun ham til å gjøre arbeid som var ment for dyr.
 
 ##
-Esel ble fylt av forvirring og sinne. Han kunne ikke gjør ditt og han kunne ikke gjøre datt. Han kunne ikke være på én måte og han kunne ikke være på en annen måte. Han ble så sint at han én dag sparket ned huset til moren sin.
+Esel ble fylt av forvirring og sinne. Han kunne ikke gjør ditt og han kunne ikke gjøre datt. Han kunne ikke være på én måte og han kunne ikke være på en annen måte. Han ble så sint at han en dag sparket ned huset til moren sin.
 
 ##
 Esel skammet seg. Han begynte å løpe vekk så fort han kunne.
@@ -46,7 +46,7 @@ Esel dro for å bo med den gamle mannen, som lærte ham mange forskjellige måte
 En morgen ba den gamle mannen Esel om å bære ham opp til toppen av et fjell.
 
 ##
-Høyt oppe blant skyene sovnet de. Esel drømte at moren hans var syk og kallet på ham. Og da han våknet ...
+Høyt oppe blant skyene sovnet de. Esel drømte at moren hans var syk og ropte på ham. Og da han våknet ...
 
 ##
 ... hadde skyene forsvunnet, i likhet med vennen hans, den gamle mannen.
