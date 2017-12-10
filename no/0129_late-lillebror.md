@@ -7,7 +7,7 @@ Jeg står opp og tenner ilden.
 Jeg koker vann.
 
 ##
-Jeg hugger ved.
+Jeg hogger ved.
 
 ##
 Jeg rører i gryta.
