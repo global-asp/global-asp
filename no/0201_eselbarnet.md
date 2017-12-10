@@ -46,10 +46,10 @@ Esel dro for å bo med den gamle mannen, som lærte ham mange forskjellige måte
 En morgen ba den gamle mannen Esel om å bære ham opp til toppen av et fjell.
 
 ##
-Høyt oppe blant skyene sovnet de. Esel drømte at moren hans var syk og ropte på ham. Og da han våknet ...
+Høyt oppe blant skyene sovnet de. Esel drømte at moren hans var syk og ropte på ham. Og da han våknet …
 
 ##
-... hadde skyene forsvunnet, i likhet med vennen hans, den gamle mannen.
+… hadde skyene forsvunnet, i likhet med vennen hans, den gamle mannen.
 
 ##
 Esel visste omsider hva han skulle gjøre.
