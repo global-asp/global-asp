@@ -4,7 +4,7 @@
 En dag fikk mamma mye frukt.
 
 ##
-"Når kan vi få litt frukt?" spør vi. "Vi spiser frukten i kveld." sier mamma.
+"Når kan vi få litt frukt?" spør vi. "Vi spiser frukten i kveld," sier mamma.
 
 ##
 Broren min Rahim er grådig. Han smaker på all frukten. Han spiser mye av den.
