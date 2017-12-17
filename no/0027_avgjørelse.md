@@ -22,7 +22,7 @@ Unge gutter drev rundt i landsbyen mens andre jobbet på gårdene til folk.
 Når vinden blåste, ble papirbiter hengende fast på trær og gjerder.
 
 ##
-Folk skar seg på glasskår som hadde blitt kastet skjødesløst.
+Folk skar seg på glasskår som folk hadde slengt fra seg.
 
 ##
 Så en dag tørket vannet i pumpa opp og beholderne våre ble tomme.
