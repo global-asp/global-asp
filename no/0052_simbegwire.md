@@ -41,7 +41,7 @@ Simbegwires tante tok med seg barnet til sitt eget hus. Hun ga Simbegwire varm m
 Da Simbegwires far kom hjem, så han at rommet hennes tomt. "Hva har skjedd, Anita?" spurte han bekymret. Kvinnen svarte at Simbegwire hadde stukket av. "Jeg ville at hun skulle respektere meg", sa hun. Men kanskje jeg var for streng." Simbegwires far forlot huset og gikk i retning av bekken. Han fortsatte til landsbyen til søsteren sin for å finne ut om hun hadde sett Simbegwire.
 
 ##
-Simbegwire lekte med fetterne og kusinene sine da hun så faren sin på lang avstand. Hun var redd han skulle bli sint, så hun løp inn i huset og gjemte seg. Men faren hennes gikk til henne og sa, "Simbegwire, du har funnet den beste moren i verden. En som er glad i deg og som forstår deg. Jeg er stolt av deg og glad i deg." De ble enige om at Simbegwire skulle bli boende hos tanta si så lenge hun ville.
+Simbegwire lekte med fetterne og kusinene sine da hun så faren sin på lang avstand. Hun var redd han skulle bli sint, så hun løp inn i huset og gjemte seg. Men faren hennes gikk til henne og sa, "Simbegwire, du har funnet den beste moren i verden. En som er glad i og forstår deg. Jeg er stolt av deg og glad i deg." De ble enige om at Simbegwire skulle bli boende hos tanta si så lenge hun ville.
 
 ##
 Faren hennes besøkte henne hver dag. Etter hvert kom han med Anita. Hun rakte hånda til Simbegwire. Jeg er veldig lei meg, vesla, jeg tok feil", gråt hun. "Vil du la meg prøve igjen?" Simbegwire så på faren sin og den bekymrede minen hans. Da gikk hun bort til Anita og la langsomt armene rundt henne.
