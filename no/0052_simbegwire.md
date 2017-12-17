@@ -26,7 +26,7 @@ Simbegwire var veldig opprørt. Hun bestemte seg for å rømme. Hun tok bitene 
 gårde. Hun fulgte den samme veien som faren hennes hadde tatt.
 
 ##
-Da kvelden kom klatret hun opp i et høyt tre ved en bekk og redde seg en seng i grenene. Da hun gikk og la seg, sang hun: "mamma, mamma, mamma, du forlot meg. Du forlot meg og kom aldri tilbake. Pappa er ikke glad i meg lenger. Mamma, når kommer du tilbake? Du forlot meg."
+Da kvelden kom klatret hun opp i et høyt tre ved en bekk og redde seg en seng i grenene. Da hun gikk og la seg, sang hun: "Mamma, mamma, mamma, du forlot meg. Du forlot meg og kom aldri tilbake. Pappa er ikke glad i meg lenger. Mamma, når kommer du tilbake? Du forlot meg."
 
 ##
 Neste morgen sang Simbegwire sangen igjen. Da kvinnene kom for å vaske klærne sine i bekken, hørte de den triste sangen fra høyt oppe i treet. De trodde det bare var vinden som raslet med bladene, og fortsatte med arbeidet sitt. Men én av kvinnene hørte veldig nøye på sangen.
