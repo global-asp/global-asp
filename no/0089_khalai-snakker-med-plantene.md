@@ -16,7 +16,7 @@ Khalai går forbi ville blomster. "Vær så snill, blomster, fortsett å blomstr
 På skolen snakker Khalai med treet midt i skolegården. "Vær så snill, tre, voks ut store grener så vi kan lese under skyggen din."
 
 ##
-Khalai snakker med hekken rundt skolen sin. "Vær så snill, voks deg stor og stopp uvedkomne fra å komme inn."
+Khalai snakker med hekken rundt skolen sin. "Vær så snill, voks deg stor og stopp uvedkommende fra å komme inn."
 
 ##
 Når Khalai kommer hjem fra skolen, besøker hun appelsintreet. "Er appelsinene dine modne ennå?" spør Khalai.
