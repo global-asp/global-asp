@@ -1,7 +1,7 @@
 # Hønemor og Tusenbein
 
 ##
-Hønemor og Tusenbein var venner. Men de likte alltid å konkurrere. Én dag spilte de fotball for å se hvem som var den beste på banen.
+Hønemor og Tusenbein var venner. Men de likte alltid å konkurrere. En dag spilte de fotball for å se hvem som var den beste på banen.
 
 ##
 De dro til fotballbanen og startet kampen. Hønemor var rask, men Tusenbein var raskere. Hønemor sparket langt, men Tusenbein sparket lengre. Hønemor ble surere og surere.
@@ -25,7 +25,7 @@ Da Hønemor gikk hjemover møtte hun Mor Tusenbein. "Har du sett barnet mitt?" s
 Så hørte Mor Tusenbein en svak stemme: "Mamma, hjelp meg!" Mor Tusenbein så seg rundt og lyttet spent. Lyden kom fra inni høna.
 
 ##
- Mor Tusenbein ropte: "Bruk det trikset du kan, barnet mitt!" Tusenbein kan lage en dårlig lukt og en sånn fæl smak. Hønemor kjente hun ble dårlig. 
+Mor Tusenbein ropte: "Bruk det trikset du kan, barnet mitt!" Tusenbein kan lage en dårlig lukt og en sånn fæl smak. Hønemor kjente hun ble dårlig. 
 
 ##
 Hønemor kastet opp. Og svelget og spyttet. Så nøs og hostet hun. Og kastet opp. Tusenbeinet var ufyselig.
