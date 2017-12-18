@@ -7,7 +7,7 @@ Jeg skreller potetene.
 Jeg skjærer opp et kålhode.
 
 ##
-Jeg river gulerøttene.
+Jeg river gulrøttene.
 
 ##
 Jeg vasker bønnene.
