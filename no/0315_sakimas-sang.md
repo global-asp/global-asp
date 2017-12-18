@@ -25,7 +25,7 @@ Sakima likte å synge for lillesøstera si, særlig hvis hun var sulten. Søster
 "Kan du synge den igjen og igjen, Sakima?" pleide søstera hans å be ham. Sakima aksepterte og sang den igjen og igjen.
 
 ##
-Én kveld da foreldrene hans kom hjem, var de veldig stille. Sakima visste at noe var galt.
+En kveld da foreldrene hans kom hjem, var de veldig stille. Sakima visste at noe var galt.
 
 ##
 "Hva er i veien, mamma, pappa?" spurte Sakima. Sakima fikk vite at den rike mannens sønn var borte. Mannen var veldig lei seg og ensom.
