@@ -22,7 +22,7 @@ Wangari lærte mye nytt på det amerikanske universitetet. Hun studerte planter 
 Hun skjønte hun var glad i folk fra Kenya jo mer hun lærte. Hun ville de skulle være glade og frie. Og jo mer hun lærte jo mer husket hun hjemmet sitt i Afrika.
 
 ##
-Da hun var ferdig med å studere dro hun tilbake til Kenya. Men landet hennes var forandret. Kjempestore farmer strakte seg utover i landet. Kvinnene hadde ikke ved til å tenne bål for å lage mat. Folk var fattige og barn sultet.
+Da hun var ferdig med å studere dro hun tilbake til Kenya. Men landet hennes var forandret. Kjempestore bondegårder strakte seg utover i landet. Kvinnene hadde ikke ved til å tenne bål for å lage mat. Folk var fattige og barn sultet.
 
 ##
 Wangari visste råd. Hun lærte kvinnene å plante trær ved å sette frø i jorda. Kvinnene solgte trærne og brukte pengene til beste for familien sin. De ble veldig glade. Wangari hadde fått dem til å føle seg sterke og mektige.
