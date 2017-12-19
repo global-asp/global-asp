@@ -22,7 +22,7 @@ Alle sammen begynte å krangle. "Vi sa vi skulle beskytte mor og barn, og det sk
 Og slik var det at kvinnen ble alene igjen. Hun lurte på hva hun skulle gjøre med dette rare barnet. Hun lurte på hva hun skulle gjøre med seg selv.
 
 ##
-Men til slutt aksepterte hun at han var hennes barn og at hun var moren hans.
+Men til slutt godtok hun at han var hennes barn og at hun var moren hans.
 
 ##
 Hvis bare barnet hadde beholdt den lille størrelsen, hadde alt kanskje vært annerledes. Men eselbarnet vokste og vokste helt til han ikke lenger fikk plass på morens rygg. Og uansett hvor hardt han forsøkte, klarte han ikke å oppføre seg som et menneske. Moren hans var ofte sliten og frustrert. Noen gang satte hun ham til å gjøre arbeid som var ment for dyr.
