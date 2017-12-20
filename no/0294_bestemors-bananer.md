@@ -16,7 +16,7 @@ Da jeg kom tilbake, satt bestemor utenfor, men med verken kurven eller bananene.
 To dager senere ba bestemor meg om å hente stokken hennes fra soverommet. Så snart jeg åpnet døra ble jeg møtt av den sterke lukten av modne bananer. I det innerste rommet var bestemors store magiske stråkurv. Den var godt gjemt av et gammelt teppe. Jeg løftet det og luktet på den vidunderlige duften.
 
 ##
-Bestemors stemme skremte meg da hun ropte: "Hva holder du på med?" "Skynd deg og ta med stokken." jeg skyndte meg ut med stokken hennes. "Hva er det du smiler for?" spurte bestemor. Spørsmålet hennes fikk meg til å innse at jeg fortsatt smilte over oppdagelsen av det magiske stedet hennes.
+Bestemors stemme skremte meg da hun ropte: "Hva holder du på med?" "Skynd deg og ta med stokken." Jeg skyndte meg ut med stokken hennes. "Hva er det du smiler for?" spurte bestemor. Spørsmålet hennes fikk meg til å innse at jeg fortsatt smilte over oppdagelsen av det magiske stedet hennes.
 
 ##
 Neste dag da bestemor kom for å besøke moren min, skyndte jeg meg av gårde til huset hennes for å sjekke bananene en gang til. Det var en klase veldig modne bananer der. Jeg tok én og gjemte den i kjolen min. Etter at jeg hadde dekket kurven, gikk jeg bak huset og spiste den fort. Det var den søteste bananen jeg noensinne hadde smakt.
