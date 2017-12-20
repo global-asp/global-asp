@@ -1,7 +1,7 @@
 # Bestemors bananer
 
 ##
-Bestemors kjøkkenhage var full av durra, hirse og kassava. Men best av alt var bananene. Selv om bestemor hadde mange barnebarn, visst jeg i all hemmelighet at jeg var favoritten hennes. Hun inviterte meg ofte hjem til seg. Hun fortalte meg også små hemmeligheter. Men det var én hemmelighet hun ikke delte med meg: hvor hun modnet bananene.
+Bestemors kjøkkenhage var full av durra, hirse og maniok. Men best av alt var bananene. Selv om bestemor hadde mange barnebarn, visst jeg i all hemmelighet at jeg var favoritten hennes. Hun inviterte meg ofte hjem til seg. Hun fortalte meg også små hemmeligheter. Men det var én hemmelighet hun ikke delte med meg: hvor hun modnet bananene.
 
 ##
 En dag så jeg en stor stråkurv som stod plassert utenfor huset til bestemor. Da jeg spurte hva den var ment for, fikk jeg svaret: "Det er den magiske kurven min." Ved siden av kurven var det flere bananblader som bestemor snudde fra tid til annen. Jeg var nysgjerrig: "Hva bruker du bladene til, bestemor?" spurte jeg. Det eneste svaret jeg fikk, var: "De er de magiske bladene mine."
