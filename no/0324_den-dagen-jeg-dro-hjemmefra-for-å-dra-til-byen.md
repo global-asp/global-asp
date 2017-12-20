@@ -31,7 +31,7 @@ Disse aktivitetene ble avbrutt av tutingen til bussen, et tegn på at vi var kla
 Gateselgere dyttet hverandre for å komme seg ut av bussen. Noen ga tilbake vekslepenger til de reisende. Andre forsøkte i siste liten å selge noen flere varer.
 
 ##
-I det bussen forlot busstasjonen, stirret jeg ut av vinduet. Jeg lurte på om jeg noensinne skulle komme tilbake til landsbyen min igjen.
+Idet bussen forlot busstasjonen, stirret jeg ut av vinduet. Jeg lurte på om jeg noensinne skulle komme tilbake til landsbyen min igjen.
 
 ##
 Etter hvert som reisen fortsatte ble det veldig varmt i bussen. Jeg lukket øynene og håpet å få sove.
