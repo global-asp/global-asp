@@ -24,7 +24,7 @@ Jeg svarer: "Aldri, ikke jeg!"
 Etter kroppsvasken hilser jeg på bestefar og tante og ønsker dem en god dag.
 
 ##
-Så kler jeg på meg selv. "Jeg er stor nå mamma", sier jeg.
+Så kler jeg på meg selv. "Jeg er stor nå, mamma", sier jeg.
 
 ##
 Jeg kan kneppe knapper og spenne skoene mine.
