@@ -16,7 +16,7 @@ Er han bak sofaen?
 Er han ved sida av bøtta?
 
 ##
-Er han inne i korgen?
+Er han inne i korga?
 
 ##
 Er han utanfor huset?
