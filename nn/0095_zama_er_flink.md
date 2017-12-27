@@ -17,7 +17,7 @@ Eg vaskar meg sjølv, eg vil ikkje ha hjelp.
 Eg toler kaldt vatn og blå stinkande såpe.
 
 ##
-Mamma minner på tannpussen: “Gløym ikkje tennene.”
+Mamma minner meg på tannpussen: “Gløym ikkje tennene.”
 Eg svarar: "Aldri, ikkje eg!"
 
 ##
