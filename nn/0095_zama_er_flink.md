@@ -14,17 +14,17 @@ Eg er ho som slepp sola inn.
 Eg vaskar meg sjølv, eg vil ikkje ha hjelp.
 
 ##
-Eg kan takla kaldt vann og blå stinkande såpe.
+Eg toler kaldt vatn og blå stinkande såpe.
 
 ##
-Mamma påminner, “Gløym ikkje tennene.”
+Mamma minner på tannpussen: “Gløym ikkje tennene.”
 Eg svarar: "Aldri, ikkje eg!"
 
 ##
 Etter kroppsvasken helsar eg på bestefar og tante og ynskjer dei ein god dag.
 
 ##
-Så kler eg meg sjølv, "Eg er stor no, mamma,” seier eg.
+Så kler eg meg sjølv. "Eg er stor no, mamma”, seier eg.
 
 ##
 Eg kan kneppa knappar og spenna skorne mine.
