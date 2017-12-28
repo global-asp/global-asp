@@ -1,10 +1,10 @@
 # Simbegwire
 
 ##
-Då mor til Simbegwire døydde vart ho veldig lei seg. Simbegwires far gjorde sitt beste for å ta hand om dottera si. Litt etter litt lærde dei å verta lukkelege igjen, utan mor til Simbegwire. Kvar morgon sat dei og snakka om dagen som låg føre dei. Kvar kveld laga dei middag saman. Etter at dei hadde teke oppvasken hjelpte far til Simbegwire ho med leksene.
+Då mor til Simbegwire døydde vart ho veldig lei seg. Far til Simbegwire gjorde sitt beste for å ta hand om dotter si. Litt etter litt lærde dei å verta lukkelege igjen, utan mor til Simbegwire. Kvar morgon sat dei og snakka om dagen som låg føre dei. Kvar kveld laga dei middag saman. Etter at dei hadde teke oppvasken hjelpte far til Simbegwire ho med leksene.
 
 ##
-Ein dag kom far til Simbegwire heim seinare enn vanleg. "Kor er du, jenta mi?" ropte han. Simbegwire laupte til faren sin. Ho stoppa opp då ho såg at han heldt ei dame i handa. "Eg vil at du skal møta ei spesiell kvinne, jenta mi." Dette er Anita", sa han og smilte.
+Ein dag kom far til Simbegwire heim seinare enn vanleg. "Kor er du, jenta mi?" ropte han. Simbegwire laupte til far sin. Ho stoppa opp då ho såg at han heldt ei dame i handa. "Eg vil at du skal møta ei spesiell kvinne, jenta mi." Dette er Anita", sa han og smilte.
 
 ##
 "Hei Simbegwire, far din har fortalt meg mykje om deg", sa Anita. Men ho smilte ikkje og tok ikkje handa til jenta. Far til Simbegwire var glad og begeistra. Han snakka om at dei tre skulle bu saman, og kor godt dei skulle få det. "Jenta mi, eg håpar du vil akseptera Anita som mor di", sa han.
@@ -16,7 +16,7 @@ Livet til Simbegwire forandra seg. Ho hadde ikkje lenger tid til å sitja saman 
 Etter nokre månader fortalde far til Simbegwire dei at han ville koma til å vera borte for eit bel. "Eg må reisa på grunn av jobben min", sa han. Men eg veit at de vil ta vare på kvarandre." Simbegwire såg trist ut, men faren la ikkje merke til det. Anita sa ikkje noko. Ho var ikkje glad ho heller.
 
 ##
-Ting vart berre vondare for Simbegwire. Viss ho ikkje gjorde ferdige husarbeidet, eller klaga, slo Anita ho. Og under middagen åt Anita det meste av maten, slik at Simbegwire berre fekk nokre få restar. Kvar natt gret Simbegwire til ho fall i søvn medan ho klemde rundt teppet frå mora si.
+Ting vart berre vondare for Simbegwire. Viss ho ikkje gjorde ferdige husarbeidet, eller klaga, slo Anita ho. Og under middagen åt Anita det meste av maten, slik at Simbegwire berre fekk nokre få restar. Kvar natt gret Simbegwire til ho fall i søvn medan ho klemde rundt teppet frå mor si.
 
 ##
 Ein morgon brukte Simbegwire lang tid på å stå opp. "Din lathans!" ropte Anita. Ho drog Simbegwire ut av senga. Teppet ho var så glad i sat fast på ein spikar, og rakna.
