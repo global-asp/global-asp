@@ -10,7 +10,7 @@ Dette er herr Storhode.
 Herr Storhode og herr Flue var venner. En dag gikk de en tur sammen.
 
 ##
-De kom til en elvebredd og begynte å krangle. Herr Flue sa, "du kan ikke hoppe over denne elva."
+De kom til en elvebredd og begynte å krangle. Herr Flue sa: "Du kan ikke hoppe over denne elva."
 "Jo, jeg kan det! Det er du som ikke kan!" svarte herr Storhode.
 
 ##
