@@ -37,7 +37,7 @@ Men kua sprang tilbake til bonden rundt middagstid. Og Vusi gjekk seg vill på r
 "Kva skal eg gjera?" ropte Vusi. "Den kua som sprang bort var ei gåve til gjengjeld for halmen som bygningsarbeidarane gav meg. Bygningsarbeidarane gav meg halmen fordi dei knakk kjeppen frå fruktplukkarane. Fruktplukkarane gav meg kjeppen fordi dei knuste egget som var meint for kaka. Kaka var meint for bryllaupet. No er det ikkje noko egg, ikkje noka kake, og ikkje noka gåve."
 
 ##
-Systera til Vusi tenkte eit bel, så sa ho: "Vusi, broren min, eg bryr meg verkeleg ikkje om gåver. Eg bryr meg ikkje ein gong om kaka! Vi er alle saman samla her, så eg er glad. Så ta på deg nokre fine klede og la oss feira denne dagen!" Så det var det Vusi gjorde.
+Systera til Vusi tenkte eit bel, så sa ho: "Vusi, kjære bror, eg bryr meg verkeleg ikkje om gåver. Eg bryr meg ikkje ein gong om kaka! Vi er alle saman samla her, så eg er glad. Så ta på deg nokre fine klede og la oss feira denne dagen!" Så det var det Vusi gjorde.
 
 ##
 * License: [CC-BY]
