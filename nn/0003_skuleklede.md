@@ -10,7 +10,7 @@ Denne genseren er stor.
 Denne veska er stor.
 
 ##
-Dette beltet er...
+Dette beltet er …
 
 ##
 Denne hatten er liten.
@@ -22,7 +22,7 @@ Sokkane er korte.
 Men desse skorne er nye.
 
 ##
-... dei passar godt.
+… dei passar godt.
 
 ##
 * License: [CC-BY-NC]
