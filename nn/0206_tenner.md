@@ -13,7 +13,7 @@ Ei ku har sterke tenner.
 Fuglar har ikkje tenner.
 
 ##
-Rottar har store fortenner.
+Rottar har store framtenner.
 
 ##
 Haiar har skarpe tenner.
