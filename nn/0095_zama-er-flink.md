@@ -30,7 +30,7 @@ Så kler eg meg sjølv. "Eg er stor no, mamma", seier eg.
 Eg kan kneppa knappar og spenna skorne mine.
 
 ##
-Og eg sørgjer at for veslebror kjenner alle skulenyhenda.
+Og eg sørgjer at for veslebror kjenner alt nytt frå skulen.
 
 ##
 I klassa mi gjer eg mitt beste på alle måtar.
