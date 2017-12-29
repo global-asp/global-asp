@@ -31,7 +31,7 @@ Han kjøpte ein veldig høg sykkel.
 Han sat på ein veldig høg stol. Han åt med ein veldig lang gaffel.
 
 ##
-Han forlét huset sitt og budde i ein stor skog. Han levde i mange år.
+Han reiste frå huset sitt og budde i ein stor skog. Han levde i mange år.
 
 ##
 * License: [CC-BY]
