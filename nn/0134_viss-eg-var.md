@@ -28,7 +28,7 @@ Viss eg var ein tiggar ville eg ikkje godteke mynter.
 Viss eg var ein lege ville eg handsama folk med klaps på kinnet.
 
 ##
-Viss eg var var ein prest ville eg teke med meg alle til himmelen.
+Viss eg var ein prest ville eg teke med meg alle til himmelen.
 
 ##
 Viss eg var ein mygg ville eg sove under eit myggnett.
