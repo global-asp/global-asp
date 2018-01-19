@@ -19,7 +19,7 @@ Etter noen måneder fortalte Simbegwires far dem at han ville komme til å være
 Ting ble bare verre for Simbegwire. Hvis hun ikke gjorde ferdig husarbeidet, eller klagde, slo Anita henne. Og under middagen spiste Anita det meste av maten, slik at Simbegwire bare fikk noen få rester. Hver natt gråt Simbegwire til hun falt i søvn mens hun klemte rundt teppet fra moren sin.
 
 ##
-En morgen brukte Simbegwire lang tid på å stå opp. "Din latsabb!" ropte Anita. Hun dro Simbegwire ut av senga. Teppet hun var så glad i satt fast på en spiker, og revnet.
+En morgen brukte Simbegwire lang tid på å stå opp. "Din latsabb!" ropte Anita. Hun dro Simbegwire ut av sengen. Teppet hun var så glad i satt fast på en spiker, og revnet.
 
 ##
 Simbegwire var veldig opprørt. Hun bestemte seg for å rømme. Hun tok bitene fra morens teppe, pakket litt mat, og dro av 
