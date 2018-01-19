@@ -4,7 +4,7 @@
 Én elefant går for å drikke vann.
 
 ##
-To sjiraffer går for å drikke vann.
+To sjiraffer går for å drikke vann.
 
 ##
 Tre bøfler og fire fugler går også for å drikke vann.

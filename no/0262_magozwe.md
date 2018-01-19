@@ -16,7 +16,7 @@ Livet på gata var vanskelig, og de fleste guttene slet hver dag bare for å fin
 En dag mens Magozwe lette i noen søppelbøtter, fant han en gammel fillete barnebok. Han fjernet møkka fra den og la den i sekken sin. Hver påfølgende dag tok han ut boka og så på bildene. Han visste ikke hvordan han skulle lese ordene.
 
 ##
-Bildene fortalte fortellingen om en gutt som vokste opp til å bli pilot. Magozwe pleide å dagdrømme om å bli pilot. Noen ganger innbilte han seg at han var gutten i fortellingen.
+Bildene fortalte fortellingen om en gutt som vokste opp til å bli pilot. Magozwe pleide å dagdrømme om å bli pilot. Noen ganger innbilte han seg at han var gutten i fortellingen.
 
 ##
 Det var kaldt og Magozwe stod langs veien og tagg. En mann gikk bort til ham. "Hei, jeg heter Thomas. Jeg bor i nærheten, på et sted der du kan få deg noe å spise", sa han og pekte på et gult hus med blått tak. "Jeg håper du drar dit for å få deg litt mat?" spurte han. Magozwe så på ham, og deretter på huset. "Kanskje", sa han, og gikk.

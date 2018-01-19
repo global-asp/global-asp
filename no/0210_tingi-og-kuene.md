@@ -4,7 +4,7 @@
 Tingi bodde sammen med bestemoren sin.
 
 ##
-Han pleide å passe på kuene med henne.
+Han pleide å passe på kuene med henne.
 
 ##
 En dag kom soldatene.
