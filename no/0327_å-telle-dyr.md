@@ -7,7 +7,7 @@
 To sjiraffer går for å drikke vann.
 
 ##
-Tre bøfler og fire fugler går også for a drikke vann.
+Tre bøfler og fire fugler går også for å drikke vann.
 
 ##
 Fem impalaer og seks villsvin går mot vannet.
