@@ -4,7 +4,7 @@
 Det var en gang en lykkelig familie.
 
 ##
-De krangla aldri. Barna hjalp foreldrene sine hjemme og i åkeren.
+De kranglet aldri. Barna hjalp foreldrene sine hjemme og i åkeren.
 
 ##
 Men de fikk ikke lov til å gå nær ilden.
