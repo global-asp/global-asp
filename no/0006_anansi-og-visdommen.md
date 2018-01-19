@@ -13,7 +13,7 @@ Anansi var grådig og tenkte: "Jeg gjemmer krukka i toppen av et høyt tre. Så 
 Den lille sønnen til Anansi hadde stått og sett på ved foten av treet. "Hadde det ikke vært lettere å klatre med krukka på ryggen i stedet?" sa han. Anansi prøvde å binde fast leirkrukka full av visdom på ryggen. Og da ble det jo mye lettere.
 
 ##
-Snart var han oppe i toppen av treet. Men så var det han tenkte: "Det var jo jeg som skulle ha all denne visdommen, men nå var sønnen min lurere enn meg!" Anansi ble så sinna at han kastet krukka ned fra treet.
+Snart var han oppe i toppen av treet. Men så var det han tenkte: "Det var jo jeg som skulle ha all denne visdommen, men nå var sønnen min lurere enn meg!" Anansi ble så sint at han kastet krukka ned fra treet.
 
 ##
 Den gikk i tusen knas. Da ble det fritt for alle å dele visdommen. Og sånn lærte folk å dyrke jorda, veve klær og lage redskaper av jern, og alle de andre tingene folk vet hvordan de skal lage.
