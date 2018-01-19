@@ -7,7 +7,7 @@ Denne kjolen er lang.
 Denne genseren er stor.
 
 ##
-Denne vesken er stor.
+Denne veska er stor.
 
 ##
 Dette beltet er …
