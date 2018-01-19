@@ -1,7 +1,7 @@
 # Simbegwire
 
 ##
-Da Simbegwires mor døde ble hun veldig lei seg. Simbegwires far gjorde sitt beste for å ta hånd om datteren sin. Litt etter litt lærte de å bli lykkelige igjen, uten Simbegwires mor. Hver morgen satt de og snakket om dagen som lå foran dem. Hver kveld lagde de middag sammen. Etter at de hadde tatt oppvasken hjalp Simbegwires far henne med leksene.
+Da Simbegwires mor døde ble hun veldig lei seg. Simbegwires far gjorde sitt beste for å ta hånd om datteren sin. Litt etter litt lærte de å bli lykkelige igjen, uten Simbegwires mor. Hver morgen satt de og snakket om dagen som lå foran dem. Hver kveld lagde de middag sammen. Etter at de hadde tatt oppvasken hjalp Simbegwires far henne med leksene.
 
 ##
 En dag kom Simbegwires far hjem senere enn vanlig. "Hvor er du, jenta mi?" ropte han. Simbegwire løp til faren sin. Hun stoppet opp da hun så at han holdt en dame i hånda. "Jeg vil at du skal møte en spesiell kvinne, jenta mi." Dette er Anita", sa han og smilte.
