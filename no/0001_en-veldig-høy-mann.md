@@ -7,7 +7,7 @@ Hakka hans var for kort.
 Døråpningen hans var for lav.
 
 ##
-Senga hans var for kort.
+Sengen hans var for kort.
 
 ##
 Sykkelen hans var for lav.
