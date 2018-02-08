@@ -28,5 +28,5 @@ Evin dışında mı?
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Bronwen Heath
-* Translation: Nahide Büşra Ertekin & Zeynep Kara
+* Translation: Nahide Büşra Ertekin, Zeynep Kara
 * Language: tr
