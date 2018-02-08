@@ -4,7 +4,7 @@
 Éin elefant går for å drikka vatn.
 
 ##
-To sjiraffar går for å drikka vatn.
+To sjiraffar går for å drikka vatn.
 
 ##
 Tre bøflar og fire fuglar går òg for a drikke vatn.

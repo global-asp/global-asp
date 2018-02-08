@@ -56,7 +56,7 @@ W jibdit, w jibdit.
 Emme it-Timsèħ me seyyibċ xcemhe.
 
 ##
-Xcem il-Fìle iṡ-Ṡɍìra tjebbid w tjebbid.
+Xcem il-Fìle iṡ-Ṡɍìra tjebbid w tjebbid.
 
 W tjebbid. Ħatte lìn ŧàħit. "Dufff!!"
 

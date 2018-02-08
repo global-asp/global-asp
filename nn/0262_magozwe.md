@@ -16,7 +16,7 @@ Livet på gata var vanskeleg, og dei fleste gutane sleit kvar dag berre for å f
 Ein dag medan Magozwe leitte i nokre søppelbøtter, fann han ein gammal fillete barnebok. Han fjerna møkka frå ho og la den i sekken sin. Kvar påfølgjande dag tok han ut boka og såg på bileta. Han visste ikkje korleis han skulle lesa orda.
 
 ##
-Bileta fortalde forteljinga om ein gut som voks opp til å verta pilot. Magozwe pleidde å dagdrøyma om å verta pilot. Nokre gonger innbilte han seg at han var guten i forteljinga.
+Bileta fortalde forteljinga om ein gut som voks opp til å verta pilot. Magozwe pleidde å dagdrøyma om å verta pilot. Nokre gonger innbilte han seg at han var guten i forteljinga.
 
 ##
 Det var kaldt og Magozwe stod langs vegen og tagg. Ein mann gjekk bort til han. "Hei, eg heiter Thomas. Eg bur i nærleiken, på ein stad der du kan få deg noko å eta", sa han og peikte på eit gult hus med blått tak. "Eg håpar du dreg dit for å få deg litt mat?" spurde han. Magozwe såg på han, og deretter på huset. "Kanskje", sa han, og gjekk.

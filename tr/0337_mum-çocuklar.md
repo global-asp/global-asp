@@ -37,5 +37,5 @@ Ve güneş yükselmeye başladığında kuş sabah ışığında güzel güzel �
 * License: [CC-BY]
 * Text: Southern African Folktale
 * Illustration: Wiehan de Jager
-* Translation: Leyla Tekül 
+* Translation: Leyla Tekül
 * Language: tr

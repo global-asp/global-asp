@@ -4,7 +4,7 @@
 Tingi budde saman med bestemora si.
 
 ##
-Han pleidde å passa på kyrne med ho.
+Han pleidde å passa på kyrne med ho.
 
 ##
 Ein dag kom soldatane.

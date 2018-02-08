@@ -16,7 +16,7 @@ Viss eg var ein rotte ville eg vakse meg stor og jaga katten.
 Viss eg var ein baby vill eg skrike etter berre dyre ting.
 
 ##
-Viss eg var ein katt ville eg ete rottar for å verta tjukkare. 
+Viss eg var ein katt ville eg ete rottar for å verta tjukkare.
 
 ##
 Viss eg var ei høne ville eg lagt gullegg for folk.

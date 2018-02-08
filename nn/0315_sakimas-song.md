@@ -22,7 +22,7 @@ Sakima svara: "Dei kjem berre, mamma. Eg høyrer dei i hovudet mitt og så syng 
 Sakima likte å synga for veslesyster si, særleg viss ho var svolten. Syster hans pleidde å høyra på at han song yndlingssongen sin. Ho rørde seg til den lindrande låten.
 
 ##
-"Kan du synga han igjen og igjen, Sakima?" pleidde syster hans å be han. Sakima aksepterte og song han igjen og igjen.
+"Kan du synga han igjen og igjen, Sakima?" pleidde syster hans å be han. Sakima aksepterte og song han igjen og igjen.
 
 ##
 Ein kveld då foreldra hans kom heim, var dei veldig stille. Sakima visste at noko var gale.
@@ -34,13 +34,13 @@ Ein kveld då foreldra hans kom heim, var dei veldig stille. Sakima visste at no
 "Eg kan synga for han. Kanskje han vert glad igjen", sa Sakima til foreldra sine. Men foreldra hans avfeia han. "Han er veldig rik. Du er berre ein blind gut. Trur du songen din kjem til å hjelpa han?"
 
 ##
-Likevel gav ikkje Sakima opp. Veslesyster hans støtta han. Ho sa: "Sakimas songar er lindrande når eg er svolten. Dei kjem til å verka lindrande på den rike mannen òg."
+Likevel gav ikkje Sakima opp. Veslesyster hans støtta han. Ho sa: "Sakimas songar er lindrande når eg er svolten. Dei kjem til å verka lindrande på den rike mannen òg."
 
 ##
 Neste dag bad Sakima veslesyster si om å leia han til huset til den rike mannen.
 
 ##
-Han stod nedanfor eit stort vindauge og byrja å synga favorittsongen sin. Sakte byrja hovudet til den rike mannen å visa seg gjennom det store vindauget.
+Han stod nedanfor eit stort vindauge og byrja å synga favorittsongen sin. Sakte byrja hovudet til den rike mannen å visa seg gjennom det store vindauget.
 
 ##
 Arbeidarane stoppa det dei halde på med. Dei høyrde på Sakimas vene song. Men éin mann sa: "Ingen har vore i stand til å trøysta sjefen. Trur denne blinde guten at han kan trøysta han?"

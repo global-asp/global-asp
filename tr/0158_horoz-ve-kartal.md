@@ -34,5 +34,5 @@ Ve Kartal'ın kanatlarının gölgesi yere vurur vurmaz, Tavuk civcivlerini uyar
 * License: [CC-BY]
 * Text: Ann Nduku
 * Illustration: Wiehan de Jager
-* Translation: Leyla Tekül 
+* Translation: Leyla Tekül
 * Language: tr

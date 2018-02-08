@@ -52,5 +52,5 @@ Magozwe yeşil çatılı evin arka bahçesinde oturup, okula ait bir hikaye kita
 * License: [CC-BY]
 * Text: Lesley Koyi
 * Illustration: Wiehan de Jager
-* Translation: Leyla Tekül 
+* Translation: Leyla Tekül
 * Language: tr

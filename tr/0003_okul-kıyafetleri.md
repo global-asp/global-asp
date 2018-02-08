@@ -28,5 +28,5 @@ Ama bu ayakkabılar yeni.
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Mlungisi Dlamini
-* Translation: Nahide Büşra Ertekin 
+* Translation: Nahide Büşra Ertekin
 * Language: tr

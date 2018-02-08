@@ -28,5 +28,5 @@ Köpek  ”Hav hav.” diyor.
 * License: [CC-BY-NC]
 * Text: Jenny Katz
 * Illustration: Sandy Campbell
-* Translation: Nahide Büşra Ertekin 
+* Translation: Nahide Büşra Ertekin
 * Language: tr

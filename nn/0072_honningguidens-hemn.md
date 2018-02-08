@@ -22,7 +22,7 @@ Ngede såg ivrig på alt som Gingile gjorde. Han venta på at han skulle leggja 
 Men Gingile slokk bålet, plukka opp spydet, byrja å gå heim, og oversåg fuglen. Ngede ropte sint: "Vik-tor, vik-tor!" Gingile stoppa og stira på den vesle fuglen og lo høgt. "Du ville ha litt honning, du, vesle ven? Ha! Men eg gjorde alt arbeidet og fekk alle stikka. Kvifor skulla eg dela noko av denne herlege honningen med deg?" Ngede var rasande! Dette var då ingen måte å handsama han på! Men han skulle få hemnen sin.
 
 ##
-Ein dag fleire veker seinare høyrde Gingile igjen kallet frå Ngede. Han hugsa den herlege honningen, og følgde ivrig etter fuglen nok ein gong. Etter at han hadde leidd Gingile langs skogkanten, stoppa han for å kvila i eit stort akasietre. "Å", tenkte Gingile. "Bolet må vera i dette treet." Han tende raskt det vesle bålet sitt og byrja å klatra med den rykande greina mellom tennene. Ngede sat og venta.
+Ein dag fleire veker seinare høyrde Gingile igjen kallet frå Ngede. Han hugsa den herlege honningen, og følgde ivrig etter fuglen nok ein gong. Etter at han hadde leidd Gingile langs skogkanten, stoppa han for å kvila i eit stort akasietre. "Å", tenkte Gingile. "Bolet må vera i dette treet." Han tende raskt det vesle bålet sitt og byrja å klatra med den rykande greina mellom tennene. Ngede sat og venta.
 
 ##
 Gingile klatra, men lura på kvifor han ikkje høyrde den sedvanlege summinga. "Kanskje bola er djupt inne i treet", tenkte han for seg sjølv. Han drog seg opp etter ei anna grein. Men i staden for bola, stira han inn i auga til ein leopard! Leopard var veldig sint for at søvnen hennar vart så brått avbrote. Ho kneip att auga og opna munnen for å visa dei veldig lange og skarpe tennene sine.
