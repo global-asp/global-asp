@@ -10,7 +10,7 @@ Nagtungo sila sa putbolan at inumpisahan ang kanilang laro. Mabilis si Manok, pe
 Napagpasyahan nilang maglaro ng penalty shoot-out. Nag-goalkeeper muna si Milipid. Isang gol lang ang na-iskor ni Manok. Pagkatapos, naging taya naman si Manok para depensahan ang gol.
 
 ##
-Sinipa ni Milipid ang bola at naka-iskor siya. Dinribol ni Milipid ang bola at naka-iskor siya. Inulunan ni Milipid ang bola at naka-iskor siya. Naka-limang gol si Milipid. 
+Sinipa ni Milipid ang bola at naka-iskor siya. Dinribol ni Milipid ang bola at naka-iskor siya. Inulunan ni Milipid ang bola at naka-iskor siya. Naka-limang gol si Milipid.
 
 ##
 Galit na galit si Manok sa kanyang pagkatalo. Pikon siyang talunan. Tinawanan ni Milipid si Manok dahil nagiinarte ang kaibigan niya.
@@ -34,7 +34,7 @@ Dumighay si Manok. Pagkatapos, lumunok at dumura siya. Pagkatapos ay bumahing at
 Umubo si Manok hanggang sa naiubo niya ang milipid na nasa kanyang sikmura. Gumapang si Mama Milipid at ang kanyang anak sa isang puno para magtago.
 
 ##
-Mula noon, naging magkaaway ang mga manok at mga milipid. 
+Mula noon, naging magkaaway ang mga manok at mga milipid.
 
 ##
 * License: [CC-BY]

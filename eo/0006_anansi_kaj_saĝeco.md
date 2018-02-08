@@ -16,7 +16,7 @@ La tutan tempon la juna filo de Anansi estis observanta ĉe la fundo de la arbo.
 En neniu tempo li atingis la supron de la arbo. Sed tiam li haltis pensante, “mi estas supozeble la ununura kun ĉio saĝeco sed jen mia filo estis pli lerta ol mi!” Anansi estis tiel kolera pri tio ĉi ke li ĵetis la argilan kruĉon malsupren for de la arbo.
 
 ##
-Ĝi frakasis en pecoj sur la tero. La saĝeco estis libera por dividi inter ĉiuj. Kaj estas tiel kiel homoj lernis farmi, teksi tukojn, fari ferajn ilojn, kaj ĉiujn la aliajn aferojn kiujn homoj scias fari. 
+Ĝi frakasis en pecoj sur la tero. La saĝeco estis libera por dividi inter ĉiuj. Kaj estas tiel kiel homoj lernis farmi, teksi tukojn, fari ferajn ilojn, kaj ĉiujn la aliajn aferojn kiujn homoj scias fari.
 
 ##
 * License: [CC-BY]

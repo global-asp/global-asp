@@ -19,7 +19,7 @@ Makalipas ang ilang buwan, sinabi ng Tatay ni Simbegwire na luluwas muna siya ng
 Lumala ang kalagayan ni Simbegwire. Kapag hindi niya natapos ang kanyang gawaing-bahay, o kapag nagreklamo siya, sinaktan siya ni Anita. Halos ubusin ng babae ang hapunan, at kapiranggot na tira lang ang iniwan para kay Simbegwire. Umiyak si Simbegwire gabi-gabi, yakap-yakap ang kumot ng Nanay niya.
 
 ##
-Isang umaga, tinanghali ng gising si Simbegwire. "Tamad!" sigaw ni Anita. Hinila niya si Simbegwire mula sa kanyang kama. Naipit sa isang pako ang kanyang pinakamamahal na kumot, at napunit ito sa dalawang piraso. 
+Isang umaga, tinanghali ng gising si Simbegwire. "Tamad!" sigaw ni Anita. Hinila niya si Simbegwire mula sa kanyang kama. Naipit sa isang pako ang kanyang pinakamamahal na kumot, at napunit ito sa dalawang piraso.
 
 ##
 Nabalisa si Simbegwire. Napagdesisyunan niyang maglayas sa kanila. Kinuha niya ang mga kapiraso ng kumot ng kanyang Nanay, nagbaon ng kaunting pagkain, at nilisan ang kanilang bahay. Sinundan niya ang daang tinahak ng kanyang Tatay.

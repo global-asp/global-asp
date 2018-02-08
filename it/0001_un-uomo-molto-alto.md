@@ -32,7 +32,7 @@ Si sedette su una sedia altissima.
 Mangiò con una forchetta lunghissima.
 
 ##
-Lasciò la sua casa e visse in una grande foresta. 
+Lasciò la sua casa e visse in una grande foresta.
 Visse per tanti anni.
 
 ##

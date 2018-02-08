@@ -1,4 +1,4 @@
-# Fotballhelten Andiswa 
+# Fotballhelten Andiswa
 
 ##
 Andiswa så på guttene spille fotball. Hun ville så gjerne være med! Hun spurte treneren om hun kunne få trene sammen med dem.

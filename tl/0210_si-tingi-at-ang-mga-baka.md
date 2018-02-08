@@ -1,7 +1,7 @@
 # Si Tingi at ang mga Baka
 
 ##
-Nanirahan si Tingi kasama ng Lola niya. 
+Nanirahan si Tingi kasama ng Lola niya.
 
 ##
 Magkasama nilang inalagaan ang mga baka.

@@ -13,7 +13,7 @@ Los chicos le dijeron que fuera a jugar nétbol. Le dijeron que el nétbol es pa
 Al día siguiente, la escuela tenía un partido de fútbol muy importante. El entrenador estaba preocupado porque su mejor jugador se enfermó y no podía jugar.
 
 ##
-Andiswa corrió hacia el entrenador y le suplicó que la dejara jugar. El entrenador no estaba seguro de qué hacer. Pero decidió que Andiswa se uniera al equipo. 
+Andiswa corrió hacia el entrenador y le suplicó que la dejara jugar. El entrenador no estaba seguro de qué hacer. Pero decidió que Andiswa se uniera al equipo.
 
 ##
 Fue un juego difícil. Para el medio tiempo, ninguno de los equipos había anotado un gol.

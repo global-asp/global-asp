@@ -22,7 +22,7 @@ Ecco perché, ancora oggi, Cane corre verso le macchine per sbirciare dentro e c
 Capra corre via al rumore di una macchina. Ha paura che la arrestino per non aver pagato la sua parte.
 
 ##
-E Mucca non si preoccupa quando passa una macchina. Mucca si prende il suo tempo per attraversare la strada perché sa di aver pagato la sua parte. 
+E Mucca non si preoccupa quando passa una macchina. Mucca si prende il suo tempo per attraversare la strada perché sa di aver pagato la sua parte.
 
 ##
 * License: [CC-BY]

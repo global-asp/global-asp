@@ -13,7 +13,7 @@ Cuando iba hacia la casa de sus padre, Vusi se encontró con dos chicos recogien
 Los chicos se disculparon por lo ocurrido. "No te podemos ayudar con la pastel, pero este palo para caminar es un regalo para tu hermana," uno de los chicos dijo. Luego, Vusi siguió caminando.
 
 ##
-Mientras caminaba, se encontró con dos hombres que estaban construyendo una casa. "¿Nos dejarías usar ese fuerte palo?" uno de los hombres preguntó. Pero el palo no era lo suficientemente fuerte para trabajos de construcción, así que se quebró. 
+Mientras caminaba, se encontró con dos hombres que estaban construyendo una casa. "¿Nos dejarías usar ese fuerte palo?" uno de los hombres preguntó. Pero el palo no era lo suficientemente fuerte para trabajos de construcción, así que se quebró.
 
 ##
 "¿Qué acabas de hacer?" Vusi gritó. "Ese palo era un regalo para mi hermana. Los recolectores de fruta me lo dieron porque rompieron el huevo para el pastel de boda de mi hermana. Ahora, ni huevo, ni pastel, ni regalo habrá para su boda. ¡¿Qué dirá mi hermana?!"

@@ -40,7 +40,7 @@ Mi padre se puso de pie y dijo, "Necesitamos trabajar juntos para resolver nuest
 Juma, quien tenía ocho años y estaba sentado en un tronco de un árbol, gritó, "¡Yo puedo ayudar limpiando!"
 
 ##
-Una mujer dijo, "Las mujeres pueden reunirse conmigo para cultivar alimentos." 
+Una mujer dijo, "Las mujeres pueden reunirse conmigo para cultivar alimentos."
 
 ##
 Otro hombre se puso de pie y dijo, "Los hombres construiremos un pozo."

@@ -16,7 +16,7 @@ Hvis jeg var en rotte ville jeg vokst meg stor og jaget katten.
 Hvis jeg var en baby vill jeg skreket etter bare dyre ting.
 
 ##
-Hvis jeg var en katt ville jeg spist rotter for å bli tjukkere. 
+Hvis jeg var en katt ville jeg spist rotter for å bli tjukkere.
 
 ##
 Hvis jeg var en høne ville jeg lagt gullegg for folk.

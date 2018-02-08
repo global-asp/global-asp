@@ -16,7 +16,7 @@ Masyadong maiksi ang bisikleta niya.
 Masyadong matangkad ang mamang ito!
 
 ##
-Gumawa siya ng napakahabang hawakan para sa asarol niya. 
+Gumawa siya ng napakahabang hawakan para sa asarol niya.
 
 ##
 Gumawa siya ng napakataas na pintuan.

@@ -13,7 +13,7 @@ Die Ziege macht "Meck Meck".
 Das Pferd wiehert.
 
 ##
-Das Schwein macht "Oink Oink". 
+Das Schwein macht "Oink Oink".
 
 ##
 Das Huhn gackert.

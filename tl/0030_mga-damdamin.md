@@ -1,7 +1,7 @@
 # Mga Damdamin
 
 ##
-Maraming nararamdaman ang puso ko. 
+Maraming nararamdaman ang puso ko.
 
 ##
 Nakararamdam ako ng kasiyahan kapag kinukuwentuhan kami ni Lola sa gabi.

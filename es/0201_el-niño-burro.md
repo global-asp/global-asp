@@ -1,13 +1,13 @@
 # El Niño Burro
 
 ##
-Una niña pequeña fue la primera en ver una figura misteriosa a lo lejos. 
+Una niña pequeña fue la primera en ver una figura misteriosa a lo lejos.
 
 ##
 Mientras la figura se acercaba, la niña se dio cuenta que era una mujer embarazada a punto de dar a luz.
 
 ##
-Tímida pero valientemente, la pequeña niña se acercó a la mujer. "Tenemos que cuidar de ella," decidieron los familiares de la niña pequeña. "Ella y su bebé estarán a salvo con nosotros". 
+Tímida pero valientemente, la pequeña niña se acercó a la mujer. "Tenemos que cuidar de ella," decidieron los familiares de la niña pequeña. "Ella y su bebé estarán a salvo con nosotros".
 
 ##
 Al poco tiempo, el bebé empezó a nacer. "¡Puja!" "¡Traigan mantas!" "¡Agua!" "¡¡¡Puuuuujjjjjaaa!!!

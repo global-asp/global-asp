@@ -22,7 +22,7 @@ Me asusté cuando escuché que mi abuela me llamaba, "¿Qué estás haciendo? Ap
 Al día siguiente, mi abuela vino a visitar a mi madre. En ese momento, corrí a su casa a revisar los plátanos otra vez. Había un montón de plátanos muy maduros. Cogí uno y lo escondí en mi vestido. Después de volver a cubrir el canasto, fui detrás de la casa y me lo comí rápidamente. Era el plátano más dulce que me había comido en toda mi vida.
 
 ##
-Al día siguiente, cuando mi abuela estaba en su huerta recolectando vegetales, entré a su casa hurtadillas y revisé los plátanos. Casi todos estaban maduros. No pude evitar coger cuatro. Mientras caminaba de puntitas hacia la salida, escuché a mi abuela toser afuera. Logré esconder los plátanos bajo mi vestido y pasé caminando al lado de ella. 
+Al día siguiente, cuando mi abuela estaba en su huerta recolectando vegetales, entré a su casa hurtadillas y revisé los plátanos. Casi todos estaban maduros. No pude evitar coger cuatro. Mientras caminaba de puntitas hacia la salida, escuché a mi abuela toser afuera. Logré esconder los plátanos bajo mi vestido y pasé caminando al lado de ella.
 
 ##
 El día siguiente era día de mercado. Mi abuela se despertó temprano. Ella siempre tomaba los plátanos maduros y la yuca para venderlos en el mercado. Ese día no me apresuré en ir a visitarla. Pero no pude evitarla por mucho tiempo.

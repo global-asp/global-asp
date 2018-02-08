@@ -28,13 +28,13 @@ Simbegwire estaba muy enfadada. Ella decidió irse de su casa. Tomó los pedazos
 Cuando atardeció, Simbegwire se trepó a un árbol muy alto que estaba cerca de un riachuelo e hizo una cama en sus ramas. Mientras se quedaba dormida, ella cantaba: "Maamá, maamá, maamá, me abandonaste. Me abandonaste y nunca regresaste. Mi padre ya no me ama. Madre, ¿cuándo regresarás? Me abandonaste."
 
 ##
-A la mañana siguiente, Simbegwire cantó una vez más. Cuando unas mujeres vinieron a lavar sus ropas en el riachuelo, escucharon la triste canción que venía de lo alto del árbol. Pensaron que sólo era el viento moviendo las hojas, y siguieron con su trabajo. Pero una de las mujeres le puso más atención a la canción. 
+A la mañana siguiente, Simbegwire cantó una vez más. Cuando unas mujeres vinieron a lavar sus ropas en el riachuelo, escucharon la triste canción que venía de lo alto del árbol. Pensaron que sólo era el viento moviendo las hojas, y siguieron con su trabajo. Pero una de las mujeres le puso más atención a la canción.
 
 ##
 Esta mujer miró hacia arriba del árbol. Cuando vio a la niña con su manta en pedazos, gritó, "¡Simbegwire, la hija de mi hermano!" Las otras mujeres dejaron de lavar y ayudaron a Simbegwire a bajar del árbol. Su tía la abrazó y trató de consolarla.
 
 ##
-La tía de Simbegwire la llevó a su casa. Le dio de comer, y la acomodó en la cama con la manta de su madre. Esa noche, Simbegwire lloraba mientras se quedaba dormida. Pero eran lágrimas de alegría. Sabía que su tía cuidaría de ella. 
+La tía de Simbegwire la llevó a su casa. Le dio de comer, y la acomodó en la cama con la manta de su madre. Esa noche, Simbegwire lloraba mientras se quedaba dormida. Pero eran lágrimas de alegría. Sabía que su tía cuidaría de ella.
 
 ##
 Cuando el padre de Simbegwire regresó a casa, encontró su habitación vacía. "¿Qué ocurrió, Anita?" él preguntó con gran tristeza. La mujer le dijo que Simbegwire había huido de casa. "Quería que me respetara," ella dijo. "Pero quizás fui muy estricta." El padre de Simbegwire salió de la casa y caminó con dirección hacia el riachuelo. Siguió caminando hasta la villa de su hermana para preguntarle por Simbegwire.

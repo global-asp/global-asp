@@ -16,7 +16,7 @@ Tanging si Agila lang ang may karayom sa kanilang nayon, kaya nauna siyang manah
 Ngunit nakita ng ibang mga ibon na lumipad palayo si Agila. Nakiusap sila kay Inahin na ipahiram sa kanila ang karayom para makapaghabi rin sila ng sarili nilang mga pakpak. 'Di naglaon ay nagsisiliparan na rin sa langit ang ibang mga ibon.
 
 ##
-Wala si Inahin nang ibinalik ng huling ibon ang hiram na karayom. Kinuha ng mga anak niya ang karayom at pinaglaruan ito. Nang magsawa sila sa paglalaro, iniwan nila ang karayom sa buhangin. 
+Wala si Inahin nang ibinalik ng huling ibon ang hiram na karayom. Kinuha ng mga anak niya ang karayom at pinaglaruan ito. Nang magsawa sila sa paglalaro, iniwan nila ang karayom sa buhangin.
 
 ##
 Bumalik si Agila kinahapunan. Hinanap niya ang karayom para tagpiin ang mga balahibong lumuwag sa kanyang paglalakbay. Naghanap si Inahin sa paminggalan. Naghanap siya sa kusina. Naghanap siya sa bakuran. Pero hindi niya mahanap ang karayom.

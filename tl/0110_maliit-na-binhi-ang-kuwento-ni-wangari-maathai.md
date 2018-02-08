@@ -19,7 +19,7 @@ Mahilig siyang matuto! Dumami ng dumami ang natutunan ni Wangari sa bawat libron
 Maraming bagong natutunan si Wangari sa pamantasan sa Amerika. Pinag-aralan niyang husto ang mga halaman at kung paano sila lumaki. At naalala niya kung paano siya lumaki: nakipaglaro siya sa kanyang mga kuya sa ilalim ng mga puno ng magagandang kagubatan sa Kenya.
 
 ##
-Habang dumarami ang kaalaman niya, mas napagtanto niya na mahal niya ang kanyang mga kababayan sa Kenya. Gusto niyang maging masaya sila at malaya. Habang dumarami ang kaalaman niya, mas naalala niya ang kanyang Aprikanong tahanan. 
+Habang dumarami ang kaalaman niya, mas napagtanto niya na mahal niya ang kanyang mga kababayan sa Kenya. Gusto niyang maging masaya sila at malaya. Habang dumarami ang kaalaman niya, mas naalala niya ang kanyang Aprikanong tahanan.
 
 ##
 Nang matapos siya sa kanyang pag-aaral, bumalik siya sa Kenya. Ngunit nagbago na ang kanyang bayan. Dumukwang ang mga bukid sa kahabaan ng lupa. Walang panggatong para sa pagluluto ang mga kababaihan. Naghihirap ang mga tao at gutom ang mga bata.

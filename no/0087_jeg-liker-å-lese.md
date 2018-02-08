@@ -22,7 +22,7 @@ Hvem kan jeg lese for?
 Pappa og bestefar har ikke tid.
 
 ##
-Hvem kan jeg lese for? Jeg kan lese for meg selv! 
+Hvem kan jeg lese for? Jeg kan lese for meg selv!
 
 ##
 * License: [CC-BY]

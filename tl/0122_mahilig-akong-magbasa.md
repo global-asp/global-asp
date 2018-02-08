@@ -22,7 +22,7 @@ Sino ang maari kong basahan?
 Sila tatay at lolo ay nagkukpumpuni ng kotse.
 
 ##
-Sino ang maari kong basahan? Ako'y uupo at aking babasahan ang aking sarili. 
+Sino ang maari kong basahan? Ako'y uupo at aking babasahan ang aking sarili.
 
 ##
 * License: [CC-BY]

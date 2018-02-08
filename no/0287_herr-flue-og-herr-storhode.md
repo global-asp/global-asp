@@ -16,7 +16,7 @@ De kom til en elvebredd og begynte å krangle. Herr Flue sa: "Du kan ikke hoppe 
 ##
 "Hopp du!" sa herr Flue.
 "Nei, hopp du først", sa herr Storhode.
-Så herr Flue fløy over elva. 
+Så herr Flue fløy over elva.
 
 ##
 Så hoppet herr Storhode inn i elva. Men hodet hans var så stort at han begynte å synke.

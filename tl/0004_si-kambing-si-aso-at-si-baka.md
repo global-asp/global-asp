@@ -4,7 +4,7 @@
 Mabubuting magkakaibigan sina Kambing, si Aso, at si Baka. Isang araw, naglakbay sila sa isang taksi.
 
 ##
-Nang matapos ang paglalakbay nila, pinagbayad ng drayber ang mga ito. Nagbayad si Baka. 
+Nang matapos ang paglalakbay nila, pinagbayad ng drayber ang mga ito. Nagbayad si Baka.
 
 ##
 May sukli si Aso dahil hindi eksakto ang binayad niya.

@@ -28,7 +28,7 @@ Kinabukasan, nang namimitas ng gulay si Lola sa bakuran, pumuslit ako sa kuwarto
 Maagang gumising si Lola kinabukasan para magtinda sa palengke. Lagi niyang dala ang mga hinog na saging at kamoteng-kahoy para itinda doon. Hindi ako nagmadaling dalawin siya noong araw na iyon. Pero hindi ko na siya maaaring iwasan pa.
 
 ##
-Kinagabihan, tinawag ako ni Nanay, Tatay, at ni Lola. Alam ko kung bakit. Sa pagtulog ko, alam kong hindi na ako magnanakaw muli, hindi kay Lola, hindi sa aking mga magulang, at siguradong hindi kaninuman. 
+Kinagabihan, tinawag ako ni Nanay, Tatay, at ni Lola. Alam ko kung bakit. Sa pagtulog ko, alam kong hindi na ako magnanakaw muli, hindi kay Lola, hindi sa aking mga magulang, at siguradong hindi kaninuman.
 
 ##
 * License: [CC-BY]

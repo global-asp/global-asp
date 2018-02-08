@@ -31,7 +31,7 @@ Ich kann meine Knöpfe zumachen und meine Schnürsenkel binden.
 Ich sorge dafür, dass mein kleiner Bruder alle Neuigkeiten aus der Schule erfährt.
 
 ##
-In der Schule gebe ich mein Bestes. 
+In der Schule gebe ich mein Bestes.
 
 ##
 Ich tue all diese guten Dinge jeden Tag. Aber das, was ich am meisten mag, ist spielen und spielen!
