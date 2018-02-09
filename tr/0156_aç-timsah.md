@@ -10,7 +10,7 @@ Sessizce ve yavaşça yiyecek av aramış. Ve sonra aniden...
 Hooopp!!! Timsah saldırısı!
 
 ##
-Ve böylece artık aç değil ve çok mutlu.
+Ve böylece o artık aç değil ve çok mutlu.
 
 ##
 Tabii karnı tekrar acıkana kadar.

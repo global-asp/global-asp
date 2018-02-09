@@ -1,28 +1,28 @@
-# Hayvanlara Bak
+# Hayvanlara bak
 
 ##
 Hayvanlara bak.
 
 ##
-İnek ”Möö.” diyor.
+İnek "Möö." diyor.
 
 ##
-Keçi ”Mee, Mee” diyor.
+Keçi "Mee, Mee" diyor.
 
 ##
-At ”İhiii” diyor.
+At "İhiii" diyor.
 
 ##
-Domuz ”Öğrn.” diyor.
+Domuz "Öğrn." diyor.
 
 ##
-Tavuk ”Gıt gıt gıt.” diyor.
+Tavuk "Gıt gıt gıt." diyor.
 
 ##
-Köpek  ”Hav hav.” diyor.
+Köpek "Hav hav." diyor.
 
 ##
-Çiftçi ”Şşşt!” diyor.
+Çiftçi "Şşşt!" diyor.
 
 ##
 * License: [CC-BY-NC]

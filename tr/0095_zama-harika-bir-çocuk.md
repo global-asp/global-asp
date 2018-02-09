@@ -31,11 +31,10 @@ Düğmelerimi ilikliyorum ve ayakkabılarımı bağlıyorum.
 Ve küçük erkek kardeşimin mutlaka okulla ilgili haberleri öğrenmesini sağlıyorum.
 
 ##
-Sınıfta hergün elimden gelenin en iyisini yapmaya gayret ediyorum.
+Sınıfta her gün elimden gelenin en iyisini yapmaya gayret ediyorum.
 
 ##
-Hergün bütün bu iyi şeyleri yapıyorum. Ama tabii en çok sevdiğim şey bir sürü oyunlar oynamak!
-
+Her gün bütün bu iyi şeyleri yapıyorum. Ama tabii en çok sevdiğim şey bir sürü oyunlar oynamak!
 
 ##
 * License: [CC-BY]

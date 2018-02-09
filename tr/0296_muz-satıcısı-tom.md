@@ -7,7 +7,7 @@ Tom bir tepsi dolusu olgun muz taşıyor.
 Tom muzları satmak için pazara gidiyor.
 
 ##
-Pazardaki insanlar meyva alıyorlar.
+Pazardaki insanlar meyve alıyorlar.
 
 ##
 Ama hiç kimse Tom'un muzlarını almıyor.

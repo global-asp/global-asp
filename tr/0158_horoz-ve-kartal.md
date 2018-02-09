@@ -7,7 +7,7 @@ Bir zamanlar Horoz ve Kartal arkadaşmışlar. Diğer kuşlarla birlikte barış
 Bir gün ülkede kıtlık olmuş. Kartal yemek bulmak için çok uzaklara kadar yürümek zorunda kalmiş. Geri döndüğünde çok yorulmuş. "Yolculuk yapmanın daha kolay bir yolu olmalı!" demiş Kartal.
 
 ##
-Iyi bir gece uykusundan sonra, Tavuğun aklına parlak bir fikir gelmiş. Kuş arkadaşlarından dökülen tüyleri toplamaya başlamış. "Gel bu tüyleri birleştirip dikelim ve kendi kanatlarımızın üzerine ekleyelim," demiş Horoz. "Belki daha kolay yolculuk yapmamızı sağlar."
+İyi bir gece uykusundan sonra, Tavuğun aklına parlak bir fikir gelmiş. Kuş arkadaşlarından dökülen tüyleri toplamaya başlamış. "Gel bu tüyleri birleştirip dikelim ve kendi kanatlarımızın üzerine ekleyelim," demiş Horoz. "Belki daha kolay yolculuk yapmamızı sağlar."
 
 ##
 Köyde dikiş iğnesi sadece Kartal'da varmış, böylece ilk o dikmeye başlamış. Kendine çok güzel iki kanat dikip yükselerek Tavuğun üzerinde uçmuş. Tavuk iğneyi ödünç almış ama dikerken yorulmuş. İğneyi dolaba koyup mutfağa çocuklarına yemek hazırlamaya gitmiş.
@@ -22,13 +22,13 @@ Son kuş ödünç iğneyi geri getirdiğinde Tavuk evde değilmiş. İğneyi ço
 Saatler sonra Kartal geri dönmüş. Yolculuğu sırasında bollaşan bazı tüylerini sağlamlaştırmak için iğneyi geri istemiş. Tavuk dolaba bakmış. Mutfağa bakmış. Bahçeye bakmış. Ama iğneyi hiç bir yerde bulamamış.
 
 ##
-"Bana bir gün izin ver," diye yalvarmış Tavuk. "Sonra kanadını tamir edip gene yemek aramak için uçarsın." "Sadece bir gün ama," demiş Kartal. "Eğer iğneyi bulamazsan karşilığında civcivlerinden birini alırım."
+"Bana bir gün izin ver," diye yalvarmış Tavuk. "Sonra kanadını tamir edip gene yemek aramak için uçarsın." "Sadece bir gün ama," demiş Kartal. "Eğer iğneyi bulamazsan karşılığında civcivlerinden birini alırım."
 
 ##
 Ertesi gün Kartal geldiğinde, Tavuğu kumun içinde iğneyi ararken görmüş, ama iğne hâlâ yokmuş. Kartal da hızla aşağıya doğru uçup civcivlerden birini kapmış. Ve götürmüş. Ondan sonra ne zaman Kartal gelse, Tavuğun kumu karıştırarak iğne aradığını görürmüş.
 
 ##
-Ve Kartal'ın kanatlarının gölgesi yere vurur vurmaz, Tavuk civcivlerini uyarırmış. "Açık ve düz yerlerden uzaklaşın." Ve onlar cevap verirlermiş. "Aptal değiliz ki elbetre kaçacağız."
+Ve Kartal'ın kanatlarının gölgesi yere vurur vurmaz, Tavuk civcivlerini uyarırmış. "Açık ve düz yerlerden uzaklaşın." Ve onlar cevap verirlermiş. "Aptal değiliz ki elbette kaçacağız."
 
 ##
 * License: [CC-BY]

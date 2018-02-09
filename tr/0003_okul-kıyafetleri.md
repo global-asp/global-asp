@@ -1,4 +1,4 @@
-# Okul Kıyafetleri
+# Okul kıyafetleri
 
 ##
 Bu elbise uzun.

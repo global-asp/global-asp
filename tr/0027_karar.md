@@ -25,7 +25,7 @@ Rüzgar estiğinde atık kağıtlar ağaçlara ve çitlere takılırdı.
 İnsanlar dikkatsizce atılan kırık camlar yüzünden bir yerlerini keserlerdi.
 
 ##
-Ardından bir gün, musluk kurudu ve bizim konteynırlarımız boştu.
+Ardından bir gün, musluk kurudu ve bizim kaplarımız boştu.
 
 ##
 Babam evden eve dolaşarak insanları köy toplantısına katılmaları için çağırdı.
@@ -34,19 +34,19 @@ Babam evden eve dolaşarak insanları köy toplantısına katılmaları için ç
 İnsanlar büyük bir ağacın altında toplandılar ve dinlediler.
 
 ##
-Babam ayağa kalktı ve dedi ki ”Problemlerimizi çözmek için birlikte çalışmalıyız.”
+Babam ayağa kalktı ve dedi ki "Problemlerimizi çözmek için birlikte çalışmalıyız."
 
 ##
-Sekiz yaşındaki Juma, bir ağacın dalında oturarak bağırdı, ”Ben temizleme de yardım edebilirim.”
+Sekiz yaşındaki Juma, bir ağacın dalında oturarak bağırdı, "Ben temizleme de yardım edebilirim."
 
 ##
-Bir kadın dedi ki ”Kadınlar yiyecek yetiştirme de bana katılabilirler.”
+Bir kadın dedi ki "Kadınlar yiyecek yetiştirme de bana katılabilirler."
 
 ##
-Başka bir adam kalktı ve dedi ki, ”Erkekler kuyu açacaklar.”
+Başka bir adam kalktı ve dedi ki, "Erkekler kuyu açacaklar."
 
 ##
-Hepimiz bir ağızdan bağırdık, ” Hayatlarımızı değiştirmek zorundayız.” O günden itibaren problemlerimizi çözmek için hep birlikte çalıştık.
+Hepimiz bir ağızdan bağırdık, " Hayatlarımızı değiştirmek zorundayız." O günden itibaren problemlerimizi çözmek için hep birlikte çalıştık.
 
 ##
 * License: [CC-BY]

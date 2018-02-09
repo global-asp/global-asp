@@ -19,7 +19,7 @@ Ancak çocuklardan biri hep güneşe çıkmayı hayal edermiş.
 Nitekim sonunda bir gün dayanamamış. Kardeşleri onu uyarmışlar.
 
 ##
-Ama artık çok geçmiş. Cocuk sıcak güneşin altında eriyivermiş.
+Ama artık çok geçmiş. Çocuk sıcak güneşin altında eriyivermiş.
 
 ##
 Diğer mum çocuklar kardeşleri eriyip yok olduğu için çok üzülmüşler.

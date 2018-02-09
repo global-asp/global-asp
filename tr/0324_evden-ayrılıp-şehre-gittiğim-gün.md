@@ -19,7 +19,7 @@ Ben pencere kenarında bir yere sıkıştım. Yanımda oturan kişi elindeki ye�
 Camdan dışarı baktım ve doğup büyüdüğüm köyümden ayrıldığımın iyice farkına vardım. Büyük şehre gidiyordum.
 
 ##
-Otobüsün yüklenme işi bitmiş bütün yolcular yerlerine oturmuştu. Bazı satıcılar mallarini satmak için otobüse girmişlerdi. Herbiri ne satıyorsa bağıra bağıra pazarlıyordu. Ettikleri laflar cok komikti.
+Otobüsün yüklenme işi bitmiş bütün yolcular yerlerine oturmuştu. Bazı satıcılar mallarını satmak için otobüse girmişlerdi. Her biri ne satıyorsa bağıra bağıra pazarlıyordu. Ettikleri laflar çok komikti.
 
 ##
 Bir kaç yolcu içecek aldı, diğerleri ufak çerezler alıp yemeğe başladı. Benim gibi parası olmayanlar ise sadece onları izliyordu.
@@ -40,10 +40,10 @@ Yolculuk ilerledikçe otobüsün içi iyice sıcaklaştı. Ben de gözlerimi kap
 Ama aklım hep köyümde idi. Annem güvende olacak mıydı? Tavşanlarım yeterli para getirecek miydi? Kardeşim ektiğim ağaç tohumlarımı sulamayı hatırlayacak mıydı?
 
 ##
-Yol esnasında hep amcamın büyük şehirde oturduğu yerin adını aklımda tutmaya çalıştım. Uykuya dalarken bile onu mırıldanıyordum.
+Yol sırasında hep amcamın büyük şehirde oturduğu yerin adını aklımda tutmaya çalıştım. Uykuya dalarken bile onu mırıldanıyordum.
 
 ##
-Dokuz saat sonra, bir vurma gürültüsüyle uyandım. Otobüse vurarak köyüme gitmek isteyen yolcuları cağırıyorlardı. Hemen küçük torbamı alıp otobüsten indim.
+Dokuz saat sonra, bir vurma gürültüsüyle uyandım. Otobüse vurarak köyüme gitmek isteyen yolcuları çağırıyorlardı. Hemen küçük torbamı alıp otobüsten indim.
 
 ##
 Dönüş yolu için otobüs hızla doluyordu. Az sonra doğuya doğru hareket edecekti. Şimdi benim için en önemli şey amcamın oturduğu yeri aramaya başlamaktı.

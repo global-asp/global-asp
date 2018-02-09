@@ -1,4 +1,4 @@
-# Okumayı Seviyorum!
+# Okumayı seviyorum!
 
 ##
 Okumayı seviyorum.

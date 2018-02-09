@@ -10,7 +10,7 @@ Onunla beraber ineklere bakıyor, onlara göz kulak oluyormuş.
 Bir gün askerler gelmiş.
 
 ##
-Inekleri alıp götürmüşler.
+İnekleri alıp götürmüşler.
 
 ##
 Tingi ve büyükannesi kaçıp saklanmışlar.
@@ -31,7 +31,7 @@ Askerlerden biri ayağını tam onun üstüne basmış, ama o hiç kımıldamam�
 Tehlike geçtiğinde, Tingi ve büyükannesi tekrar ortaya çıkmışlar.
 
 ##
-Yavaşça, dikkatle ve sessice evlerine doğru hareket etmişler.
+Yavaşça, dikkatle ve sessizce evlerine doğru hareket etmişler.
 
 ##
 * License: [CC-BY]

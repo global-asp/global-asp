@@ -1,4 +1,4 @@
-# Bir Küçük Tohum: Wangari Maathai'nin Hikayesi
+# Bir küçük tohum: Wangari Maathai'nin hikayesi
 
 ##
 Güney Afrika'da Kenya Dağı'nın eteklerindeki bir köyde, küçük bir kız annesiyle birlikte tarlalarda çalışırdı. Bu kızın adı Wangari idi.
@@ -19,7 +19,7 @@ O, öğrenmeyi sevdi! Wangari, okuduğu her kitapla daha fazla, daha fazla şey 
 Amerika üniversitesinde, Wangari bir sürü yeni şeyler öğrendi. O, bitkiler ve bitkilerin nasıl yetişeceği alanında okudu. Ve nasıl büyüdüğünü anımsadı: erkek kardeşiyle güzel Kenya ormanlarının ağaçlarının gölgesinde oyunlar oynamalarını.
 
 ##
-Daha çok öğrendikçe daha da farkına vardı ki o Kenya'nın insanlarını çok seviyordu. Onların mutlu ve özgür olmalarını istiyordu. Daha çok şey öğrendikçe Afrikadaki evi hakkında daha çok şey hatırladı.
+Daha çok öğrendikçe daha da farkına vardı ki o Kenya'nın insanlarını çok seviyordu. Onların mutlu ve özgür olmalarını istiyordu. Daha çok şey öğrendikçe Afrika’daki evi hakkında daha çok şey hatırladı.
 
 ##
 Çalışmalarını bitirdiği zaman Kenya'ya döndü. Ama ülkesi değişmişti. Koca çiftlikler arazi boyunca uzatılmıştı. Kadınların yemek yapmak için ateş yakacak odunları yoktu. İnsanlar fakirdi, ve çocuklar açtı.

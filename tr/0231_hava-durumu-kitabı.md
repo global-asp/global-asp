@@ -1,4 +1,4 @@
-# Hava Durumu Kitabı
+# Hava durumu kitabı
 
 ##
 Kuru.

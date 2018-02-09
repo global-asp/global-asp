@@ -40,13 +40,13 @@ Odongo ve Apiyo ev işlerinde büyükannelerine yardım ettiler. Su ve odun taş
 Nyar-Kanyada, torunlarına yumuşak Ugali yapmasını ve yahni ile yenmesini öğretti. Onlara, kızarmış balıkla yemek için nasıl hindistan cevizli pilav yapacaklarını gösterdi.
 
 ##
-Bir gün, Odongo, büyükannesinin ineklerini otlatmaya götürdü. İnekler komşu tarlaya girdiler. Çiftçi Odongoya kızmıştı. Onu, inekler ekinlerini yediği için onlara el koyacağını söyleyerek tehdit etti. O günden sonra, Odongo ineklerin tekrardan bir belaya bulaşmayacağına söz verdi.
+Bir gün, Odongo, büyükannesinin ineklerini otlatmaya götürdü. İnekler komşu tarlaya girdiler. Çiftçi Odongo'ya kızmıştı. Onu, inekler ekinlerini yediği için onlara el koyacağını söyleyerek tehdit etti. O günden sonra, Odongo ineklerin tekrardan bir belaya bulaşmayacağına söz verdi.
 
 ##
-Başka bir gün, çocuklar Nyar-Kenyada ile birlikte pazara gittiler. Onun, sebze, şeker ve sabun satmak için bir tezgahı vardı. Apiyo, müşterilere eşyaların fiyatlarını söylemekten hoşlanmıştı. Odongo da müşterilerin aldıklarını paketledi.
+Başka bir gün, çocuklar Nyar-Kanyada ile birlikte pazara gittiler. Onun, sebze, şeker ve sabun satmak için bir tezgahı vardı. Apiyo, müşterilere eşyaların fiyatlarını söylemekten hoşlanmıştı. Odongo da müşterilerin aldıklarını paketledi.
 
 ##
-Günün sonunda, hep birlikte chai çayı içtiler. Büyükannelerine kazandığı parayı saymasında yardım ettiler.
+Günün sonunda, hep birlikte sütlü çay içtiler. Büyükannelerine kazandığı parayı saymasında yardım ettiler.
 
 ##
 Ama çok kısa bir sürede tatil bitti ve çocuklar şehre geri dönmek zorundaydılar. Nyar Kanyada Odongo'ya bir şapka, Apiyo'ya da bir kazak verdi. Yolculuk için onlara yiyecek paketledi.

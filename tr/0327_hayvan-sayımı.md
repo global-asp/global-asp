@@ -4,10 +4,10 @@
 Bir fil su içecek.
 
 ##
-Iki zürafa su içecek.
+İki zürafa su içecek.
 
 ##
-Üç buffalo ve dört kuş da su içecek.
+Üç bizon ve dört kuş da su içecek.
 
 ##
 Beş impala ve altı yaban domuzu da suya doğru yürüyorlar.

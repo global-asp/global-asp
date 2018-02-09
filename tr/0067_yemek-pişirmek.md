@@ -1,4 +1,4 @@
-# Yemek Pişirmek
+# Yemek pişirmek
 
 ##
 Patatesleri soyuyorum.
@@ -13,7 +13,7 @@ Havuçları rendeliyorum.
 Fasulyeleri yıkıyorum.
 
 ##
-Balkabağını kesiyorum.
+Bal kabağını kesiyorum.
 
 ##
 Ispanakları doğruyorum.

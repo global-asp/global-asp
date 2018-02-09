@@ -19,7 +19,7 @@ Birkaç ay sonra, Simbegwire'ın babası onlara bir süreliğine evden uzaklaşa
 Simbegwire için işler daha da kötüye gitti. Ev işlerini bitirmezse, veya şikayet ederse, Anita ona vuruyordu. Ve akşam yemeklerinde, kadın yemeğin çoğunu yerken, Simbegwire'a sadece birkaç lokma bırakıyordu. Her gece, Simbegwire uyumak için annesinin battaniyesine sarılıp kendi kendine ağlıyordu.
 
 ##
-Bir sabah, Simbegwire yataktan kalkmak için geç kaldı. "Seni tembel kız!" diye bağırdı Anita. Simbegwire'ı yatağın dışına çekti. Değerli battaniye bir çiviye takıldı, ve ikiye yırtıldı.
+Bir sabah, Simbegwire yataktan kalkmak için geç kaldı. "Seni tembel kız!" diye bağırdı Anita. Simbegwire'ı yatağın dışına çekti. Değerli battaniye bir çiviye takıldı, ve yırtılıp ikiye ayrıldı.
 
 ##
 Simbegwire çok üzgündü. Evden kaçmaya karar verdi. Annesinin battaniyesinin parçalarını aldı, biraz yemek paketledi, ve evden ayrıldı. Babasının ayrıldığı yolu takip etti.
@@ -31,13 +31,13 @@ Akşam olduğu zaman, akarsuyun yanındaki uzun bir ağaca tırmandı, ve kendi 
 Ertesi sabah, Simbegwire şarkıyı tekrar söyledi. Kadınlar, kıyafetlerini yıkamak için akarsuya geldiklerinde, uzun ağaçtan gelen hüzünlü şarkıyı duydular. Onlar, sadece rüzgarın yaprakları salladığını düşündüler, ve işlerine devam ettiler. Ama kadınlardan biri şarkıyı çok dikkatlice dinledi.
 
 ##
-Bu kadın ağacın içine, yukarı doğru baktı. Kızı ve elindeki renkli battaniyeyi gördüğü zaman, bağırdı, " Simbegwire, erkek kardeşimin çocuğu!" Diğer kadın çamaşır yıkamayı bıraktı ve Simbegwire'a ağaçtan inmesine yardım etti. Halası küçük kızı kucakladı ve onu rahatlatmaya çalıştı.
+Bu kadın ağacın içine, yukarı doğru baktı. Kızı ve elindeki renkli battaniyeyi gördüğü zaman, bağırdı, "Simbegwire, erkek kardeşimin çocuğu!" Diğer kadın çamaşır yıkamayı bıraktı ve Simbegwire'a ağaçtan inmesine yardım etti. Halası küçük kızı kucakladı ve onu rahatlatmaya çalıştı.
 
 ##
-Simbegwire'ın halası, çocuğu kendi evine götürdü. Simbegwire'a sıcak yemek verdi, ve onu, annesinin battaniyesiyle birlikte yatağa yatırdı. O gece, Simbegwire uykuya dalarken ağladı. Fakat bunlar rahatlamanın gözyaşlarıydı. O biliyordu ki halası ona bakacaktı.
+Simbegwire'ın halası, çocuğu kendi evine götürdü. Simbegwire'a sıcak yemek verdi, ve onu, annesinin battaniyesiyle birlikte yatağa yatırdı. O gece, Simbegwire uykuya dalarken ağladı. Fakat bunlar rahatlamanın göz yaşlarıydı. O biliyordu ki halası ona bakacaktı.
 
 ##
-Simbegwire'ın babası eve döndüğü zaman, kızının odasını boş buldu. "Ne oldu Anita?" diye buruk bir yürekle sordu. Kadın, Simbegwire'ın kaçtığını açıkladı. "Ben ondan bana saygı duymasını istedim." dedi "Ama belki çok serttim." Simbegwire'ın babası evi terk etti ve akarsu yönünde ilerledi. Eğer kız kardeşi Simbegwire'ı görmüşse öğrenmek için, kız kardeşinin köyüne kadar devam etti.
+Simbegwire'ın babası eve döndüğü zaman, kızının odasını boş buldu. "Ne oldu Anita?" diye buruk bir yürekle sordu. Kadın, Simbegwire'ın kaçtığını açıkladı. "Ben ondan bana saygı duymasını istedim." dedi "Ama belki çok serttim." Simbegwire'ın babası evi terk etti ve akarsu yönünde ilerledi. Kız kardeşinin Simbegwire'ı görüp görmediğini öğrenmek için, kız kardeşinin köyüne kadar devam etti.
 
 ##
 Simbegwire babasını çok uzaktan gördüğünde, kuzenleriyle birlikte oynuyordu. Belki babası kızgın olabilir diye korktu, o yüzden saklanmak için evin içine koştu. Ama babası kızının yanına gitti ve dedi ki "Simbegwire, sen kendin için mükemmel bir anne buldun. Seni seven ve anlayan biri. Seninle gurur duyuyor ve seni seviyorum." Onlar, Simbegwire'ın istediği kadar halasında kalabileceği konusunda anlaştılar.

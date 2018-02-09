@@ -1,4 +1,4 @@
-# Benim Kedim Nerede?
+# Benim kedim nerede?
 
 ##
 Benim kedim nerede?
@@ -10,7 +10,7 @@ Yatağın altında mı?
 Dolabın üstünde mi?
 
 ##
-Koltuğun yaninda mı?
+Koltuğun yanında mı?
 
 ##
 Çöpün yan tarafında mı?
@@ -28,5 +28,5 @@ Evin dışında mı?
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Bronwen Heath
-* Translation: Nahide Büşra Ertekin, Zeynep Kara
+* Translation: Nahide Büşra Ertekin & Zeynep Kara
 * Language: tr

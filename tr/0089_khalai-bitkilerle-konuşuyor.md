@@ -19,7 +19,7 @@ Okulda Khalai bahçenin ortasındaki ağaca sesleniyor. "Lütfen, ağaç uzun ve
 Khalai okulu çevreleyen çalılıklara sesleniyor. "Lütfen büyüyüp çok kuvvetli olun ki kötü kişiler içeri giremesin."
 
 ##
-Khakai okuldan evine döndüğünde, portakal ağacını ziyaret ediyor. "Portakalların olgunlaştı mı?" diye soruyor.
+Khalai okuldan evine döndüğünde, portakal ağacını ziyaret ediyor. "Portakalların olgunlaştı mı?" diye soruyor.
 
 ##
 "Portakallar hala yeşil," diye iç geçiriyor Khalai. "Yarın gene görüşürüz portakal ağacı" diyor ve ekliyor. "Belki yarın bana olgun bir portakal verebilirsin!"

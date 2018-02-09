@@ -1,4 +1,4 @@
-# Çok Uzun Bir Adam
+# Çok uzun bir adam
 
 ##
 Onun çapası çok kısaydı.
@@ -31,7 +31,7 @@ Bu adam çok uzundu!
 Çok yüksek bir sandalyede oturdu. Çok uzun bir çatalla yemek yedi.
 
 ##
-Evini terketti, ve büyük bir ormanda yaşadı. Çok uzun yıllar yaşadı.
+Evini terk etti, ve büyük bir ormanda yaşadı. Çok uzun yıllar yaşadı.
 
 ##
 * License: [CC-BY]

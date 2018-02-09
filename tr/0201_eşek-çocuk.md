@@ -1,4 +1,4 @@
-# Eşek Çocuk
+# Eşek çocuk
 
 ##
 Küçük bir kız uzakta ilginç bir karaltı görmüş.
@@ -7,7 +7,7 @@ Küçük bir kız uzakta ilginç bir karaltı görmüş.
 Karaltıya yaklaştığında onun hamile bir kadın olduğunu anlamış.
 
 ##
-Küçük kız utanarak ama cesaretle kadına biraz daha yaklaşmış. Küçük kızın ailesi "Bu kadın bizimle kalmalı," diye düşünmüşler. "Onu ve çocuğunu korumamız lâzım."
+Küçük kız utanarak ama cesaretle kadına biraz daha yaklaşmış. Küçük kızın ailesi "Bu kadın bizimle kalmalı," diye düşünmüşler. "Onu ve çocuğunu korumamız lazım."
 
 ##
 Küçük çocuk hemen koşuşturmuş. "Haydi bir gayret ıkın!" "Örtü bulun!" "Su getirin!" "Ikıııın!"
@@ -34,7 +34,7 @@ Yavaş yavaş eşek de şaşırmaya kızmaya başlamış. Onu yapamazsın bunu y
 Sonra çok utanmış. Oradan olabildiğince uzaklara kaçmış.
 
 ##
-Kaçmayı bıraktığında gece olmuşmuş. Nerde olduğunu bilmiyormuş. Eşek kaybolmuş. "Aaaaa iiiii?" diye fısıldamış karanlığa doğru. Sesi eko yapıp geri gelmiş. "Aaaaa iiiii?" Yapayalnızmış. Olduğu yerde kıvrılıp huzursuzca bir uykuya dalmış.
+Kaçmayı bıraktığında gece olmuşmuş. Nerede olduğunu bilmiyormuş. Eşek kaybolmuş. "Aaaaa iiiii?" diye fısıldamış karanlığa doğru. Sesi eko yapıp geri gelmiş. "Aaaaa iiiii?" Yapayalnızmış. Olduğu yerde kıvrılıp huzursuzca bir uykuya dalmış.
 
 ##
 Eşek uyandığında yaşlı garip bir adamın ona baktığını görmüş. Adamın gözlerine baktığında içinde bir umut belirmiş.
@@ -43,16 +43,16 @@ Eşek uyandığında yaşlı garip bir adamın ona baktığını görmüş. Adam
 Eşek adamla birlikte yaşamaya başlamış. Adam ona hayatta kalması için çeşitli yollar öğretmiş. Eşek iyice dinlemiş ve öğrenmeye başlamış. Adam da dikkatle onu izlemiş, dinlemiş. Beraberce birbirlerine yardım etmişler ve gülüp eğlenmişler.
 
 ##
-Bir sabah yaşlı adam ondan kendisini dağın tepesine çıkartmasıni istemiş.
+Bir sabah yaşlı adam ondan kendisini dağın tepesine çıkartmasını istemiş.
 
 ##
-Yukarda bulutların arasında beraberce uykuya dalmışlar. Eşek rüyasında annesinin hasta oldugunu ve ona seslendiğini görmüş. Ve hemen uyanmış.
+Yukarıda bulutların arasında beraberce uykuya dalmışlar. Eşek rüyasında annesinin hasta olduğunu ve ona seslendiğini görmüş. Ve hemen uyanmış.
 
 ##
 Bulutlar dağıldığında arkadaşı yaşlı adam da kaybolmuş.
 
 ##
-Eşek nihayetne yapması gerektiğini biliyormuş.
+Eşek nihayet ne yapması gerektiğini biliyormuş.
 
 ##
 Eşek, çocuğunu kaybettiği için yas tutan annesini bulmuş. Uzun bir süre bakışmışlar. Sonra birbirlerine koşarak sıkıca sarılmışlar.

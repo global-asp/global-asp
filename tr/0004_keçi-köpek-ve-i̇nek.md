@@ -13,13 +13,13 @@ Köpek kendi parasından biraz fazlasını ödemiş, çünkü bozuk parası yokm
 Keçi hiçbir para ödemeden uzaklaşırken, Taksici tam Köpek'in para üstünü vermek üzereymiş.
 
 ##
-Taksici, bu durumdan çok rahatsız olmuş . Köpek'in parasının üstünü vermeden oradan uzaklaşmış.
+Taksici, bu durumdan çok rahatsız olmuş. Köpek'in parasının üstünü vermeden oradan uzaklaşmış.
 
 ##
 Bu yüzden, bugün bile, Köpek, arabaların içine bakmak ve kendisine borçlu olan taksiciyi bulmak için arabaların peşinden koşar.
 
 ##
-Keçi araba sesinden kaçar. Ücretini odemediği için tutuklanmaktan korkar.
+Keçi araba sesinden kaçar. Ücretini ödemediği için tutuklanmaktan korkar.
 
 ##
 Ve İnek arabanın geldiğini görünce hiç rahatsız olmaz. Karşıdan karşıya geçmek için hiç acele etmez. Çünkü o bilir ki, ücretini tam olarak ödemiştir.

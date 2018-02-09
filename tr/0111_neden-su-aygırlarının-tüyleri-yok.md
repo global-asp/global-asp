@@ -1,4 +1,4 @@
-# Neden Su Aygırlarının Tüyleri Yok
+# Neden su aygırlarının tüyleri yok
 
 ##
 Bir gün, Tavşan nehir kenarında yürüyordu.
