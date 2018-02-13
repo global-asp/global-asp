@@ -1,4 +1,4 @@
-# Bananane til bestemor
+# Bestemors bananar
 
 ##
 Kjøkkenhagen til bestemor var full av durra, hirse og maniok. Men best av alt var bananane. Sjølv om bestemor hadde mange barneborn, visst eg i all løyndom at eg var favoritten hennar. Ho inviterte meg ofte heim til seg. Ho fortalde meg òg små løyndomar. Men det var éin løyndom ho ikkje delte med meg: kor ho mogna bananane.
@@ -25,7 +25,7 @@ Neste dag då bestemor kom for å vitja mora mi, skunda eg meg av garde til huse
 Neste dag medan bestemor var i kjøkkenhagen og plukka grønsaker, sneik eg meg inn og titta på bananane. Nesten alle var modne. Eg kunne ikkje la vera å ta ein klase med fire. I det eg lista meg mot døra, høyrde eg bestemor hosta utanfor. Eg rekte så vidt å gøyma bananane under kjolen og gjekk forbi ho.
 
 ##
-Neste dag var det marknadsdag. Bestemor stod tidleg opp. Ho tok alltid med modne bananar og kassava for å selja på marknaden. Eg skunda meg ikkje for å vitja ho den dagen. Men eg kunne ikkje vika unna ho veldig lengje.
+Neste dag var det marknadsdag. Bestemor stod tidleg opp. Ho tok alltid med modne bananar og maniok for å selja på marknaden. Eg skunda meg ikkje for å vitja ho den dagen. Men eg kunne ikkje vika unna ho veldig lengje.
 
 ##
 Seinare den kvelden sende mor, far og bestemor bod etter meg. Eg visste kvifor. Den natta då eg la meg til å sova, visste eg at eg ikkje kunne stela igjen, ikkje frå bestemor, ikkje frå foreldra mine, og definitivt ikkje frå nokre andre.
