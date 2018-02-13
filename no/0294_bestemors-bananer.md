@@ -25,7 +25,7 @@ Neste dag da bestemor kom for å besøke moren min, skyndte jeg meg av gårde ti
 Neste dag mens bestemor var i kjøkkenhagen og plukket grønnsaker, snek jeg meg inn og tittet på bananene. Nesten alle var modne. Jeg kunne ikke la være å ta en klase med fire. I det jeg listet meg mot døra, hørte jeg bestemor hoste utenfor. Jeg rakk så vidt å gjemme bananene under kjolen og gikk forbi henne.
 
 ##
-Neste dag var det markedsdag. Bestemor stod opp tidlig. Hun tok alltid med modne bananer og kassava for å selge på markedet. Jeg skyndte meg ikke for å besøke henne den dagen. Men jeg kunne ikke unnvike henne veldig lenge.
+Neste dag var det markedsdag. Bestemor stod opp tidlig. Hun tok alltid med modne bananer og maniok for å selge på markedet. Jeg skyndte meg ikke for å besøke henne den dagen. Men jeg kunne ikke unnvike henne veldig lenge.
 
 ##
 Senere den kvelden sendte mor, far og bestemor bud etter meg. Jeg visste hvorfor. Den natten da jeg la meg til å sove, visste jeg at jeg ikke kunne stjele igjen, ikke fra bestemor, ikke fra foreldrene mine, og definitivt ikke fra noen andre.
