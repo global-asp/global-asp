@@ -31,7 +31,7 @@ Beim Klettern wunderte sich Gingile, warum er nicht das übliche Summen hört. "
 Bevor Leopard Gingile zu fassen bekam, rauschte er den Baum hinunter. In der Eile verfehlte er einen Ast und plumpste auf den Boden, wobei er sich seinen Knöchel verstauchte. Er humpelte davon so schnell er konnte. Zu seinem Glück war Leopard immer noch zu müde um ihn zu jagen. Ngede, der Honiganzeiger, bekam seine Rache. Und Gingile hatte seine Lektion gelernt.
 
 ##
-
+Und deshalb haben Kinder, wenn sie die Geschichte von Ngede hören, Respekt vor dem kleinen Vogel. Immer wenn sie Honig ernten, lassen sie das größte Wabenstück für Honiganzeiger da!
 
 ##
 * License: [CC-BY]
