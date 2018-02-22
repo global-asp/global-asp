@@ -1,4 +1,4 @@
-# Det som systera til Vusi sa
+# Det systera til Vusi sa
 
 ##
 Tidleg ein morgon ropte bestemora til Vusi på han: "Vusi, ver snill og ta med dette egget til foreldra dine. Dei vil laga ei stor kake til bryllaupet til syster di."
