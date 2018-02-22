@@ -1,40 +1,39 @@
 # Ziarenko: Opowieść Wangari Maathai
 
 ##
-W wiosce, u zbocza najwyższej góry Kenii we wschodniej Afryce żyła sobie mała dziewczynka, gdzie razem z mamą pracowały w polu. Dziewczynka miała na imię Wangari.
+W wiosce, na zboczu najwyższej góry Kenii we wschodniej Afryce, żyła sobie mała dziewczynka. Razem z mamą pracowały w polu. Dziewczynka miała na imię Wangari.
 
 ##
-Wangari uwielbiała być na zewnątrz. W ogrodzie jej rodziny przygotowywała glebę, aby zasiać maleńkie ziarenka w ciepłej ziemi.
+Wangari uwielbiała być na zewnątrz. Przygotowywała maczetą glebę, aby zasiać maleńkie ziarenka w ciepłej ziemi w ogrodzie należącym do jej rodziny. 
 
 ##
-Jej ulubionym momentem w ciągu dnia był czas zaraz po zachodzie słońca. Wangari wiedziała, że gdy robiło się zbyt ciemno i nie była w stanie zobaczyć roślin - był to czas, aby wrócić do domu. Dziewczynka szła wąską dróżką między polami, mijająć rzeki.
+Jej ulubioną porą dnia był czas zaraz po zachodzie słońca. Wangari wiedziała, że gdy robiło się zbyt ciemno aby zobaczyć rośliny, powinna wrócić do domu. Dziewczynka szła wąskimi ścieżkami między polami, przekraczając po drodze rzeki.
 
 ##
-Wangari była mądrą dziewczynką i nie mogła doczekać się, aby pójść do szkoły. Ale mimo to, jej rodzice chcieli, aby Wangari została w domu i pomagała im przy domu. Gdy miała siedem lat, jej starszy brat przekonał rodziców, aby pozwolili jej iść do szkoły.
+Wangari była mądrą dziewczynką i nie mogła doczekać się, aby pójść do szkoły. Mimo to, jej rodzice chcieli, aby Wangari została w domu i pomagała im w obowiązkach. Gdy miała siedem lat, jej starszy brat przekonał jednak rodziców, aby pozwolili jej pójść do szkoły.
 
 ##
-Wangari bardzo lubiła się uczyć! Potrafiła coraz więcej czytając kolejne książki. W szkole szło jej tak dobrze, że otrzymała zaproszenie, aby kontynuować naukę w Ameryce! Dziewczynka była bardzo szczęśliwa! Była ciekawa świata.
+Wangari bardzo lubiła się uczyć! Z każdej nowej książki dowiadywała się czegoś nowego. W szkole szło jej tak dobrze, że otrzymała zaproszenie, aby kontynuować naukę w Stanach Zjednoczonych! Dziewczynka była bardzo szczęśliwa! Była bardzo ciekawa świata.
 
 ##
-Na Amerykańskim uniwersytecie Wangari nauczyła się wielu nowych rzeczy. Uczyła się o pochodzeniu roślin i przypominała sobie swoje dzieciństwo. Pamiętała jak bawiła się z braćmi w cieniu drzew w pięknych lasach Kenii.
+Wangari nauczyła się wielu nowych rzeczy na Amerykańskim uniwersytecie. Uczyła się o roślinach i przypominała sobie swoje dzieciństwo. Pamiętała jak bawiła się z braćmi w cieniu drzew w pięknych lasach Kenii.
 
 ##
-Im więcej wiedzy zdobywała, tym bardziej uświadamiała sobie jak bardzo kocha Kenię. Chciała, aby jej mieszkańcy byli radośni i wolni. Im więcej wiedzy zdobywała tym bardziej przypominał jej się jej dom w Afryce.
+Im więcej wiedzy zdobywała, tym bardziej uświadamiała sobie jak bardzo kocha Kenię. Chciała, aby jej mieszkańcy byli radośni i wolni. Im więcej wiedzy zdobywała, tym bardziej przypominał jej się jej dom w Afryce.
 
 ##
-Kiedy zakończyła edukację, postanowiła wrócić do Kenii. Ku jej zdziwieniu, jej ojczyzna była teraz inna. Kobietom brakowało drewna, które umożliwia przyrządzanie posiłków. Ludzie byli biedni, a dzieci głodne.
+Kiedy zakończyła edukację, wróciła do Kenii. Jednak jej kraj bardzo się zmienił. Wszędzie były ogromne gospodarstwa rolne. Kobietom brakowało drewna, które było potrzebne do  przyrządzania posiłków. Ludzie byli biedni, a dzieci głodne.
 
 ##
-Na szczęście Wangari wiedziała co robić. Nauczyła kobiety siać drzewa. Kobiety sprzedawały drzewa i z zarobionych pieniędzy utrzymywały swoje rodziny. Kobiety były szczęśliwe. Wangari pomogła im poczuć, że są silne i potrzebne.
+Na szczęście Wangari wiedziała co robić. Nauczyła kobiety jak siać nasiona drzew. Kobiety sprzedawały drzewa i z zarobionych pieniędzy utrzymywały swoje rodziny. Kobiety były bardzo szczęśliwe. Dzięki pomocy Wangari czuły, że są silne i potrzebne.
 
 ##
-Czas mijał, a nowe drzewa rozrosły się tworząc lasy i rzeki zaczęły płynąć. Nauki Wangari rozniosły się po całej Afryce. Miliony drzew rosną dziś na całym kontynencie - właśnie dzięki Wangari i jej ziarenkom.
+Czas mijał, nowe drzewa rozrosły się tworząc lasy, a rzeki znów zaczęły płynąć. Nauki Wangari rozniosły się po całej Afryce. Dzięki Wangari i jej ziarenkom, miliony drzew rosną dziś na całym kontynencie.
 
 ##
-Ciężka praca Wangari została wynagrodzona, gdy cały świat usłyszał o jej działaniach. Otrzymała nagrodę Nobla i była pierwszą kobietą z Afryki, która otrzymała to niecodzienne wyróżnienie.
+Ludzie z całego świata zwrócili uwagę na ciężką pracę Wangari i jej osiągnięcia. Nagrodzono ją nagrodą Nobla. Wagnari była pierwszą kobietą z Afryki, która otrzymała to niecodzienne wyróżnienie.
 
 ##
-
 
 ##
 * License: [CC-BY]

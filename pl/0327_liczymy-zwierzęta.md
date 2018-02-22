@@ -1,13 +1,13 @@
 # Liczymy zwierzęta
 
 ##
-Jeden słoń zamierza pić wodę.
+Jeden słoń będzie pić wodę.
 
 ##
-Dwie żyrafy zamierzają pić wodę.
+Dwie żyrafy będą pić wodę.
 
 ##
-Trzy bawoły i cztery ptaki również zamierzają pić wodę.
+Trzy bawoły i cztery ptaki również będą pić wodę.
 
 ##
 Pięć antylop i sześć dzików podchodzą do wodopoju.
@@ -16,10 +16,10 @@ Pięć antylop i sześć dzików podchodzą do wodopoju.
 Siedem zebr biegnie to wodopoju.
 
 ##
-Osiem żab i dziewięć ryb płyną w wodzie.
+Osiem żab i dziewięć ryb pływa w wodzie.
 
 ##
-Jeden lew ryczy. On również chce napić się wody. Kto boi się lwa?
+Jeden lew ryczy. On również chce napić się wody. Kto się boi lwa?
 
 ##
 Jeden słoń pije wodę razem z lwem.

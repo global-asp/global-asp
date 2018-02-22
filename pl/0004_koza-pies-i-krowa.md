@@ -1,28 +1,28 @@
-# Koza Pies i Krowa
+# Koza, Pies i Krowa
 
 ##
-Koza Pies i Krowa byli dobrymi znajomymi. Pewnego dnia wybrali się na wycieczkę taksówką.
+Koza, Pies i Krowa byli dobrymi przyjaciółmi. Pewnego dnia wybrali się na wycieczkę taksówką.
 
 ##
-Kiedy dotarli na miejsce, kierowca poprosił o zapłatę. Krowa zapłaciła swoją część.
+Gdy dotarli na miejsce, kierowca poprosił o zapłatę. Krowa zapłaciła swoją część.
 
 ##
-Pies zapłacił trochę więcej, bo nie miał akurat mniejszej sumy.
+Pies zapłacił trochę więcej, bo nie miał drobnych.
 
 ##
-Kierowca juz miał dać psu resztę kiedy Koza wyskoczyła z taksówki nie płacąc.
+Kierowca właśnie zamierzał wydać psu resztę, gdy Koza wyskoczyła z taksówki nie płacąc za przejazd.
 
 ##
-Kierowca był tym bardzo poirytowany. Odjechał nie dając Psu reszty.
+Kierowca bardzo się zdenerwował i odjechał, nie wydając Psu reszty.
 
 ##
-I właśnie dlatego do dziś Pies biega za samochodami, aby zajrzeć do środka w poszukiwaniu kierowcy, który jest mu winien resztę pieniędzy.
+Dlatego właśnie Pies do dziś biega za samochodami i zagląda do środka w poszukiwaniu kierowcy, który jest mu winien resztę pieniędzy.
 
 ##
-Koza ucieka od dźwięku pojazdów, bo boi się, że ją aresztują za to, że nie zapłaciła swojej części.
+Koza ucieka gdy słyszy samochód, bo boi się aresztowania za to, że nie zapłaciła za przejazd.
 
 ##
-Za to Krowie nie przeszkadzają auta, które ją mijają. Krowa nie spieszy się, gdy przechodzi przez jezdnię, bo zapłaciła wtedy swoją część co do grosika.
+Za to Krowie nie przeszkadzają nadjeżdżające samochody. Krowa nie spieszy się, gdy przechodzi przez jezdnię bo wie, że zapłaciła za przejazd co do grosza.
 
 ##
 * License: [CC-BY]

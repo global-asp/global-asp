@@ -1,28 +1,28 @@
 # Dlaczego hipopotamy nie mają włosów
 
 ##
-Pewnego dnia, Zając skakał sobie po nadrzeczu.
+Pewnego dnia, Zając skakał sobie brzegiem rzeki.
 
 ##
-Hipcio też tam był - przechadzał się i podjadał zieloną trawkę.
+Hipcio też tam był, przechadzał się i podjadał zieloną trawę.
 
 ##
-Hipcio nie widzial Zająca i przez przypadek stanął Zającowi na łapce. Zając zaczął krzyczeć: "Hipciu, czy nie widzisz, nie czujesz, że stoisz mi na łapce?"
+Hipcio nie zauważył Zająca i przez przypadek stanął Zającowi na łapce. Zając zaczął krzyczeć: „Hipciu, czy nie widzisz, że stoisz mi na łapce?”
 
 ##
-"Bardzo cię przepraszam", rzekł Hipcio, "Nie widziałem cię, proszę przebacz mi" - prosił Hipcio. Ale Zając nie chciał tego słuchać i wrzeszczał na Hipcia: "Zrobiłeś to specjalnie! Kiedyś za to zapłacisz, zobaczysz!"
+„Bardzo cię przepraszam” - rzekł Hipcio, „Nie widziałem cię, proszę przebacz mi!”. Ale Zając nie chciał tego słuchać i krzyczał na Hipcia: „Zrobiłeś to specjalnie! Kiedyś za to zapłacisz, zobaczysz!”
 
 ##
-Zając poszedł poprosić Ogień o pomoc: "Spal Hipcia, gdy wyjdzie z wody, aby zjeść trawę. Hipcio na mnie stanął!" "Nie ma problemu, zrobię jak karzesz" - odparł Ogień.
+Zając poszedł poprosić Ogień o pomoc: “Hipcio na mnie stanął!” „Spal Hipcia, gdy wyjdzie z wody, aby zjeść trawę”. „Nie ma problemu przyjacielu, zrobię jak chcesz” - odparł Ogień.
 
 ##
-Kiedy Hipcio jadł trawę daleko od rzeki nagle języki ognia zaczęły palić włosy Hipcia!
+Później gdy Hipcio jadł trawę daleko od rzeki, płomienie ognia zaczęły palić jego włosy!
 
 ##
-Hipcio rozpłakał się i prędko pobiegł do wody. Wszystkie włosy były spalone przez ogień. Hipcio płakał: O nie! Moje piękne włosy - wszystkie zniszczone!
+Hipcio rozpłakał się i szybko pobiegł do wody. Ogień spalił wszystkie włosy. Hipcio płakał: „O nie! Moje piękne włosy! Wszystkie zniszczone!”
 
 ##
-Zając cieszył się nieszczęściem Hipcia. I do dzisiejszego dnia, hipopotamy trzymają się z daleka od ognia, ale nigdy nie oddalają się od wody.
+Zając cieszył się nieszczęściem Hipcia. I do dzisiejszego dnia, hipopotamy w obawie przed ogniem, nigdy nie oddalają się od wody.
 
 ##
 * License: [CC-BY]

@@ -19,7 +19,7 @@ Zamiatam podłogę.
 Zmywam naczynia.
 
 ##
-Dlaczego ja tak ciężko pracuję...gdy mój brat jest zajęty zabawą?
+Dlaczego ja tak ciężko pracuję... gdy mój brat jest zajęty zabawą?
 
 ##
 * License: [CC-BY-NC]

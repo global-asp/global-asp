@@ -7,22 +7,22 @@ Przyjrzyjmy się zwierzętom.
 Krowa ryczy: muuu.
 
 ##
-Koza beczy: meee, meee.
+Koza meczy: meee, meee.
 
 ##
-Koń rży: iha!
+Koń rży: ihaaa!
 
 ##
 Świnia chrumka: chrum.
 
 ##
-Kura gdacze: kokoko.
+Kura gdacze: ko, ko, ko.
 
 ##
-Pies szczeka: hał.
+Pies szczeka: hau.
 
 ##
-Rolnik mówi: cii
+Rolnik mówi: ciii!
 
 ##
 * License: [CC-BY-NC]

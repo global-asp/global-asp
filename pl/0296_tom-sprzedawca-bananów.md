@@ -13,10 +13,10 @@ Ludzie na bazarku kupują różne owoce.
 Ale nikt nie kupuje bananów Toma. Ludzie wolą kupować od kobiet.
 
 ##
-Ludzie mówią, że "u nas tylko kobiety sprzedają owoce. Od kiedy to facet sprzedaje owoce?"
+Ludzie mówią, że „U nas tylko kobiety sprzedają owoce. Od kiedy to facet sprzedaje owoce?”
 
 ##
-Ale Tom nie poddaje się, nawołując: "Pyszne banany tylko u mnie!"
+Ale Tom nie poddaje się, nawołując: „Pyszne banany tylko u mnie!”
 
 ##
 Nagle jedna z kobiet podchodzi bliżej i zaczyna dokładnie oglądać pęczek bananów.
@@ -28,7 +28,7 @@ Kobieta postanawia kupić te banany.
 Więcej osób zaczyna kupować banany Toma.
 
 ##
-Po pewnym czasie, okazuje się, że Tom sprzedał wszystkie banany i liczy pieniądzie, które zarobił.
+Po pewnym czasie, okazuje się, że Tom sprzedał wszystkie banany i liczy pieniądze, które zarobił.
 
 ##
 Później, Tom kupuje mydło, cukier i chleb i wkłada je do swojego pojemnika.

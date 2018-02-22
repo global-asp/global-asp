@@ -1,37 +1,37 @@
 # Zemsta Ptaka Miodowoda
 
 ##
-Oto historia o ptaku miodowodzie Ngede oraz o skąpcu Gingile. Gdy pewnego dnia Gingile polował, nagle usłyszał śpiew Ngede. Skąpcowi na samą myśl o miodzie poleciała ślina. Zatrzymał się i nasłuchiwał, aż ptak pokazał się tuż nad głową skąpca - w gałęziach drzew. „Ćwir, ćwir, ćwir" śpiewał miodowód i przeskakiwał z jednego drzewa na kolejne, przerywając od czasu do czasu, aby upewnić się, że Gingile za nim podąża.
+Oto historia o ptaku Miodowodzie Ngede oraz o chciwym młodym człowieku Gingile. Pewnego dnia Gingile polował, gdy nagle usłyszał śpiew Ngede. Na samą myśl o miodzie Gingile pociekła ślinka. Zatrzymał się i uważnie nasłuchiwał, aż odnalazł ptaka w gałęziach drzewa - tuż nad swoją głową. „Ćwir, ćwir, ćwir” - śpiewał Miodowód i przeskakiwał z jednego drzewa na drugie. Ptak zatrzymywał się od czasu do czasu, aby upewnić się, że Gingile za nim podąża.
 
 ##
-Po około pół godzinie dotarli do ogromnego drzewa figowego. Między gęstymi konarami Ngede skakał jak oszalały i kiedy nagle usadowił się na jednej z gałęzi, przechylił głowę w stronę Gingila tak jakby chciał powiedzieć: „To już tutaj! Na co Ty czekasz?!" Gingile nie widział jeszcze pszczół, ale ufał ptakowi.
+Po pół godzinie dotarli do ogromnego dzikiego drzewa figowego. Ngede skakał jak oszalały między gęstymi konarami. Następnie usiadł na jednej z gałęzi, przechylił głowę w stronę Gingile, tak jakby chciał powiedzieć: „To już tutaj! Na co czekasz?!” Gingile stał pod drzewem, więc nie widział żadnych pszczół, ale ufał Ngede.
 
 ##
-Gingile odłożył swoją włócznie, zebrał pare fig i rozpalił małe ognisko. Kiedy już ognisko było dobrze rozpalone, Gingile włożył suchy długi kij w sam środek ognia. A ponieważ było to wyjątkowo dymne drewno, włożył dymiący się kij w zęby i zaczął wspinać się na drzewo.
+Gingile odłożył swoją włócznię, zebrał kilka suchych gałęzi i rozpalił małe ognisko. Kiedy ognisko było dobrze rozpalone, Gingile włożył długi suchy kijek w sam środek ognia. Było to wyjątkowe drewno, które wydziela mocny dym. Gingile włożył dymiący kijek w zęby i zaczął wspinać się na drzewo.
 
 ##
-Już słyszał głośne bzyczenie pracowitych pszczół, które wlatywały i wylatywały z dziupli z ulem w pościechu. Kiedy Gingile wepchnął dymiący sie kij do ula, pszczoły zaczęły latać jak oszalałe! Odleciały, bo nie lubią dymu, ale przedtem kilka z nich boleśnie urządliły skąpca.
+Wkrótce usłyszał głośne bzyczenie pracowitych pszczół, które wlatywały i wylatywały z dziupli z ulem. Kiedy Gingile wepchnął dymiący kijek do dziupli, rozzłoszczone pszczoły wyleciały z ula! Odleciały, bo nie lubią dymu ale wcześniej kilka z nich boleśnie użądliło Gingile.
 
 ##
-Kiedy pszczoły opuściły ul, włożył rękę do środka i wyjął ciężki płat ociekający miodem. Ostrożnie włożył płat do torby, którą miał ze sobą i zaczął schodzić z drzewa.
+Kiedy pszczoły opuściły ul, Gingile włożył rękę do środka i wyjął ciężki plaster ociekający gęstym miodem, pełen tłustych i białych larw. Ostrożnie włożył płat do torby, którą miał ze sobą i zaczął schodzić z drzewa.
 
 ##
-Miodowód z zaciekawieniem obserwował skąpca i oczekiwał, że w ramach podziekowania Gingile podzieli się z nim swoją zdobyczą. Kiedy skąpiec zszedł juz z drzewa, ptak podleciał i usiadł na kamieniu, blisko, czekając na nagrodę.
+Miodowód z zaciekawieniem obserwował Gingile i oczekiwał, że w ramach podziękowania Gingile podzieli się z nim swoją zdobyczą. Ptak przelatywał z gałęzi na gałąź, bliżej i bliżej ziemi. Kiedy Gingile zszedł z drzewa, ptak usadowił się na pobliskim kamieniu i czekał na nagrodę.
 
 ##
-Ale skąpiec zgasił ognisko, zabrał swoją włócznie, i zaczął iść w stronę domu ignorując Ngede. Miodowod ćwierkał rozwścieczony, aż Gingile zatrzymał się spojrzał na ptaka i zaśmiał się bezczelnie: „Chcesz miodu, mój przyjacielu? Ale to ja wykonałem całą cieżką robotę, to mnie pożądliły pszczoły. Niby dlaczego miałbym się z tobą dzielić moim miodem?" I Gingile odszedł. Miodowód był wsciekły! Nikogo nie wolno tak traktować! Ale skąpiec dostanie nauczkę.
+Gingile zagasił ognisko, zabrał swoją włócznię i poszedł w stronę domu ignorując Ngede. Miodowód ćwierkał rozwścieczony. Gingile zatrzymał się, spojrzał na ptaka i roześmiał się głośno: „Chcesz miodu, mój przyjacielu? Ale to ja wykonałem całą ciężką robotę, to mnie użądliły pszczoły. Niby dlaczego miałbym się z tobą dzielić moim miodem?” I Gingile odszedł. Miodowód był wściekły! Nikogo nie wolno tak traktować! Gingile dostanie nauczkę.
 
 ##
-Parę tygodni później, skąpiec znów usłyszał śpiew miodowoda. Przypomniał mu się pyszny miód - więc bez zastanowienia znów ruszył za śpiewem ptaka. Ngede prowadził skąpca wzdłuż lasu i zatrzymał się, aby odpocząć, a skąpiec myślał, że to tutaj znajdzie miód. Szybko rozpalił ognisko i zaczął wspinać się na drzewo trzymając dymiący się kij z zębach. Ptak tylko siedział i przygladał się skąpcowi.
+Parę tygodni później, Gingile znów usłyszał śpiew Ngede. Przypomniał mu się pyszny miód, więc bez zastanowienia znów wyruszył za śpiewem ptaka. Ngede prowadził Gingile wzdłuż lasu i zatrzymał się na drzewie akacji, aby odpocząć. „Ul musi być właśnie tutaj” - pomyślał Gingile. Szybko rozpalił ognisko, włożył dymiący kijek w zęby i zaczął wspinać się na drzewo. Ptak tylko siedział i przyglądał się.
 
 ##
-Gingile wspinał się i zastanawiał dlaczego nie słyszy pszczół. „Może ul jest głęboko w drzewie", myślał. Podciagnął się na gałęzi i zamiast pszczół znalazł się twarzą w twarz z lampartem! Zwierzę było wściekłe, bo skąpiec zbudził go ze snu. Lampart miał wąskie oczy i otworzył paszczę pełną ostrych kłów.
+Gingile wspinał się na drzewo i zastanawiał się dlaczego nie słyszy pszczół. „Może ul jest głęboko w drzewie” - pomyślał. Podciągnął się na gałęzi i znalazł się twarzą w twarz z lampartem! Zwierzę było wściekłe, bo Gingile zbudził go ze snu. Lampart zmrużył oczy i otworzył paszczę pełną dużych i ostrych kłów.
 
 ##
-Gingile pospiesznie zszedł z drzewa, ale nie złapał się jednej gałęzi i spadł z hukiem na ziemię. Zwichnął sobie kostkę i kulejąc uciekał jak najszybciej potrafił. Na szczęście lampart był zbyt zaspany, aby gonić skąpca. W ten oto sposób miodowód się zemścił, a skąpiec nauczył się cennej lekcji.
+Lampart nie zdążył zaatakować, bo Gingile zaczął szybko schodzić z drzewa. W pośpiechu nie złapał jednej z gałęzi, spadł z hukiem na ziemię i zwichnął sobie kostkę. Kulejąc, uciekał jak najszybciej potrafił. Na szczęście lampart był zbyt zaspany, aby go dogonić. W ten oto sposób Ngede zemścił sie na Gingile, który dostał nauczkę.
 
 ##
-I tak właśnie dzieci skąpca słysząc tę historię nauczyły się szanować ptaka. I zawsze gdy zbierają miód, zostawiają duży kawałek płata miodu dla miodowoda.
+Dzieci Gingile słuchają historii o Ngede i uczą się szacunku dla małego ptaka. Dlatego zawsze gdy zbierają miód, zostawiają największy kawałek plastra miodu dla ptaka Miodowoda.
 
 ##
 * License: [CC-BY]

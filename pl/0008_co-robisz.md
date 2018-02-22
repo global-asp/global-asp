@@ -7,7 +7,7 @@ Ja śpiewam.
 Ona macha.
 
 ##
-Ja klaszcze.
+Ja klaszczę.
 
 ##
 Ona się rozciąga.
@@ -22,7 +22,7 @@ Ja odpowiadam.
 Ona słucha.
 
 ##
-A Ty co robisz?
+A Ty, co robisz?
 
 ##
 * License: [CC-BY]

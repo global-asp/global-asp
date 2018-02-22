@@ -4,7 +4,7 @@
 Moje serce odczuwa bardzo wiele.
 
 ##
-Czuję się szczęśliwa, gdy wieczorami babcia opowiada nam rozmaite bajki.
+Czuję się szczęśliwa, gdy wieczorami babcia opowiada nam bajki.
 
 ##
 Czuję się figlarnie, gdy bawię się z moją przyjaciółką.

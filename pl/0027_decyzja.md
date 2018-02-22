@@ -1,52 +1,52 @@
 # Decyzja
 
 ##
-Moja wioska miała wiele problemów. Kolejka do wodopoju była zawsze bardzo długa.
+Moja wioska miała wiele problemów. Staliśmy w długiej kolejce, żeby nabrać wody ze źródła.
 
 ##
-Zawsze musieliśmy czekać na jedzenie, które było darowizną od innych ludzi.
+Czekaliśmy na jedzenie, które przekazywali nam inni ludzie.
 
 ##
-Musieliśmy zamykać nasze domy ze względu na złodziei.
+Musieliśmy zamykać drzwi na klucz ze względu na złodziei.
 
 ##
-Wiele dzieci musiało odejść ze szkoły.
+Wiele dzieci rzuciło szkołę.
 
 ##
-Młode dziewczynki były wysyłane do pracy jako sprzątaczki w innych wioskach.
+Dziewczynki pracowały jako sprzątaczki w innych wioskach.
 
 ##
-Młodzi chłopcy szwędali się po wiosce, gdy inni pracowali w polach.
+Chłopcy włóczyli się po wiosce, podczas gdy inni musieli pracować w polu.
 
 ##
-Gdy wiał wiatr, papierowe śmieci zatrzymywały się na drzewach.
+Gdy wiatr wiał, papierowe śmieci zatrzymywały się na drzewach i płotach.
 
 ##
-Ludzie byli okaleczeni kawałkami potłuczonego szkła, które leżało gdzie popadnie.
+Ludzie kaleczyli się kawałkami potłuczonego szkła, które leżało na ziemi.
 
 ##
-Pewnego dnia, kran wysechł i nasze pojemniki stały się puste.
+Pewnego dnia źródło wody wyschło i nasze pojemniki na wodę były puste.
 
 ##
-Mój ojciec wędrował od domu do domu w naszej wiosce prosząc ludzi o wzięcie udziału w spotkaniu.
+Mój ojciec chodził od domu do domu, żeby zaprosić mieszkańców wioski na spotkanie.
 
 ##
-Ludzie zebrali się pod wielkich drzewem i słuchali.
+Ludzie zebrali się pod wielkim drzewem i słuchali.
 
 ##
-Mój ojciec wstał i rzekł: Jeżeli chcemy rozwiązać nasze problemy - musimy współpracować.
+Mój ojciec wstał i powiedział: „Jeżeli chcemy rozwiązać nasze problemy, musimy współpracować”.
 
 ##
-I wtedy ośmioletnia Juma, która siedziała na pniu drzewa krzyknęła: "Ja pomogę w sprzątaniu!"
+Ośmioletnia Juma, która siedziała na pniu drzewa, krzyknęła: „Ja pomogę w sprzątaniu!”
 
 ##
-Pewna kobieta powiedziała: "Kobiety mogą do mnie dołączyć i możemy uprawiać żywność."
+Jedna z kobiet powiedziała: „Kobiety mogą do mnie dołączyć i razem będziemy uprawiać żywność”.
 
 ##
-Zaraz potem mężczyzna wstał i rzekł: "Z innymi mężczyznami wykopiemy i wybudujemy studnię."
+Jeden z mężczyzn wstał i oświadczył: „ Mężczyźni wykopią i wybudują studnię”.
 
 ##
-W końcu wszyscy krzyknęliśmy: "Musimy zmienić nasze życie!" Od tej pory zawsze współpracujemy, aby rozwiązywać nasze wspólne problemy.
+Krzyknęliśmy jednym głosem: „Musimy zmienić nasze życie!” Od tej pory zawsze współpracujemy, aby rozwiązać nasze wspólne problemy.
 
 ##
 * License: [CC-BY]

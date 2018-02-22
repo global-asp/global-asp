@@ -22,7 +22,7 @@ Dzięki niemu mogę kopać.
 Dzięki niemu mogę uciekać.
 
 ##
-Ale dzięki niemu nigdy nie będę mógł latać.
+Ale nigdy nie będę mógł latać.
 
 ##
 * License: [CC-BY-NC]

@@ -10,19 +10,19 @@ Ta bluza jest duża.
 Ta torba jest duża.
 
 ##
-Ten pasek jest...
+Ten pasek jest…?
 
 ##
 Ten kapelusz jest mały.
 
 ##
-Te skarpetki sa krótkie.
+Te skarpetki są krótkie.
 
 ##
 Ale te buty są nowe.
 
 ##
-... pasują jak ulał.
+... pasują idealnie.
 
 ##
 * License: [CC-BY-NC]

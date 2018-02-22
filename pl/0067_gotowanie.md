@@ -13,16 +13,16 @@ Trę marchew.
 Myję fasolę.
 
 ##
-Tnę orzechy.
+Kroję dynię.
 
 ##
 Siekam szpinak.
 
 ##
-Mama sieka cebulę.
+Mama kroi cebulę.
 
 ##
-Gdy siekam cebulę, zawsze płaczę.
+Gdy kroję cebulę, zawsze płaczę.
 
 ##
 * License: [CC-BY-NC]
