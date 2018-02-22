@@ -34,7 +34,7 @@ Esel vart fylt av forvirring og sinne. Han kunne ikkje gjer ditt og han kunne ik
 Esel skamma seg. Han byrja å laupa vekk så fort han kunne.
 
 ##
-Når han hadde slutta å laupa, var det vorte kveld, og Esel hadde gått seg vill. "Vrinsk" visket han inn i mørket. "Vrinsk?" lydde ekkoet. Han var åleine. Han krøkte seg saman til ein liten ball og fall i ein djup og forstyrra søvn.
+Når han hadde slutta å laupa, var det vorte kveld, og Esel hadde gått seg vill. "I-a", visket han inn i mørket. "I-a?" lydde ekkoet. Han var åleine. Han krøkte seg saman til ein liten ball og fall i ein djup og forstyrra søvn.
 
 ##
 Esel vakna opp til ein merkeleg gammal mann som stira ned på han. Han såg inn i auga til den gamle mannen og byrja å kjenna ein snev av voner.
