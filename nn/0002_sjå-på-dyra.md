@@ -13,7 +13,7 @@ Geita seier "mæ".
 Hesten seier "vrinsk".
 
 ##
-Grisen seier "grynt".
+Grisen seier "nøff".
 
 ##
 Høna seier "klukk".
