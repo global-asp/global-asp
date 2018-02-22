@@ -13,7 +13,7 @@ Geita sier "mæ".
 Hesten sier "vrinsk".
 
 ##
-Grisen sier "grynt".
+Grisen sier "nøff".
 
 ##
 Høna sier "klukk".
