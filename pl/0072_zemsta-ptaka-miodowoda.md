@@ -13,7 +13,7 @@ Gingile odłożył swoją włócznię, zebrał kilka suchych gałęzi i rozpali�
 Wkrótce usłyszał głośne bzyczenie pracowitych pszczół, które wlatywały i wylatywały z dziupli z ulem. Kiedy Gingile wepchnął dymiący kijek do dziupli, rozzłoszczone pszczoły wyleciały z ula! Odleciały, bo nie lubią dymu ale wcześniej kilka z nich boleśnie użądliło Gingile.
 
 ##
-Kiedy pszczoły opuściły ul, Gingile włożył rękę do środka i wyjął ciężki plaster ociekający gęstym miodem, pełen tłustych i białych larw. Ostrożnie włożył płat do torby, którą miał ze sobą i zaczął schodzić z drzewa.
+Kiedy pszczoły opuściły ul, Gingile włożył rękę do środka i wyjął ciężki plaster ociekający gęstym miodem, pełen tłustych i białych larw. Ostrożnie włożył plaster do torby, którą miał ze sobą i zaczął schodzić z drzewa.
 
 ##
 Miodowód z zaciekawieniem obserwował Gingile i oczekiwał, że w ramach podziękowania Gingile podzieli się z nim swoją zdobyczą. Ptak przelatywał z gałęzi na gałąź, bliżej i bliżej ziemi. Kiedy Gingile zszedł z drzewa, ptak usadowił się na pobliskim kamieniu i czekał na nagrodę.

@@ -7,7 +7,7 @@ Mój młodszy braciszek długo rano śpi. Ja budzę się wcześnie rano, bo jest
 To ja wpuszczam słoneczne światło.
 
 ##
-„Jesteś moją poranną gwiazdką - mówi mama.
+„Jesteś moją poranną gwiazdką” - mówi mama.
 
 ##
 Sama się myję, nie potrzebuję niczyjej pomocy.

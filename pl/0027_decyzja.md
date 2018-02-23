@@ -19,7 +19,7 @@ Dziewczynki pracowały jako sprzątaczki w innych wioskach.
 Chłopcy włóczyli się po wiosce, podczas gdy inni musieli pracować w polu.
 
 ##
-Gdy wiatr wiał, papierowe śmieci zatrzymywały się na drzewach i płotach.
+Gdy wiał wiatr, papierowe śmieci zatrzymywały się na drzewach i płotach.
 
 ##
 Ludzie kaleczyli się kawałkami potłuczonego szkła, które leżało na ziemi.
@@ -43,7 +43,7 @@ Ośmioletnia Juma, która siedziała na pniu drzewa, krzyknęła: „Ja pomogę 
 Jedna z kobiet powiedziała: „Kobiety mogą do mnie dołączyć i razem będziemy uprawiać żywność”.
 
 ##
-Jeden z mężczyzn wstał i oświadczył: „ Mężczyźni wykopią i wybudują studnię”.
+Jeden z mężczyzn wstał i oświadczył: „Mężczyźni wykopią i wybudują studnię”.
 
 ##
 Krzyknęliśmy jednym głosem: „Musimy zmienić nasze życie!” Od tej pory zawsze współpracujemy, aby rozwiązać nasze wspólne problemy.

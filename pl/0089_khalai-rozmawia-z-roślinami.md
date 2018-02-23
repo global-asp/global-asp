@@ -1,7 +1,7 @@
 # Khalai rozmawia z roślinami
 
 ##
-Oto Khalai. Ma siedem lat. W jej języku, Lukubusu, jej imię oznacza: „ta dobra”.
+Oto Khalai. Ma siedem lat. W jej języku, Lubukusu, jej imię oznacza: „ta dobra”.
 
 ##
 Khalai budzi się i mówi do drzewa pomarańczowego: „Proszę rośnij duże i daj nam mnóstwo dojrzałych pomarańczy”.
