@@ -19,13 +19,13 @@ Das Huhn war außer sich, dass sie verloren hatte. Sie war eine schlechte Verlie
 Das Huhn fühlte sich so ärgerlich, dass sie ihren Schnabel weit öffnete und Millipede schluckte.
 
 ##
-Als das Huhn nach Hause ging traf sie Millipedes Mutter. Millipedes Mutter fragte: "Hast Du mein Kind gesehen?". Das Huhn antwortete nicht. Millipedes Mutter war besorgt.
+Als das Huhn nach Hause ging traf sie Millipedes Mutter. Millipedes Mutter fragte: „Hast Du mein Kind gesehen?“ Das Huhn antwortete nicht. Millipedes Mutter war besorgt.
 
 ##
-Dann hörte Millipedes Mutter eine leise Stimme. "Hilf mir, Mama!" Millipedes Mutter schaute sich um und lauschte aufmerksam. Die Stimme kam vom Inneren des Huhns.
+Dann hörte Millipedes Mutter eine leise Stimme. „Hilf mir, Mama!“ Millipedes Mutter schaute sich um und lauschte aufmerksam. Die Stimme kam vom Inneren des Huhns.
 
 ##
-Millipedes Mutter rief: "Nutze Deine spezielle Kraft, mein Kind!". Millipede kann einen schlechten Geruch und Geschmack verbreiten. Dem Huhn wurde schlecht.
+Millipedes Mutter rief: „Nutze Deine spezielle Kraft, mein Kind!“ Millipede kann einen schlechten Geruch und Geschmack verbreiten. Dem Huhn wurde schlecht.
 
 ##
 Das Huhn rülpste. Dann schluckte sie und spuckte aus. Dann nieste sie und spuckte. Und hustete. Millipede schmeckte grauenhaft!

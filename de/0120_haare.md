@@ -22,7 +22,7 @@ Zanele hat ihre Haare gekämmt.
 Thabo hat seine Haare geschnitten.
 
 ##
-Themba hat seine Haare rasiert.
+Themba hat seine Haare abrasiert.
 
 ##
 * License: [CC-BY-NC]

@@ -1,7 +1,7 @@
 # Schulkleidung
 
 ##
-Dieses Kleid ist lang
+Dieses Kleid ist lang.
 
 ##
 Dieser Pullover ist groß.
@@ -10,7 +10,7 @@ Dieser Pullover ist groß.
 Diese Tasche ist groß.
 
 ##
-Dieser Gürtel ist...
+Dieser Gürtel ist …
 
 ##
 Dieser Hut ist klein.
@@ -22,7 +22,7 @@ Die Socken sind kurz.
 Aber diese Schuhe sind neu.
 
 ##
-...sie passen gut.
+… sie passen gut.
 
 ##
 * License: [CC-BY-NC]

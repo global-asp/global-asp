@@ -4,7 +4,7 @@
 Es war einmal ein sehr hungriges Krokodil.
 
 ##
-Langsam und leise suchte es nach Fressen. Und dann...
+Langsam und leise suchte es nach Fressen. Und dann …
 
 ##
 ZACK!!! Das Krokodil schlägt zu!

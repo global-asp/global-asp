@@ -4,7 +4,7 @@
 Es war einmal eine glückliche Familie.
 
 ##
-Sie stritten nie miteinander. Sie halfen ihren Eltern zu Haus und auf den Feldern.
+Sie stritten nie miteinander. Sie halfen ihren Eltern im Haus und auf den Feldern.
 
 ##
 Aber sie durften nicht in die Nähe von Feuer.
@@ -16,13 +16,13 @@ Sie mussten all ihre Arbeit nachts verrichten. Denn sie waren aus Wachs!
 Aber einer der Jungen sehnte sich nach dem Sonnenlicht.
 
 ##
-Eines Tages war die Sehnsucht zu groß. Seine Brüder warnten ihn...
+Eines Tages war die Sehnsucht zu groß. Seine Brüder warnten ihn …
 
 ##
 Aber es war zu spät! Er schmolz in der heißen Sonne.
 
 ##
-Die Wachskinder waren sehr traurig zu sehen, wie ihr Bruder dahinschmolz.
+Die Wachskinder waren sehr traurig sehen zu müssen, wie ihr Bruder dahin schmolz.
 
 ##
 Aber sie schmiedeten ein Plan. Sie formten den geschmolzenen Wachsklumpen zu einem Vogel.

@@ -4,7 +4,7 @@
 Andiswa schaute den Jungen beim Fußballspielen zu. Sie wünschte, sie könnte auch in der Mannschaft sein. Sie fragt den Trainer, ob sie mit ihnen trainieren kann.
 
 ##
-Der Trainer stützt die Hände in die Hüften. "An dieser Schule dürfen nur Jungen Fußball spielen.", sagt er.
+Der Trainer stemmte die Hände in die Hüften. „An dieser Schule dürfen nur Jungen Fußball spielen.“, sagt er.
 
 ##
 Die Jungen sagten, sie solle Netzball spielen. Sie sagten, Netzball sei für Mädchen und Fußball für Jungs.

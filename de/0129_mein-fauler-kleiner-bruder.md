@@ -16,10 +16,10 @@ Ich rühre um.
 Ich wasche den Boden.
 
 ##
-Ich wasche das Geschirr.
+Ich spüle das Geschirr.
 
 ##
-Warum arbeite ich so viel... während mein Bruder emsig spielt?
+Warum arbeite ich so viel … während mein Bruder munter spielt?
 
 ##
 * License: [CC-BY-NC]
