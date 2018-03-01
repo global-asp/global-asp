@@ -4,10 +4,10 @@
 Sakima mieszkał z rodzicami i czteroletnią siostrą na lądzie bogacza.
 
 ##
-Gdy Sakima miał trzy latka zachorował i stracił wzrok. Ale mimo to był utalentowanym chłopcem.
+Gdy Sakima miał trzy lata, zachorował i stracił wzrok. Ale mimo to był utalentowanym chłopcem.
 
 ##
-Sakima robił różne rzeczy, których jego rówieśnicy nie potrafili. Na przykład zasiadał ze starszymi w wiosce, aby omawiać ważne sprawy.
+Sakima robił różne rzeczy, których jego rówieśnicy nie potrafili. Zasiadał na przykład ze starszymi w wiosce, aby omawiać ważne sprawy.
 
 ##
 Rodzice Sakima pracowali na lądzie bogacza. Często wychodzili z domu wcześnie rano i wracali późnym wieczorem. Sakima zostawał wtedy w domu, aby opiekować się siostrą.
@@ -16,10 +16,10 @@ Rodzice Sakima pracowali na lądzie bogacza. Często wychodzili z domu wcześnie
 Sakima uwielbiał śpiewać i matka zapytała go: „Skąd znasz te wszystkie piosenki?”
 
 ##
-„Słyszę je w mojej głowie i śpiewam, po prostu przychodzą do mnie.” - odpowiedział chłopiec.
+„Słyszę je w mojej głowie i śpiewam, po prostu przychodzą do mnie” - odpowiedział chłopiec.
 
 ##
-Sakima lubił śpiewać dla siostry, szczególnie, gdy była głodna. A siostra słuchała jego piosenki i kołysała się w jej rytm.
+Sakima lubił śpiewać dla siostry, szczególnie, gdy była głodna. A siostra słuchała jego piosenek i kołysała się w jej rytm.
 
 ##
 Siostra chłopca prosiła, aby ten śpiewał ponownie i ten zgadzał się i śpiewał.
@@ -31,7 +31,7 @@ Pewnego dnia, gdy rodzice wrócili do domu byli bardzo małomówni. Sakima czuł
 „Co się stało?” - zapytał chłopiec. Okazało się, że syn bogacza, dla którego pracują rodzice zniknął. Bogacz był załamany.
 
 ##
-Sakima powiedział rodzicom, że może zaśpiewać dla bogacza - może wtedy bogacz przestanie się smucić. Ale rodzicom nie podobał się ten pomysł: „To jest bardzo bogaty człowiek, a Ty jesteś tylko niewidomym chłopcem i czy naprawdę myślisz, że możesz pomóc bogaczowi?”
+Sakima powiedział rodzicom, że może zaśpiewać dla bogacza - może wtedy bogacz przestanie się smucić. Ale rodzicom nie podobał się ten pomysł: „To jest bardzo bogaty człowiek, a Ty jesteś tylko niewidomym chłopcem. Naprawdę myślisz, że możesz pomóc bogaczowi?”
 
 ##
 Sakima nie poddał się. Jego siostra postanowiła go wesprzeć: „Piosenki Sakima pomagają mi, gdy jestem głodna. Dlatego też pomogą bogaczowi!”

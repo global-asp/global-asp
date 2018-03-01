@@ -16,7 +16,7 @@ Nadszedł dzień narodzin dziecka: Pchaj! Przynieście koce i wodę! Pchaaaaaaj!
 Ale ku zdziwieniu wszystkich ludzi zamiast dziecka, kobieta urodziła osiołka!
 
 ##
-Ludzie zaczęli się kłócić: „Obiecaliśmy tej kobiecie bezpieczeństwo, jej i jej dziecku” - mówili jedni. „Ale przyniosą nam pecha!” - krzyczeli inni.
+Ludzie zaczęli się kłócić: „Obiecaliśmy tej kobiecie bezpieczeństwo, jej i jej dziecku” - mówili jedni. „Przyniosą nam pecha!” - krzyczeli inni.
 
 ##
 Kobieta poczuła się samotna i nie wiedziała co ze sobą zrobić i co zrobić z tym dziwnym oślim dzieckiem.
@@ -46,7 +46,7 @@ Osiołek zamieszkał ze staruszkiem, który nauczył go jak przeżyć. Osiołek 
 Pewnego ranka, staruszek poprosił osiołka, aby ten zaniósł go na szczyt góry.
 
 ##
-Wysoko pośród chmur obaj zasnęli. Osiołek śnił o matce, która była ciężko chora i wzywała go. Gdy się zbudził...
+Wysoko pośród chmur obaj zasnęli. Osiołek śnił o matce, która była ciężko chora i wzywała go. Gdy się obudził...
 
 ##
 ...chmury zniknęły razem z jego przyjacielem staruszkiem.

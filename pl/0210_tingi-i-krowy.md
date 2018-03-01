@@ -25,10 +25,10 @@ Wtedy wrócili żołnierze.
 Babcia ukryła wnuczka pod kupką liści.
 
 ##
-I gdy jeden z żołnierzy stanął na chłopcu - Tingi nie wydał z siebie żadnego dźwięku.
+Gdy jeden z żołnierzy stanął na chłopcu, Tingi nie wydał z siebie żadnego dźwięku.
 
 ##
-Kiedy zrobiło się bezpiecznie - Tingi wraz z babcią opuścili swoją kryjówkę.
+Kiedy zrobiło się bezpiecznie, Tingi wraz z babcią opuścili swoją kryjówkę.
 
 ##
 Ostrożnie i po cichu wrócili do domu.

@@ -1,7 +1,7 @@
 # Kurczak i Stonoga
 
 ##
-Kurczak i Stonoga to dobrzy przyjaciele. Ale mimo to, zawsze ze sobą rywalizują. Pewnego dnia postanowili zagrać w piłkę nożną, aby sprawdzić kto jest lepszym graczem.
+Kurczak i Stonoga to dobrzy przyjaciele. Pomimo tego, zawsze ze sobą rywalizują. Pewnego dnia postanowili zagrać w piłkę nożną, aby sprawdzić kto jest lepszym graczem.
 
 ##
 Spotkali się na boisku i zaczęli grać. Kurczak był szybki, ale nie tak szybki jak Stonoga. Kurczak kopał daleko, ale Stonoga jeszcze dalej. Kurczak zrobił się humorzasty.
@@ -22,7 +22,7 @@ Kurczak był taki zły, że otworzył szeroko swój dziób i połknął stonogę
 Gdy Kurczak wracał do domu, spotkał mamę Stonogi. Ta zapytała: „Czy widziałeś moje dziecko?” Kurczak nie odpowiedział, a mama stonogi bardzo się martwiła.
 
 ##
-Nagle mama stonogi usłyszała głos swojego dziecka: „Mamo! Pomóż!” Mama stonogi rozejrzała się dookoła i nasłuchiwała. Ale głos dobiegał ze środka kurczaka.
+Nagle mama stonogi usłyszała głos swojego dziecka: „Mamo! Pomóż!” Mama stonogi rozejrzała się dookoła i nasłuchiwała. Głos dobiegał ze środka kurczaka.
 
 ##
 Mama stonogi krzyknęła: „Użyj swoich mocy, moje dziecko!” Stonogi potrafią wywołać bardzo brzydki zapach i nieprzyjemny smak. Kurczak zaczął bardzo źle się czuć.

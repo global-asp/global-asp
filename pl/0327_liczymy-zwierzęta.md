@@ -10,7 +10,7 @@ Dwie żyrafy będą pić wodę.
 Trzy bawoły i cztery ptaki również będą pić wodę.
 
 ##
-Pięć antylop i sześć dzików podchodzą do wodopoju.
+Pięć antylop i sześć dzików podchodzi do wodopoju.
 
 ##
 Siedem zebr biegnie to wodopoju.

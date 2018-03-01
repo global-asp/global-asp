@@ -13,7 +13,7 @@ Ludzie na bazarku kupują różne owoce.
 Ale nikt nie kupuje bananów Toma. Ludzie wolą kupować od kobiet.
 
 ##
-Ludzie mówią, że „U nas tylko kobiety sprzedają owoce. Od kiedy to facet sprzedaje owoce?”
+Ludzie mówią: „U nas tylko kobiety sprzedają owoce. Od kiedy to owoce sprzedaje mężczyzna?”
 
 ##
 Ale Tom nie poddaje się, nawołując: „Pyszne banany tylko u mnie!”

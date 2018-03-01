@@ -1,7 +1,7 @@
 # Dzieci z wosku
 
 ##
-Dawno dawno temu, żyła sobie szczęśliwa rodzina.
+Dawno, dawno temu, żyła sobie szczęśliwa rodzina.
 
 ##
 Nigdy się nie kłócili. Pomagali swoim rodzicom w domu i w polu.
@@ -13,25 +13,25 @@ Jednak nie wolno im było zbliżać się do ognia.
 Ponieważ byli zrobieni z wosku musieli wykonywać wszystkie prace nocą.
 
 ##
-Ale mimo to, jeden z chłopców był bardzo ciekawy światła dziennego.
+Mimo to, jeden z chłopców był bardzo ciekawy światła dziennego.
 
 ##
 Pomimo przestróg braci, jego ciekawość wzięła górę.
 
 ##
-Niestety było już za późno - stopił się w słońcu.
+Niestety było już za późno i chłopiec stopił się w słońcu.
 
 ##
 Dzieci z wosku były bardzo poruszone tym co stało się z ich bratem.
 
 ##
-Wymyślili, że ze stopionego wosku ulepią ptaka.
+Postanowili ze stopionego wosku ulepić ptaka.
 
 ##
 Zabrali brata-ptaka, wysoko, na sam szczyt góry.
 
 ##
-I gdy wzeszło słońce, ptak odleciał ćwierkając w świetle dziennym.
+Gdy wzeszło słońce, ptak odleciał ćwierkając w świetle dziennym.
 
 ##
 * License: [CC-BY]
