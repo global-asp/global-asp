@@ -16,7 +16,7 @@ Det var bare Ørn i landsbyen som hadde en synål, så hun begynte først å sy.
 Men de andre fuglene hadde sett Ørn som fløy av gårde. De ba Høne om å få låne nålen for å sy vinger til seg selv også. Snart fløy det fugler overalt under himmelen.
 
 ##
-Da den siste fuglen leverte tilbake nålen de hadde lånt, var ikke Høne der. Så barna hennes tok nålen og begynte å leke med den. Da de ble lei av å leke lot de nålen ligge igjen i sanden.
+Da den siste fuglen leverte tilbake nålen de hadde lånt, var ikke Høne der. Så barna hennes tok nålen og begynte å leke med den. Da de ble leie av å leke lot de nålen ligge igjen i sanden.
 
 ##
 Senere den ettermiddagen kom Ørn tilbake. Hun ba om nålen for å feste noen fjær som hadde løsnet på turen. Høne lette i skapet. Hun lette på kjøkkenet. Hun lette i gården. Men nålen var ikke å se noen steder.
