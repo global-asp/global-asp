@@ -7,7 +7,7 @@ I den travle byen Nairobi, langt fra det omsorgsfulle livet hjemme, bodde det en
 Da Magozwes foreldre døde var han bare fem år. Han dro for å bo med onkelen sin. Denne mannen brydde seg ikke om barnet. Han ga ikke Magozwe nok mat. Han tvang gutten til å jobbe hardt.
 
 ##
-Hvis Magozwe klagde eller stilte spørsmål, slo onkelen hans ham. Når Magozwe spurte om han kunne gå på skolen, slo onkelen hans ham og sa: "Du er for dum for å lære noe som helst." Etter tre år med denne behandlingen rømte Magozwe fra onkelen sin. Han begynte å bo på gata.
+Hvis Magozwe klagde eller stilte spørsmål, slo onkelen hans ham. Når Magozwe spurte om han kunne gå på skolen, slo onkelen hans ham og sa: "Du er for dum til å lære noe som helst." Etter tre år med denne behandlingen rømte Magozwe fra onkelen sin. Han begynte å bo på gata.
 
 ##
 Livet på gata var vanskelig, og de fleste guttene slet hver dag bare for å finne mat. Noen ganger ble de arrestert, andre ganger ble de slått. Når de ble syke var det ingen som kunne hjelpe dem. Gjengen var avhengig av de få pengene de fikk fra å tigge og fra å selge plast og annet til resirkulering. Livet var enda vanskeligere på grunn av slåsskamper med rivaliserende gjenger som ville ha kontroll over deler av byen.
@@ -34,7 +34,7 @@ Da de møttes begynte Magozwe å fortelle sin egen historie til Thomas. Det var 
 Omkring Magozwes tiende fødselsdag ga Thomas ham en ny barnebok. Det var fortellingen om en landsbygutt som vokste opp til å bli en berømt fotballspiller. Thomas leste den fortellingen for Magozwe mange ganger, helt til han en dag sa: "Jeg synes det er på tide at du går på skolen og lærer å lese. Hva synes du?" Thomas forklarte at han visste om et sted hvor barn kunne bo og gå på skole.
 
 ##
-Magozwe tenkte på dette nye stedet og på å gå på skolen. Hva om onkelen hans hadde rett og han var for dum for å lære noe? Hva om de slo ham på dette nye stedet? Han var redd. "Kanskje det er bedre å bo på gata", tenkte han.
+Magozwe tenkte på dette nye stedet og på å gå på skolen. Hva om onkelen hans hadde rett og han var for dum til å lære noe? Hva om de slo ham på dette nye stedet? Han var redd. "Kanskje det er bedre å bo på gata", tenkte han.
 
 ##
 Han snakket om det han var redd for med Thomas. Med tiden forsikret mannen gutten om at livet kunne bli bedre på det nye stedet.
