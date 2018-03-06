@@ -1,7 +1,7 @@
 # Fotballhelten Andiswa
 
 ##
-Andiswa så på guttene spille fotball. Hun ville så gjerne være med! Hun spurte treneren om hun kunne få trene sammen med dem.
+Andiswa så på at guttene spilte fotball. Hun ville så gjerne være med! Hun spurte treneren om hun kunne få trene sammen med dem.
 
 ##
 Treneren satte hendene i siden. "På skolen her får bare gutter spille fotball", sa han.
