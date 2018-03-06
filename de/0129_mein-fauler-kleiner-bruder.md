@@ -19,7 +19,9 @@ Ich wasche den Boden.
 Ich spüle das Geschirr.
 
 ##
-Warum arbeite ich so viel … während mein Bruder munter spielt?
+Warum arbeite ich so viel …
+
+… während mein Bruder munter spielt?
 
 ##
 * License: [CC-BY-NC]

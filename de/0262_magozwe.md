@@ -1,7 +1,7 @@
 # Magozwe
 
 ##
-In der geschäftigen Stadt Nairobi, fern eines liebevollen Zuhauses, lebte eine Gruppe obdachloser Jungen. Sie lebten in den Tag hinein. Eines Morgens packten sie ihre Matten nach einer kalten Nacht auf dem Bürgersteig. Sie machten ein Feuer aus Müll gegen die Kälte. Einer der Jungen unter ihnen war Magozwe. Er war der Jüngste.
+In der geschäftigen Stadt Nairobi, fern eines liebevollen Zuhauses, lebte eine Gruppe obdachloser Jungen. Sie lebten in den Tag hinein. Eines Morgens packten sie ihre Matten nach einer kalten Nacht auf dem Bürgersteig ein. Sie machten ein Feuer aus Müll gegen die Kälte. Einer der Jungen unter ihnen war Magozwe. Er war der Jüngste.
 
 ##
 Als Magozwes Eltern starben war er erst fünf Jahre alt. Er lebte von dort an mit seinem Onkel. Dieser Mann kümmerte sich nicht um den Jungen. Er gab Magozwe nicht genug zu Essen. Er ließ den Jungen sehr hart arbeiten.
@@ -31,7 +31,7 @@ Magozwe saß auf dem Bürgersteig und las das Bilderbuch als Thomas sich neben i
 Als sie sich trafen, erzählte Magozwe Thomas seine eigene Geschichte. Es war die Geschichte über seinen Onkel und weshalb er weggelaufen war. Thomas erwiderte nicht viel und er sagte Magozwe auch nicht, was er tun sollte, aber er hörte stets aufmerksam zu. Manchmal unterhielten sie sich während sie im Haus mit dem blauen Dach aßen.
 
 ##
-Als Magozwe ungefähr zehn Jahre alt war gab Thomas ihm ein Bilderbuch. Die Geschichte handelte von einem Dorfjungen, der zu einem berühmter Fußballspieler heranwuchs. Thomas las Magozwe die Geschichte oft vor, bis er eines Tages sagte: „Ich denke, es ist an der Zeit, dass du zur Schule gehst und lesen lernst. Was denkst du?“ Thomas erklärte ihm, dass er einen Ort kennt, an dem Kinder wohnen und zur Schule gehen können.
+Als Magozwe ungefähr zehn Jahre alt war, gab Thomas ihm ein Bilderbuch. Die Geschichte handelte von einem Dorfjungen, der zu einem berühmter Fußballspieler heranwuchs. Thomas las Magozwe die Geschichte oft vor, bis er eines Tages sagte: „Ich denke, es ist an der Zeit, dass du zur Schule gehst und lesen lernst. Was denkst du?“ Thomas erklärte ihm, dass er einen Ort kennt, an dem Kinder wohnen und zur Schule gehen können.
 
 ##
 Magozwe dachte über diesen neuen Ort nach, und darüber zur Schule zu gehen. Was, wenn sein Onkel recht hatte und er zu dumm war, um zu lernen? Was wenn man ihn an dem neuen Ort schlagen würde? Er hatte Angst. „Vielleicht ist es besser, weiter auf der Straße zu leben“, dachte er.

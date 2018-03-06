@@ -7,7 +7,7 @@ Es war ein kleines Mädchen, das zuerst die mysteriöse Gestalt in der Ferne erk
 Als die Gestalt näher kam, sah sie, dass es eine hochschwangere Frau war.
 
 ##
-Schüchtern, aber tapfer näherte sich das Mädchen der Frau. „Sie soll bei uns bleiben“, entschieden das Volk des kleinen Mädchens. „Wir bieten ihr und ihrem Kind Schutz.“
+Schüchtern, aber tapfer näherte sich das Mädchen der Frau. „Sie soll bei uns bleiben“, entschied das Volk des kleinen Mädchens. „Wir bieten ihr und ihrem Kind Schutz.“
 
 ##
 Das Kind war bald unterwegs. „Press!“, „Bringt Decken!“, „Wasser!“, „Preeeeeeessen!“
@@ -49,7 +49,7 @@ Eines Morgens bat der alte Mann Esel ihn einen Berg hochzutragen.
 Hoch oben in den Wolken schliefen sie ein. Esel träumte, dass seine Mutter krank sei und nach ihm rief. Und als er aufwachte …
 
 ##
-… waren die Wolken zusammen mit seinem Freund, dem alten Mann verschwunden.
+… waren die Wolken zusammen mit seinem Freund, dem alten Mann, verschwunden.
 
 ##
 Esel wusste endlich, was er zu tun hatte.

@@ -19,7 +19,7 @@ Junge Mädchen arbeiteten als Dienstmädchen in anderen Dörfern.
 Manche Jungen trieben sich im Dorf herum, während andere auf Höfen arbeiteten.
 
 ##
-Wenn der Wind blies, hing Toilettenpapier in den Bäumen und an Zäunen.
+Wenn der Wind blies, hingen Papierreste in den Bäumen und an Zäunen.
 
 ##
 Leute schnitten sich an Glasscherben, die herumlagen.

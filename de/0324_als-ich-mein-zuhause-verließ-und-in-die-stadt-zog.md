@@ -1,7 +1,7 @@
 # Als ich mein Zuhause verließ und in die Stadt zog
 
 ##
-Der kleine Busbahnhof in meinem Dorf war voll mit Leuten und überladenen Bussen und auf dem Boden lagen noch mehr Gepäck, das verladen werden musste. Händler riefen die Städtenamen, wo ihre Busse hinfuhren.
+Der kleine Busbahnhof in meinem Dorf war voll mit Leuten und überladenen Bussen und auf dem Boden lag noch mehr Gepäck, das verladen werden musste. Händler riefen die Namen der Städte, wo ihre Busse hinfuhren.
 
 ##
 “Stadt! Stadt! Richtung Westen!“ hörte ich einen Händler rufen. Diesen Bus musste ich nehmen.

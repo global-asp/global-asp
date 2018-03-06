@@ -28,7 +28,7 @@ Unterwegs traf Vusi eine Kuh. „Was für leckeres Stroh, kann ich ein bisschen 
 “Was hast du getan?“ rief Vusi. „Dieses Stroh war ein Geschenk für meine Schwester. Die Bauarbeiter gaben es mir, weil sie den Stock von den Obstpflückern kaputt gemacht haben. Die Obstpflücker gaben mir den Stock, weil sie das Ei für die Torte meiner Schwester kaputt gemacht haben. Die Torte war für die Hochzeit meiner Schwester. Jetzt habe ich kein Ei, keine Torte und kein Geschenk. „Was wird meine Schwester sagen?“
 
 ##
-Der Kuh tat es leid, dass sie gierig war. Der Bauer ließ die Kuh als Geschenk für seine Schwester mit Vusi gehen. Und so lief Vusi weiter.
+Der Kuh tat es leid, dass sie gierig gewesen war. Der Bauer ließ die Kuh als Geschenk für seine Schwester mit Vusi gehen. Und so lief Vusi weiter.
 
 ##
 Aber die Kuh lief zur Abendessenszeit zurück zum Bauern. Und Vusi verlief sich auf seiner Reise. Er kam erst sehr spät zur Hochzeit seiner Schwester. Die Gäste waren schon beim Essen.

@@ -1,16 +1,16 @@
 # Tiere zählen
 
 ##
-Ein Elefant will Wasser saufen.
+Ein Elefant will Wasser trinken.
 
 ##
-Zwei Giraffen wollen Wasser saufen.
+Zwei Giraffen wollen Wasser trinken.
 
 ##
-Drei Büffel und vier Vögel wollen Wasser saufen.
+Drei Büffel und vier Vögel wollen Wasser trinken.
 
 ##
-Fünf Antilopen und sechs Wildschweine laufen zum Wasser.
+Fünf Antilopen und sechs Warzenschweine laufen zum Wasser.
 
 ##
 Sieben Zebras galoppieren zum Wasser.
@@ -19,10 +19,10 @@ Sieben Zebras galoppieren zum Wasser.
 Acht Frösche und neun Fische schwimmen im Wasser.
 
 ##
-Ein Löwe brüllt. Auch er will saufen. Wer hat Angst vorm Löwen?
+Ein Löwe brüllt. Auch er will trinken. Wer hat Angst vorm Löwen?
 
 ##
-Ein Elefant säuft mit dem Löwen Wasser.
+Ein Elefant trinkt mit dem Löwen Wasser.
 
 ##
 * License: [CC-BY]

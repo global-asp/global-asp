@@ -13,7 +13,7 @@ Früh am nächsten Morgen machten sie sich im Auto ihres Vaters zum Dorf auf. Si
 Nach einer Weile waren die Kinder müde und schliefen ein.
 
 ##
-Vater weckte Odongo und Apiyo, als sie im Dorf ankamen. Nyar-Kanyada, ihre Großmutter, lag auf einer Matte unter einem Baum und entspannte. Nyar-Kanyada in Luo bedeutet „Tochter des Volkes von Kanyada“. Sie war eine schöne und starke Frau.
+Vater weckte Odongo und Apiyo, als sie im Dorf ankamen. Nyar-Kanyada, ihre Großmutter, lag auf einer Matte unter einem Baum und entspannte sich. Nyar-Kanyada in Luo bedeutet „Tochter des Volkes von Kanyada“. Sie war eine schöne und starke Frau.
 
 ##
 Nyar-Kanyada bat sie ins Haus und tanzte freudig im Zimmer herum. Ihre Enkelkinder überreichten ihr begeistert ihre Geschenke. „Öffne mein Geschenk zuerst“, meinte Odongo. „Nein, meins zuerst!“, entgegnete Apiyo.
@@ -37,7 +37,7 @@ Am nächsten Tag fuhr der Vater zurück in die Stadt und ließ die Kinder Nyar-K
 Odongo und Apiyo halfen ihrer Großmutter im Haushalt. Sie holten Wasser und Feuerholz. Sie sammelten Eier von den Hühnern und ernteten Gemüse aus dem Garten.
 
 ##
-Nyar-Kanyada lehrte ihre Enkelkinder, wie man weichen Ugali als Beilage für den Eintopf zubereitet. Sie zeigte ihnen, wie man Kokosreis als zum Bratfisch macht.
+Nyar-Kanyada lehrte ihre Enkelkinder, wie man weichen Ugali als Beilage für den Eintopf zubereitet. Sie zeigte ihnen, wie man Kokosreis als Beilage zum Bratfisch macht.
 
 ##
 Eines Morgens brachte Odongo Großmutters Kühe zum Grasen. Sie liefen hinüber zur Nachbarsfarm. Der Bauer war sehr böse auf Odongo. Er drohte, die Kühe als Entschädigung zu behalten. Von dort an passte der Junge genau auf, dass die Kühe keine Schwierigkeiten mehr machten.

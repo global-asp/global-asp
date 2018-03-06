@@ -10,7 +10,7 @@ Wangari liebte es, draußen zu sein. Im Gemüsegarten ihrer Familie lockerte sie
 Ihre liebste Tageszeit war nach Sonnenuntergang. Als es zu dunkel war, um die Pflanzen zu sehen, wusste Wangari, dass es Zeit war, nach Hause zu gehen. Sie folgte dem schmalen Pfad durch die Felder und überquerte dabei den Fluss.
 
 ##
-Wangari war ein kluges Kind und sie konnte es nicht erwarten, in die Schule zu gehen. Aber ihre Mutter und Vater wollten, dass sie zu Hause blieb und ihnen im Haus half. Als sie sieben Jahre alt war, überredete ihr großer Bruder ihre Eltern, sie zur Schule gehen zu lassen.
+Wangari war ein kluges Kind und sie konnte es nicht erwarten, in die Schule zu gehen. Aber ihre Mutter und ihr Vater wollten, dass sie zu Hause blieb und ihnen im Haus half. Als sie sieben Jahre alt war, überredete ihr großer Bruder ihre Eltern, sie zur Schule gehen zu lassen.
 
 ##
 Sie lernte gern! Wangari lernte immer mehr mit jedem Buch, das sie las. Sie war so gut in der Schule, dass sie eingeladen wurde, in den Vereinigten Staaten von Amerika zu studieren. Wangari war begeistert! Sie wollte mehr über die Welt wissen.

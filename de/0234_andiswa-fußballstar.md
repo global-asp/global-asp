@@ -13,7 +13,7 @@ Die Jungen sagten, sie solle Netzball spielen. Sie sagten, Netzball sei für Mä
 Am nächsten Tag gab es ein großes Fußballspiel. Der Trainer machte sich Sorgen, weil sein bester Spieler krank war und nicht spielen konnte.
 
 ##
-Andiswa lief zum Trainer und flehte ihn an, sie spielen zu lassen. Der Trainer wusste nicht, was er tun sollte. Dann beschloss er, Andiswa in die Mannschaft auszunehmen.
+Andiswa lief zum Trainer und flehte ihn an, sie spielen zu lassen. Der Trainer wusste nicht, was er tun sollte. Dann beschloss er, Andiswa in die Mannschaft aufzunehmen.
 
 ##
 Das Spiel war hart. Zur Halbzeit hatte noch niemand ein Tor geschossen.

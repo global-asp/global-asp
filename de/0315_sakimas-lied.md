@@ -1,7 +1,7 @@
 # Sakimas Lied
 
 ##
-Sakima lebte zusammen mit seinen Eltern und seiner vier Jahre alten Schwester. Sie lebten auf dem Land eines reichen Mannes. Ihre grasgedeckte Hütte stand an einer Baumreihe.
+Sakima lebte zusammen mit seinen Eltern und seiner vier Jahre alten Schwester. Sie lebten auf dem Land eines reichen Mannes. Ihre grasbedeckte Hütte stand an einer Baumreihe.
 
 ##
 Als Sakima drei Jahre alt war, wurde er krank und erblindete. Sakima war ein talentierter Junge.
@@ -43,7 +43,7 @@ Am nächsten Tag bat Sakima seine kleine Schwester ihn zum Haus des reichen Mann
 Er stand unter einem der großen Fenster und begann sein Lieblingslied zu singen. Langsam wurde das Gesicht des reichen Mannes am großen Fenster sichtbar.
 
 ##
-Die Arbeiter unterbrachen ihre Arbeit. Sie hörten Sakimas wunderschönem Lied zu. Aber ein Mann meinte: „Niemand hat es geschafft, den Boss zu trösten. Glaubt dieser blinde Junge, dass er ihn trösten kann?“
+Die Arbeiter unterbrachen ihre Arbeit. Sie hörten Sakimas wunderschönem Lied zu. Aber ein Mann meinte: „Niemand hat es geschafft, den Chef zu trösten. Glaubt dieser blinde Junge, dass er ihn trösten kann?“
 
 ##
 Sakima sang das Lied zu Ende und wollte sich auf den Heimweg machen. Aber der reiche Mann eilte aus dem Haus und sagte: „Bitte, sing noch einmal.“

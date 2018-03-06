@@ -7,7 +7,7 @@ Omas Garten war wunderbar, voll mit Sorghum, Hirse und Maniok. Aber das beste vo
 Eines Tages sah ich einen großen Strohkorb in der Sonne vor Omas Haus stehen. Als ich fragte, wofür er war, bekam ich nur die Antwort: „Das ist mein Zauberkorb.“ Neben dem Korb lagen mehrere Bananenblätter, die Oma von Zeit zu Zeit wendete. Ich war neugierig. „Wofür sind die Blätter, Oma?“, wollte ich wissen. Die einzige Antwort darauf war: „Das sind meine Zauberblätter.“
 
 ##
-Es war so interessant, Oma, die Bananen, die Bananenblätter und den großen Strohkorb zu beobachten. Aber Oma schickte mich auf einen Botengang zu meiner Mutter. „Oma, bitte lass mich dir zusehen bei der Vorbereitung …“ „Sei nicht so ein Dickkopf, Kind, mach, was ich dir sage“, beharrte Oma. Ich machte mich schnell auf den Weg.
+Es war so interessant, Oma, die Bananen, die Bananenblätter und den großen Strohkorb zu beobachten. Aber Oma schickte mich auf einen Botengang zu meiner Mutter. „Oma, bitte bitte lass mich bei deiner Vorbereitung zusehen …“ „Sei nicht so ein Dickkopf, Kind. Mach, was ich dir sage“, beharrte Oma. Ich machte mich schnell auf den Weg.
 
 ##
 Als ich zurückkam saß Oma draußen, aber ohne Korb und Bananen. „Oma, wo ist der Korb, wo sind all die Bananen, und wo …“ Aber die einzige Antwort darauf war: „Die sind an meinem Zauberplatz.“ Was für eine Enttäuschung!
