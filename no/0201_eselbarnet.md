@@ -10,7 +10,7 @@ Etter hvert som skikkelsen kom nærmere, så hun at det var en høygravid kvinne
 Sjenert men modig gikk den lille jenta nærmere kvinnen. "Vi må beholde henne her hos oss", bestemte de som var med den lille jenta. "Vi skal beskytte henne og barnet hennes."
 
 ##
-Barnet var snart på vei. "Dytt!" "Hent pledd!" "Vann!" "Dyyyytt!"
+Barnet var snart på vei. "Trykk!" "Hent pledd!" "Vann!" "Tryyyykk!"
 
 ##
 Men da de fikk se babyen, vek alle tilbake i sjokk. "Et esel?"
@@ -25,10 +25,10 @@ Og slik var det at kvinnen ble alene igjen. Hun lurte på hva hun skulle gjøre 
 Men til slutt godtok hun at han var hennes barn og at hun var moren hans.
 
 ##
-Hvis bare barnet hadde beholdt den lille størrelsen, hadde alt kanskje vært annerledes. Men eselbarnet vokste og vokste helt til han ikke lenger fikk plass på morens rygg. Og uansett hvor hardt han forsøkte, klarte han ikke å oppføre seg som et menneske. Moren hans var ofte sliten og frustrert. Noen gang satte hun ham til å gjøre arbeid som var ment for dyr.
+Hvis bare barnet hadde beholdt den lille størrelsen, hadde alt kanskje vært annerledes. Men eselbarnet vokste og vokste helt til han ikke lenger fikk plass på morens rygg. Og uansett hvor hardt han forsøkte, klarte han ikke å oppføre seg som et menneske. Moren hans var ofte sliten og frustrert. Noen ganger satte hun ham til å gjøre arbeid som var ment for dyr.
 
 ##
-Esel ble fylt av forvirring og sinne. Han kunne ikke gjør ditt og han kunne ikke gjøre datt. Han kunne ikke være på én måte og han kunne ikke være på en annen måte. Han ble så sint at han en dag sparket ned huset til moren sin.
+Esel ble fylt av forvirring og sinne. Han kunne ikke gjøre ditt og han kunne ikke gjøre datt. Han kunne ikke være på én måte og han kunne ikke være på en annen måte. Han ble så sint at han en dag sparket ned huset til moren sin.
 
 ##
 Esel skammet seg. Han begynte å løpe vekk så fort han kunne.
