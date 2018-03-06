@@ -19,10 +19,10 @@ Jeg kutter opp squashen.
 Jeg hakker spinaten.
 
 ##
-Mammaen min hakker løken.
+Moren min hakker løken.
 
 ##
-Hakka løk får meg til å gråte.
+Hakket løk får meg til å gråte.
 
 ##
 * License: [CC-BY-NC]
