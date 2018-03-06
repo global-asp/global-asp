@@ -22,7 +22,7 @@ I det fjerne så hun lys som kom fra en hytte. Hun løp mot hytta og banket på 
 Så forundret hun ble da det var en hund som åpnet døra og sa: "Hva er det du vil?" "Jeg har gått meg vill og trenger et sted å sove", sa Nozibele. "Kom inn, ellers biter jeg deg!" sa hunden. Så Nozibele gikk inn.
 
 ##
-Da sa hunden: "Lag mat til meg!" "Men jeg har aldri laget mat for en hund før", svarte hun. "Lag mat, ellers biter jeg deg!" sa hunden. Så Nozibele laget litt mat til hunden.
+Da sa hunden: "Lag mat til meg!" "Men jeg har aldri laget mat til en hund før", svarte hun. "Lag mat, ellers biter jeg deg!" sa hunden. Så Nozibele laget litt mat til hunden.
 
 ##
 Da sa hunden: "Re opp sengen for meg!" Nozibele svarte: "Jeg har aldri redd opp sengen for en hund." "Re opp sengen, ellers biter jeg deg!" sa hunden. Så Nozibele redde opp sengen.
