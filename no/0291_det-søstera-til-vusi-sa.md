@@ -25,13 +25,13 @@ Bygningsarbeiderne var lei seg for at de knakk kjeppen. "Vi kan ikke hjelpe deg 
 På veien møtte Vusi en bonde og ei ku. "For noe deilig halm, kan jeg få en smakebit?" spurte kua. Men halmen smakte så godt at kua spiste opp alt!
 
 ##
-"Hva har du gjort?" ropte Vusi. "Den halmen var en gave til søstera mi. Bygningsarbeiderne ga meg den halmen fordi de knakk kjeppen fra fruktplukkerne. Fruktplukkerne ga meg kjeppen fordi de knuste egget ment for kaka til søstera mi. Kaka var ment for bryllupet til søstera mi. Nå er det ikke noe egg, ikke noen kake, og ikke noen gave. hva kommer søstera mi til å si?"
+"Hva har du gjort?" ropte Vusi. "Den halmen var en gave til søstera mi. Bygningsarbeiderne ga meg den halmen fordi de knakk kjeppen fra fruktplukkerne. Fruktplukkerne ga meg kjeppen fordi de knuste egget ment for kaka til søstera mi. Kaka var ment for bryllupet til søstera mi. Nå er det ikke noe egg, ikke noen kake, og ikke noen gave. Hva kommer søstera mi til å si?"
 
 ##
-Kua var lei seg for at hun var grådig. Bonden ble enig om at kua skulle følge med Vusi som en gave til søstera hans. Og slik fortsatte Vusi.
+Kua var lei seg for at hun var grådig. Bonden ble enig i at kua skulle følge med Vusi som en gave til søstera hans. Og slik fortsatte Vusi.
 
 ##
-Men kua sprang tilbake til bonden rundt middagstid. Og Vusi gikk seg vill på reisen. Kan kom frem veldig sent til bryllupet til søstera si. Gjestene var allerede i gang med å spise.
+Men kua sprang tilbake til bonden rundt middagstid. Og Vusi gikk seg vill på reisen. Han kom frem veldig sent til bryllupet til søstera si. Gjestene var allerede i gang med å spise.
 
 ##
 "Hva skal jeg gjøre?" ropte Vusi. "Den kua som sprang bort var en gave til gjengjeld for halmen som bygningsarbeiderne ga meg. Bygningsarbeiderne ga meg halmen fordi de knakk kjeppen fra fruktplukkerne. Fruktplukkerne ga meg kjeppen fordi de knuste egget som var ment for kaka. Kaka var ment for bryllupet. Nå er det ikke noe egg, ikke noen kake, og ikke noen gave."
