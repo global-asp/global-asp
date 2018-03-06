@@ -44,7 +44,7 @@ Da Simbegwires far kom hjem, så han at rommet hennes tomt. "Hva har skjedd, Ani
 Simbegwire lekte med fetterne og kusinene sine da hun så faren sin på lang avstand. Hun var redd han skulle bli sint, så hun løp inn i huset og gjemte seg. Men faren hennes gikk til henne og sa: "Simbegwire, du har funnet den beste moren i verden. En som er glad i og forstår deg. Jeg er stolt av deg og glad i deg." De ble enige om at Simbegwire skulle bli boende hos tanta si så lenge hun ville.
 
 ##
-Faren hennes besøkte henne hver dag. Etter hvert kom han med Anita. Hun rakte hånden til Simbegwire. Jeg er veldig lei meg, vesla, jeg tok feil", gråt hun. "Vil du la meg prøve igjen?" Simbegwire så på faren sin og den bekymrede minen hans. Da gikk hun bort til Anita og la langsomt armene rundt henne.
+Faren hennes besøkte henne hver dag. Etter hvert kom han med Anita. Hun rakte hånden til Simbegwire. "Jeg er veldig lei meg, vesla, jeg tok feil", gråt hun. "Vil du la meg prøve igjen?" Simbegwire så på faren sin og den bekymrede minen hans. Da gikk hun bort til Anita og la langsomt armene rundt henne.
 
 ##
 Neste uke ba Anita Simbegwire, sammen med fetterne, kusinene og tanta, hjem til seg på et måltid. For en fest! Anita lagde alle yndlingsrettene til Simbegwire, og alle spiste til de var gode og mette. Deretter lekte barna mens de voksne snakket. Simbegwire følte seg glad og modig. Hun bestemte seg for at snart, veldig snart, skulle hun flytte hjem og bo med faren og stemoren sin.
