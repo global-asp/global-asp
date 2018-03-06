@@ -13,7 +13,7 @@ Hvis jeg var en jeger ville jeg jaktet på dyr uten hår.
 Hvis jeg var en rotte ville jeg vokst meg stor og jaget katten.
 
 ##
-Hvis jeg var en baby vill jeg skreket etter bare dyre ting.
+Hvis jeg var en baby ville jeg skreket etter bare dyre ting.
 
 ##
 Hvis jeg var en katt ville jeg spist rotter for å bli tjukkere.
