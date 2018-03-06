@@ -10,7 +10,7 @@ Han pleide å passe på kuene med henne.
 En dag kom soldatene.
 
 ##
-De tok bort kuene.
+De tok kuene.
 
 ##
 Tingi og bestemoren hans løp og gjemte seg.
