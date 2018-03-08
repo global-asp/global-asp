@@ -10,7 +10,7 @@ Dwie żyrafy będą pić wodę.
 Trzy bawoły i cztery ptaki również będą pić wodę.
 
 ##
-Pięć antylop i sześć dzików podchodzi do wodopoju.
+Pięć antylop i sześć guźców podchodzi do wodopoju.
 
 ##
 Siedem zebr biegnie to wodopoju.
@@ -22,7 +22,7 @@ Osiem żab i dziewięć ryb pływa w wodzie.
 Jeden lew ryczy. On również chce napić się wody. Kto się boi lwa?
 
 ##
-Jeden słoń pije wodę razem z lwem.
+Jeden słoń i lew piją razem wodę.
 
 ##
 * License: [CC-BY]

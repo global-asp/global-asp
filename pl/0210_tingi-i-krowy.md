@@ -4,31 +4,31 @@
 Tingi mieszkał z babcią.
 
 ##
-Chłopiec opiekował się krowami razem z babcią.
+Razem z babcią, chłopiec opiekował się krowami.
 
 ##
-Pewnego dnia, zjawili się żołnierze.
+Pewnego dnia zjawili się żołnierze.
 
 ##
-I zabrali wszystkie krowy!
+Zabrali wszystkie krowy.
 
 ##
 Tingi razem z babcią uciekli, aby się ukryć.
 
 ##
-Ukryli się w gęstych krzakach, i czekali tam aż do zmroku.
+Ukrywali się w buszu aż do zmroku.
 
 ##
 Wtedy wrócili żołnierze.
 
 ##
-Babcia ukryła wnuczka pod kupką liści.
+Babcia ukryła wnuczka pod liśćmi.
 
 ##
-Gdy jeden z żołnierzy stanął na chłopcu, Tingi nie wydał z siebie żadnego dźwięku.
+Jeden z żołnierzy postawił na chłopcu stopę, ale Tingi nie wydał z siebie żadnego dźwięku.
 
 ##
-Kiedy zrobiło się bezpiecznie, Tingi wraz z babcią opuścili swoją kryjówkę.
+Kiedy było wystarczająco bezpiecznie, Tingi wraz z babcią opuścili kryjówkę.
 
 ##
 Ostrożnie i po cichu wrócili do domu.

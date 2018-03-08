@@ -4,37 +4,37 @@
 Tom niesie pojemnik z dojrzałymi bananami.
 
 ##
-Tom idzie sprzedać banany.
+Tom idzie na rynek sprzedawać banany.
 
 ##
-Ludzie na bazarku kupują różne owoce.
+Ludzie kupują różne owoce na rynku.
 
 ##
-Ale nikt nie kupuje bananów Toma. Ludzie wolą kupować od kobiet.
+Ale nikt nie kupuje bananów Toma. Ludzie wolą kupować owoce od kobiet.
 
 ##
 Ludzie mówią: „U nas tylko kobiety sprzedają owoce. Od kiedy to owoce sprzedaje mężczyzna?”
 
 ##
-Ale Tom nie poddaje się, nawołując: „Pyszne banany tylko u mnie!”
+Tom nie poddaje się i nawołuje: „Kupujcie moje banany! Pyszne, dojrzałe banany tylko u mnie!”
 
 ##
-Nagle jedna z kobiet podchodzi bliżej i zaczyna dokładnie oglądać pęczek bananów.
+Jedna z kobiet podchodzi bliżej, bierze kiść bananów i zaczyna ją dokładnie oglądać.
 
 ##
-Kobieta postanawia kupić te banany.
+Kobieta postanawia kupić banany.
 
 ##
-Więcej osób zaczyna kupować banany Toma.
+Więcej osób zaczyna podchodzić do stoiska aby kupić banany Toma.
 
 ##
-Po pewnym czasie, okazuje się, że Tom sprzedał wszystkie banany i liczy pieniądze, które zarobił.
+Wkrótce okazuje się, że pojemnik na banany jest pusty. Tom liczy pieniądze, które zarobił.
 
 ##
-Później, Tom kupuje mydło, cukier i chleb i wkłada je do swojego pojemnika.
+Później Tom kupuje mydło, cukier i chleb i wkłada je do swojego pojemnika.
 
 ##
-Tom próbuje zachować balans, gdy niesie pojemnik na głowie i zadowolony wraca do domu.
+Tom próbuje utrzymać równowagę, gdy niesie pojemnik na głowie i wraca do domu.
 
 ##
 * License: [CC-BY]

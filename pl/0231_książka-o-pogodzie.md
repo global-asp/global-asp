@@ -10,7 +10,7 @@ Słońce jest gorące.
 Jest wietrznie.
 
 ##
-Jest pochmurnie.
+Jest pochmurno.
 
 ##
 Jest zimno.

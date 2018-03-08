@@ -1,37 +1,37 @@
 # Kurczak i Stonoga
 
 ##
-Kurczak i Stonoga to dobrzy przyjaciele. Pomimo tego, zawsze ze sobą rywalizują. Pewnego dnia postanowili zagrać w piłkę nożną, aby sprawdzić kto jest lepszym graczem.
+Kurczak i Stonoga byli przyjaciółmi. Pomimo tego, zawsze ze sobą rywalizowali. Pewnego dnia postanowili zagrać w piłkę nożną, aby sprawdzić który z nich jest lepszym graczem.
 
 ##
-Spotkali się na boisku i zaczęli grać. Kurczak był szybki, ale nie tak szybki jak Stonoga. Kurczak kopał daleko, ale Stonoga jeszcze dalej. Kurczak zrobił się humorzasty.
+Spotkali się na boisku i zaczęli grać. Kurczak był szybki, ale nie tak szybki jak Stonoga. Kurczak kopał daleko, ale Stonoga kopała jeszcze dalej. Kurczak był w złym humorze.
 
 ##
-Postanowili przerzucić się na rzuty karne. Najpierw Stonoga stanęła na bramce i wtedy Kurczak strzelił tylko jedną bramkę. Nadeszła kolej Kurczaka, aby stanął na bramce.
+Zaczęli wykonywać rzuty karne. Najpierw Stonoga stanęła na bramce. Kurczak strzelił tylko jedną bramkę. Nadeszła kolej Kurczaka, aby stanął na bramce.
 
 ##
-Stonoga kopnęła piłkę i strzeliła bramkę! Potem dryblowała i też trafiła. Stonoga strzeliła też gola z główki! W sumie strzeliła aż pięć bramek!
+Stonoga kopnęła piłkę i strzeliła bramkę! Potem dryblowała i też trafiła. Strzeliła też gola z główki! W sumie Stonoga strzeliła aż pięć bramek!
 
 ##
-Kurczak był wściekły, że przegrał. Nie potrafił przegrywać. Stonoga zaczęła wyśmiewać się z Kurczaka, że tak bardzo to przeżywał.
+Kurczak był wściekły, że przegrał. Nie potrafił przegrywać. Stonoga zaczęła się śmiać, bo jej przyjaciel tak bardzo przejmował się swoją przegraną.
 
 ##
-Kurczak był taki zły, że otworzył szeroko swój dziób i połknął stonogę!
+Kurczak był tak zły, że otworzył szeroko dziób i połknął Stonogę!
 
 ##
-Gdy Kurczak wracał do domu, spotkał mamę Stonogi. Ta zapytała: „Czy widziałeś moje dziecko?” Kurczak nie odpowiedział, a mama stonogi bardzo się martwiła.
+Gdy Kurczak wracał do domu, spotkał Mamę Stonogi. Mama Stonogi zapytała: „Czy widziałeś moje dziecko?” Kurczak nie odpowiedział. Mama Stonogi bardzo się martwiła.
 
 ##
-Nagle mama stonogi usłyszała głos swojego dziecka: „Mamo! Pomóż!” Mama stonogi rozejrzała się dookoła i nasłuchiwała. Głos dobiegał ze środka kurczaka.
+Nagle Mama Stonogi usłyszała głos swojego dziecka: „Mamo! Pomóż!” Mama Stonogi rozejrzała się dookoła i nasłuchiwała. Głos dobiegał ze środka kurczaka.
 
 ##
-Mama stonogi krzyknęła: „Użyj swoich mocy, moje dziecko!” Stonogi potrafią wywołać bardzo brzydki zapach i nieprzyjemny smak. Kurczak zaczął bardzo źle się czuć.
+Mama Stonogi krzyknęła: „Użyj swoich mocy, moje dziecko!” Stonogi potrafią sprawić, że pojawia się bardzo brzydki zapach i nieprzyjemny smak. Kurczak zaczął bardzo źle się czuć.
 
 ##
-Kurczakowi odbiło się, potem pluł, kaszlał, kichał. Stonoga była obrzydliwa!
+Kurczakowi odbiło się. Potem pluł, kichał i kaszlał. Stonoga była obrzydliwa!
 
 ##
-Kurczak kaszlał i kaszlał, aż wykaszlał stonogę z żołądka. Wtedy stonoga i jej mama wpełzły na drzewo, aby się ukryć.
+Kurczak kaszlał i kaszlał, aż wykaszlał Stonogę z żołądka. Stonoga i jej mama wpełzły na drzewo, aby się ukryć.
 
 ##
 Od tej pory, kurczaki i stonogi to wrogowie.

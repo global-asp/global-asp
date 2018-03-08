@@ -7,31 +7,31 @@ Dawno, dawno temu, żyła sobie szczęśliwa rodzina.
 Nigdy się nie kłócili. Pomagali swoim rodzicom w domu i w polu.
 
 ##
-Jednak nie wolno im było zbliżać się do ognia.
+Nie wolno im było jednak zbliżać się do ognia.
 
 ##
-Ponieważ byli zrobieni z wosku musieli wykonywać wszystkie prace nocą.
+Byli zrobieni z wosku, więc musieli wykonywać wszystkie prace w nocy.
 
 ##
-Mimo to, jeden z chłopców był bardzo ciekawy światła dziennego.
+Mimo to, jeden z chłopców bardzo pragnął wyjść na zewnątrz w ciągu dnia..
 
 ##
-Pomimo przestróg braci, jego ciekawość wzięła górę.
+Pewnego dnia, pragnienie było zbyt silne. Jego bracia ostrzegali go…
 
 ##
-Niestety było już za późno i chłopiec stopił się w słońcu.
+Niestety było już za późno! Chłopiec stopił się w gorącym słońcu.
 
 ##
 Dzieci z wosku były bardzo poruszone tym co stało się z ich bratem.
 
 ##
-Postanowili ze stopionego wosku ulepić ptaka.
+Postanowili, że ze stopionego wosku ulepią ptaka.
 
 ##
 Zabrali brata-ptaka, wysoko, na sam szczyt góry.
 
 ##
-Gdy wzeszło słońce, ptak odleciał ćwierkając w świetle dziennym.
+Gdy wzeszło słońce, ptak odleciał ćwierkając w porannym świetle.
 
 ##
 * License: [CC-BY]

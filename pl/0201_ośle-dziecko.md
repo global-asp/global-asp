@@ -1,64 +1,64 @@
 # Ośle Dziecko
 
 ##
-Mała dziewczynka była pierwszą, która zobaczyła tajemniczy kształt w oddali.
+Mała dziewczynka zobaczyła tajemniczy kształt w oddali.
 
 ##
-Gdy dziwny kształt zbliżał się, dziewczynka zrozumiała, że to kobieta w zaawansowanej ciąży.
+Gdy kształt przybliżył się, dziewczynka zobaczyła, że była to kobieta w zaawansowanej ciąży.
 
 ##
-Nieśmiale choć odważnie dziewczynka zbliżyła się do kobiety. „Zostań z nami. Zaopiekujemy się Tobą i dzieckiem” - powiedzieli ludzie, z którymi była dziewczynka.
+Nieśmiała ale dzielna dziewczynka podeszła bliżej do kobiety. „Zostań z nami. Zaopiekujemy się Tobą i dzieckiem” - powiedzieli ludzie, z którymi była dziewczynka.
 
 ##
-Nadszedł dzień narodzin dziecka: Pchaj! Przynieście koce i wodę! Pchaaaaaaj!
+Nadszedł dzień narodzin dziecka: „Pchaj! Przynieście koce i wodę! Pchaaaaaaj!”
 
 ##
-Ale ku zdziwieniu wszystkich ludzi zamiast dziecka, kobieta urodziła osiołka!
+Ku zdziwieniu wszystkich, zamiast dziecka, kobieta urodziła osiołka!
 
 ##
-Ludzie zaczęli się kłócić: „Obiecaliśmy tej kobiecie bezpieczeństwo, jej i jej dziecku” - mówili jedni. „Przyniosą nam pecha!” - krzyczeli inni.
+Ludzie zaczęli się kłócić: „Obiecaliśmy tej kobiecie i jej dziecku bezpieczeństwo, i tak zrobimy” - mówili jedni. „Przyniosą nam pecha!” - krzyczeli inni.
 
 ##
-Kobieta poczuła się samotna i nie wiedziała co ze sobą zrobić i co zrobić z tym dziwnym oślim dzieckiem.
+Kobieta poczuła się samotna. Nie wiedziała co ze sobą zrobić i co zrobić z tym dziwnym oślim dzieckiem.
 
 ##
-Ostatecznie musiała zaakceptować, że to jest jej dziecko, a ona jest jego matką.
+W końcu musiała zaakceptować, że osiołek był jej dzieckiem, a ona jego matką.
 
 ##
-Gdyby ośle dziecko nie rosło wszystko byłoby inne. Ale osiołek rósł i był już tak duży, że nie mieścił się na plecach matki. I choćby nie wiem jak próbował zachowywać się jak ludzie, nie udawało mu się. Przez to matka była często zmęczona i poirytowana. Czasami zmuszała go do pracy dla zwierząt.
+Wszystko wyglądałoby inaczej gdyby ośle dziecko nie rosło. Ale osiołek rósł i rósł aż był tak duży, że nie mieścił się na plecach matki. Chociaż bardzo się starał, nie potrafił zachowywać się jak ludzie. Jego matka była często zmęczona i poirytowana. Czasami zmuszała go do pracy przeznaczonej dla zwierząt.
 
 ##
-Zagubienie i złość rosły w osiołku. Do niczego się nie nadawał - według jego matki. Pewnego dnia był tak wściekły, że kopnął matkę!
+Zagubienie i złość rosły w osiołku. Nie wolno mu było robić tego i tamtego. Miał się zachowywać tak, a nie inaczej. Pewnego dnia był tak wściekły, że kopnął swoją matkę!
 
 ##
-Osiołek czuł się winny i zaczął uciekać najszybciej jak potrafił i jak najdalej mógł.
+Osiołek poczuł się bardzo winny. Zaczął uciekać, najszybciej jak potrafił i najdalej jak mógł.
 
 ##
-Kiedy wreszcie się zatrzymał, było już ciemno. „Halo?” - wyszeptał. „Halo?” - odpowiedziało echo. Był sam. Zwinął się w kulkę i zapadł w głęboki sen.
+Kiedy wreszcie się zatrzymał, było już ciemno. „I-o? I-o?” - wyszeptał. „I-o? I-o?” - odpowiedziało echo. Był sam. Zwinął się w kulkę i zapadł w głęboki, niespokojny sen.
 
 ##
-Osiołek obudził się i zauważył staruszka, który mu się przyglądał. Gdy spojrzał w oczy staruszka, poczuł dziwne uczucie nadziei.
+Osiołek obudził się i zauważył dziwnego staruszka, który mu się przyglądał. Spojrzał w oczy staruszka i poczuł iskierkę nadziei.
 
 ##
-Osiołek zamieszkał ze staruszkiem, który nauczył go jak przeżyć. Osiołek słuchał i uczył się od staruszka, a staruszek od osiołka. Pomagali sobie i często się śmiali.
+Osiołek zamieszkał ze staruszkiem, który nauczył go wielu sposobów na przetrwanie. Osiołek słuchał i uczył się od staruszka, a staruszek od osiołka. Pomagali sobie nawzajem i dużo się śmiali.
 
 ##
-Pewnego ranka, staruszek poprosił osiołka, aby ten zaniósł go na szczyt góry.
+Pewnego ranka, staruszek poprosił osiołka, aby zaniósł go na szczyt góry.
 
 ##
 Wysoko pośród chmur obaj zasnęli. Osiołek śnił o matce, która była ciężko chora i wzywała go. Gdy się obudził...
 
 ##
-...chmury zniknęły razem z jego przyjacielem staruszkiem.
+...chmury zniknęły, a razem z nimi zniknął jego przyjaciel staruszek.
 
 ##
-Osiołek wiedział już co ma robić.
+Osiołek wiedział już co ma zrobić.
 
 ##
-Znalazł matkę samą i płaczącą za synem. Patrzyli na siebie przez dłuższą chwilę i przytulili się tkwiąc w uścisku.
+Osiołek odnalazł swoją matkę. Była samotna i opłakiwała swoje zagubione dziecko. Patrzyli na siebie przez dłuższą chwilę, a potem przytulili się bardzo mocno do siebie.
 
 ##
-Ośle dziecko wraz z matką nauczyli się żyć razem i powoli inne rodziny dookoła też zdołały się przyzwyczaić do osiołka.
+Ośle dziecko i jego matka nauczyli się żyć razem. Powoli, wokół nich, zaczęły osiedlać się inne rodziny.
 
 ##
 * License: [CC-BY]

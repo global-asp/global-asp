@@ -1,43 +1,43 @@
 # Słowa siostry Vusi
 
 ##
-Pewnego wczesnego poranka babcia Vusi zwróciła się do chłopca: „Vusi, proszę weź to jajko i zanieś je swoim rodzicom. Chcą zrobić wielki tort na ślub Twojej siostry.”
+Pewnego wczesnego poranka babcia Vusi zwróciła się do chłopca: „Vusi, proszę weź to jajko i zanieś je swoim rodzicom. Chcą upiec wielki tort na ślub Twojej siostry”.
 
 ##
-W drodze do rodziców Vusi spotkał dwóch chłopców, którzy zbierali owoce. Jeden z nich zabrał Vusiemu jajko i rzucił nim w drzewo. Jajko rozbiło się.
+W drodze do rodziców Vusi spotkał dwóch chłopców, którzy zbierali owoce. Jeden z nich zabrał Vusi jajko i rzucił nim w drzewo. Jajko rozbiło się.
 
 ##
-„Coś ty narobił?” - krzyczał Visu. „To jajko było przeznaczone na tort na ślub mojej siostry. Co powie moja siostra gdy nie będzie tortu?”
+„Coś ty zrobił?” - krzyknął Vusi. „To jajko miało być na tort na ślub mojej siostry. Co powie moja siostra gdy nie będzie tortu?”
 
 ##
-Chłopcom zrobiło się głupio. „Niestety nie możemy pomóc Ci z tortem, ale proszę weź ten kij dla swojej siostry.” Vusi kontynuował swoją podróż.
+Chłopcy poczuli się głupio. „Niestety nie możemy pomóc Ci z tortem, ale proszę weź ten kij dla swojej siostry”- powiedział jeden z nich. Vusi wyruszył w dalszą podróż.
 
 ##
-Podczas wędrówki spotkał dwóch mężczyzn budujących dom. „Czy możemy użyć tego kija?” Jednak kij nie był wystarczająco silny i złamał się.
+Po drodze spotkał dwóch mężczyzn, którzy budowali dom. „Czy możemy użyć tego kija?” - zapytał jeden z nich. Kij nie był jednak wystarczająco mocny i złamał się.
 
 ##
-„Co zbiliście?” - krzyczał Vusi. „Ten kij był przeznaczony na prezent dla mojej siostry. Zbieracze owoców dali mi go, bo sami rozbili jajko na tort. Tort miał być na ślub mojej siostry. A teraz nie ma ani jajka, ani tortu, ani prezentu. Co powie moja siostra?”
+„Co zrobiliście?” - krzyknął Vusi. „Ten kij był prezentem dla mojej siostry. Zbieracze owoców dali mi ten kij, bo rozbili jajko na tort. Tort miał być na ślub mojej siostry. A teraz nie mam ani jajka, ani tortu, ani prezentu. Co powie moja siostra?”
 
 ##
-Robotnikom zrobiło się głupio. „Nie możemy pomóc Ci z tortem, ale proszę weź tę słomę dla swojej siostry.” Vusi powędrował dalej.
+Robotnicy poczuli się głupio: „Nie możemy pomóc Ci z tortem, ale proszę weź tę słomę na dach dla swojej siostry.” Vusi powędrował dalej.
 
 ##
-Podczas wędrówki Vusi spotkał rolnika z krową. „Co za pysznie wyglądająca słoma - mogę kęsa?” - zapytała krowa. Ale słoma była tak pyszna, że krowa zjadła całą słomę!
+Po drodze Vusi spotkał rolnika z krową. „Ta słoma wygląda tak smakowicie, czy mogę skubnąć?” - zapytała krowa. Krowa zjadła całą słomę, bo słoma była bardzo smaczna!
 
 ##
-„Coś Ty narobiła?” - krzyczał Vusi. „To był prezent dla mojej siostry. Robotnicy dali mi ją, bo złamali kij od zbieraczy owoców. Zbieracze owoców dali mi kij, bo zbili jajko na tort na ślub mojej siostry. A teraz nie ma ani jajka, ani tortu, ani prezentu. Co powie moja siostra?”
+„Coś ty zrobiła?” - krzyknął Vusi. „To był prezent dla mojej siostry. Robotnicy dali mi słomę, bo złamali kij od zbieraczy owoców. Zbieracze owoców dali mi kij, bo rozbili jajko na tort na ślub mojej siostry. A teraz nie mam ani jajka, ani tortu, ani prezentu. Co powie moja siostra?”
 
 ##
-Krowie było głupio. Rolnik pozwolił Vusiemu zabrać krowę jako prezent dla siostry. Vusi szedł dalej.
+Krowa poczuła się głupio. Rolnik pozwolił Vusiemu zabrać krowę jako prezent dla siostry. Vusi poszedł dalej.
 
 ##
-Ale krowa uciekła i wróciła do rolnika. Vusi zgubił się i spóźnił się na ślub siostry. Wszyscy goście już jedli.
+Krowa uciekła i wróciła do rolnika. Vusi zgubił się i spóźnił się na ślub siostry. Wszyscy goście już jedli.
 
 ##
-„Co mam teraz zrobić?” - krzyczał Vusi. „Krowa, która uciekła miała być prezentem za słomę od robotników. Robotnicy dali mi słomę, bo złamali kij od zbieraczy owoców. Zbieracze owoców dali mi kij, bo zbili jajko na tort. Tort miał być na ślub. A teraz nie ma ani jajka, ani tortu, ani prezentu.”
+„Co mam teraz zrobić?” - krzyczał Vusi. „Krowa, która uciekła, była prezentem w zamian za słomę od robotników. Robotnicy dali mi słomę, bo złamali kij od zbieraczy owoców. Zbieracze owoców dali mi kij, bo zbili jajko na tort. Tort miał być na ślub. A teraz nie mam ani jajka, ani tortu, ani prezentu.”
 
 ##
-Siostra Vusi pomyślała przez chwilę. Po czym powiedziała: „Vusi, mój bracie, nie obchodzą mnie prezenty. Nawet tort mnie nie obchodzi! Jesteśmy tutaj wszyscy razem i to sprawia, że jestem szczęśliwa! Radujmy się i świętujmy ten dzień!” I tak też zrobił Vusi.
+Siostra Vusi pomyślała przez chwilę i powiedziała: „Vusi, mój bracie, nie zależy mi na prezentach. Nie zależy mi nawet na torcie! Jesteśmy tutaj wszyscy razem i dlatego jestem szczęśliwa! Załóż odświętne ubranie i świętujmy ten dzień!” I tak też zrobił Vusi.
 
 ##
 * License: [CC-BY]

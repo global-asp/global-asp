@@ -7,10 +7,10 @@ Był sobie bardzo głodny krokodyl.
 Szukał jedzenia powoli i po cichu. Gdy nagle...
 
 ##
-MACH! Krokodyl atakuje!
+MACH!!! Krokodyl atakuje!
 
 ##
-Teraz, nie jest już głodny - jest szczęśliwy.
+Teraz nie jest już głodny. Jest szczęśliwy.
 
 ##
 Aż do następnego razu, gdy znów zgłodnieje.

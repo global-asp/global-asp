@@ -4,7 +4,7 @@
 Budzę się i rozpalam ognisko.
 
 ##
-Gotuję trochę wody.
+Gotuję wodę.
 
 ##
 Rąbię drewno.
