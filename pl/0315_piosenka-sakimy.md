@@ -19,7 +19,7 @@ Sakima uwielbiał śpiewać. Pewnego dnia matka zapytała go: „Skąd znasz te 
 „Słyszę je w mojej głowie i śpiewam, po prostu przychodzą do mnie” - odpowiedział chłopiec.
 
 ##
-Sakima lubił śpiewać dla młodszej siostry, szczególnie, gdy była głodna. Siostra słuchała gdy śpiewał swoją ulubioną piosenkę i kołysała się w jej rytm.
+Sakima lubił śpiewać dla młodszej siostry, szczególnie, gdy była głodna. Siostra słuchała, gdy śpiewał swoją ulubioną piosenkę i kołysała się w jej rytm.
 
 ##
 „Sakima, czy możesz zaśpiewać tę piosenkę jeszcze raz?” - prosiła. Sakima zgadzał się i śpiewał piosenkę od początku.

@@ -22,7 +22,7 @@ Pewnego dnia, pragnienie było zbyt silne. Jego bracia ostrzegali go…
 Niestety było już za późno! Chłopiec stopił się w gorącym słońcu.
 
 ##
-Dzieci z wosku były bardzo poruszone tym co stało się z ich bratem.
+Dzieci z wosku były bardzo poruszone tym, co stało się z ich bratem.
 
 ##
 Postanowili, że ze stopionego wosku ulepią ptaka.

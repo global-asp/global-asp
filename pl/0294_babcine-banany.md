@@ -1,7 +1,7 @@
 # Babcine banany
 
 ##
-Ogród babci był wspaniały, pełen sorgo, proso, manioku. Jednak najlepsze były banany. Czułam, że byłam ulubienicą babci, mimo tego że miała wiele wnucząt. Często zapraszała mnie do swojego domu. Dzieliła się ze mną małymi tajemnicami. Ale był jeden sekret, którym się ze mną nie podzieliła: gdzie dojrzewały banany.
+Ogród babci był wspaniały, pełny sorgo, proso, manioku. Jednak najlepsze były banany. Czułam, że byłam ulubienicą babci, mimo tego że miała wiele wnucząt. Często zapraszała mnie do swojego domu. Dzieliła się ze mną małymi tajemnicami. Ale był jeden sekret, którym się ze mną nie podzieliła: gdzie dojrzewały banany.
 
 ##
 Pewnego dnia zauważyłam duży słomiany kosz, który stał w słońcu przed domem. Zapytałam o niego, ale babcia odpowiedziała: „To mój magiczny kosz.” Obok kosza było kilka liści bananowca, które babcia odwracała od czasu do czasu. Byłam ciekawa: „Po co te liście babciu?” Babcia odpowiedziała: „To moje magiczne liście”.

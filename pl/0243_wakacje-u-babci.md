@@ -40,7 +40,7 @@ Odongo i Apiyo pomagali babci w pracach wokół domu. Nosili wodę i zbierali dr
 Nyar-Kanyada nauczyła wnuki jak przyrządzać delikatne ugali z gulaszem. Pokazała im też jak robić ryż kokosowy z pieczoną rybą.
 
 ##
-Pewnego ranka, Odongo zabrał krowy babci na pastwisko. Krowy wbiegły na pole sąsiada. Sąsiad był zły na Odongo i zagroził, że zatrzyma krowy jeśli będą zjadać mu jego rośliny uprawne. Od tej pory chłopiec dbał o to, aby krowy nie sprawiały żadnych problemów.
+Pewnego ranka, Odongo zabrał krowy babci na pastwisko. Krowy wbiegły na pole sąsiada. Sąsiad był zły na Odongo i zagroził, że zatrzyma krowy jeśli będą zjadać jego rośliny uprawne. Od tej pory chłopiec dbał o to, aby krowy nie sprawiały żadnych problemów.
 
 ##
 Innym razem dzieci udały się z babcią na targ. Babcia miała stoisko, na którym sprzedawała warzywa, cukier i mydło. Apiyo lubiła podawać klientom ceny, a Odongo pakował zakupione przez klientów produkty.

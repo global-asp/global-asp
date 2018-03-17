@@ -1,7 +1,7 @@
 # Słowa siostry Vusi
 
 ##
-Pewnego wczesnego poranka babcia Vusi zwróciła się do chłopca: „Vusi, proszę weź to jajko i zanieś je swoim rodzicom. Chcą upiec wielki tort na ślub Twojej siostry”.
+Pewnego wczesnego poranka babcia Vusi zwróciła się do chłopca: „Vusi, proszę weź to jajko i zanieś je swoim rodzicom. Rodzice chcą upiec wielki tort na ślub Twojej siostry”.
 
 ##
 W drodze do rodziców Vusi spotkał dwóch chłopców, którzy zbierali owoce. Jeden z nich zabrał Vusi jajko i rzucił nim w drzewo. Jajko rozbiło się.

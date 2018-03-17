@@ -40,7 +40,7 @@ Kiedy wreszcie się zatrzymał, było już ciemno. „I-o? I-o?” - wyszeptał.
 Osiołek obudził się i zauważył dziwnego staruszka, który mu się przyglądał. Spojrzał w oczy staruszka i poczuł iskierkę nadziei.
 
 ##
-Osiołek zamieszkał ze staruszkiem, który nauczył go wielu sposobów na przetrwanie. Osiołek słuchał i uczył się od staruszka, a staruszek od osiołka. Pomagali sobie nawzajem i dużo się śmiali.
+Osiołek zamieszkał ze staruszkiem, który nauczył go wielu sposobów na przetrwanie. Osiołek słuchał i uczył się od staruszka, a staruszek od osiołka. Pomagali sobie nawzajem i często się śmiali.
 
 ##
 Pewnego ranka, staruszek poprosił osiołka, aby zaniósł go na szczyt góry.

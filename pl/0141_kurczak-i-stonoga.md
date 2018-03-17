@@ -7,7 +7,7 @@ Kurczak i Stonoga byli przyjaciółmi. Pomimo tego, zawsze ze sobą rywalizowali
 Spotkali się na boisku i zaczęli grać. Kurczak był szybki, ale nie tak szybki jak Stonoga. Kurczak kopał daleko, ale Stonoga kopała jeszcze dalej. Kurczak był w złym humorze.
 
 ##
-Zaczęli wykonywać rzuty karne. Najpierw Stonoga stanęła na bramce. Kurczak strzelił tylko jedną bramkę. Nadeszła kolej Kurczaka, aby stanął na bramce.
+Zaczęli wykonywać rzuty karne. Najpierw Stonoga stanęła na bramce. Kurczak strzelił tylko jedną bramkę. Nadeszła kolej Kurczaka, aby stanąć na bramce.
 
 ##
 Stonoga kopnęła piłkę i strzeliła bramkę! Potem dryblowała i też trafiła. Strzeliła też gola z główki! W sumie Stonoga strzeliła aż pięć bramek!

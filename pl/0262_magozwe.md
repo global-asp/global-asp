@@ -10,7 +10,7 @@ Magozwe miał tylko pięć lat, kiedy zmarli jego rodzice. Zamieszkał ze swoim 
 Magozwe był bity przez wujka, gdy narzekał albo mu się przeciwstawiał. Pewnego razu, gdy Magozwe zapytał czy mógłby pójść do szkoły, wujek uderzył go i powiedział „Jesteś za głupi na to, żeby się czegokolwiek nauczyć”. Po trzech latach takiego traktowania, Magozwe uciekł z domu swojego wujka i zamieszkał na ulicy.
 
 ##
-Życie na ulicy było trudne. Codziennym problemem dla większości chłopców było zdobycie jedzenia. Czasem byli aresztowani, czasem bici. Kiedy byli chorzy, nie było nikogo, kto mógłby im pomóc. Grupa chłopców żyła z tego co wyżebrała oraz ze sprzedaży opakowań plastikowych i innych przetwarzalnych odpadów. Stałe konflikty pomiędzy rywalizującymi grupami chłopców, które walczyły o wpływy w danej części miasta, nie ułatwiały życia.
+Życie na ulicy było trudne. Codziennym problemem dla większości chłopców było zdobycie jedzenia. Czasem byli aresztowani, czasem bici. Kiedy byli chorzy, nie było nikogo, kto mógłby im pomóc. Grupa chłopców żyła z tego co wyżebrała oraz ze sprzedaży opakowań plastikowych i innych odpadów. Stałe konflikty pomiędzy rywalizującymi grupami chłopców, które walczyły o wpływy w danej części miasta, nie ułatwiały życia.
 
 ##
 Pewnego dnia, gdy Magozwe przeszukiwał śmietniki znalazł starą, zniszczoną książkę z opowiadaniami. Oczyścił ją z brudu i włożył do swojego worka. Każdego dnia wyjmował książkę i oglądał obrazki. Nie potrafił przeczytać słów.
@@ -25,7 +25,7 @@ Pewnego zimnego dnia Magozwe stał przy drodze i żebrał. Podszedł do niego m�
 W ciągu następnych kilku miesięcy bezdomni chłopcy przyzwyczaili się do spotkań z Thomasem. Thomas lubił rozmawiać z ludźmi, zwłaszcza z tymi, którzy mieszkali na ulicy. Słuchał historii ich życia. Był poważny i cierpliwy, nigdy nie był nieuprzejmy albo lekceważący. Niektórzy chłopcy zaczęli odwiedzać niebiesko-żółty dom, aby zjeść posiłek w południe.
 
 ##
-Magozwe siedział na krawężniku i oglądał obrazki w swojej książce, kiedy Thomas się do niego przysiadł. „O czym jest ta historia?” - zapytał. „Jest o chłopcu, który zostaje pilotem”, odpowiedział Magozwe. „Jak ten chłopiec ma na imię?” - dopytywał Magozwe. „Nie wiem, nie umiem czytać” - cicho odpowiedział Magozwe.
+Magozwe siedział na krawężniku i oglądał obrazki w swojej książce, kiedy Thomas się do niego przysiadł. „O czym jest ta historia?” - zapytał. „Jest o chłopcu, który zostaje pilotem”, odpowiedział Magozwe. „Jak ten chłopiec ma na imię?” - dopytywał Thomas. „Nie wiem, nie umiem czytać” - cicho odpowiedział Magozwe.
 
 ##
 Kiedy się spotykali, Magozwe zaczął opowiadać swoją własną historię. Była to opowieść o jego wujku i ucieczce z domu. Thomas zawsze słuchał uważnie, nie mówił wiele i nie mówił Magozwe co ma robić. Czasem rozmawiali podczas posiłków w domu z niebieskim dachem.
@@ -46,7 +46,7 @@ I tak Magozwe wprowadził się do pokoju w domu z zielonym dachem. Dzielił pok�
 Magozwe zaczął naukę w szkole. Nie było łatwo, bo miał wiele do nadrobienia. Czasami chciał się poddać, ale myślał o pilocie i o piłkarzu z opowieści, i tak jak oni nie poddawał się.
 
 ##
-Pewnego dnia Magozwe siedział w ogródku domu z zielonym dachem i czytał opowiadanie do szkoły. Thomas podszedł i usiadł koło niego. „O czym jest ta historia?” - zapytał. „Jest o chłopcu, który został nauczycielem” - odpowiedział Magozwe. „Jak on ma na imię?” - zapytał Thomas. „Ma na imię Magozwe” - z uśmiechem odparł Magozwe.
+Pewnego dnia Magozwe siedział w ogródku domu z zielonym dachem i czytał opowiadanie do szkoły. Thomas podszedł i usiadł obok niego. „O czym jest ta historia?” - zapytał. „Jest o chłopcu, który został nauczycielem” - odpowiedział Magozwe. „Jak on ma na imię?” - zapytał Thomas. „Ma na imię Magozwe” - z uśmiechem odparł Magozwe.
 
 ##
 * License: [CC-BY]
