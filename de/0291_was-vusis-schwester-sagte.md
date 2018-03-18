@@ -4,7 +4,7 @@
 Eines frühen Morgens rief Omi Vusi: „Vusi, bitte bring deinen Eltern dieses Ei. Sie wollen eine große Torte für die Hochzeit deiner Schwester backen.
 
 ##
-Auf dem Weg zu seinen Eltern traf Vusi zwei Jungen die Obst pflückten. Ein Junge griff nach Vusis Ei und schoss es auf gegen einen Baum. Das Ei zerbrach.
+Auf dem Weg zu seinen Eltern traf Vusi zwei Jungen die Obst pflückten. Ein Junge griff nach Vusis Ei und schoss es gegen einen Baum. Das Ei zerbrach.
 
 ##
 “Was hast du getan?“, rief Vusi. „Dieses Ei war für eine Torte. Die Torte war für die Hochzeit meiner Schwester. Was wird meine Schwester sagen, wenn es keine Hochzeitstorte gibt?“

@@ -25,7 +25,7 @@ Aber es war zu spät! Er schmolz in der heißen Sonne.
 Die Wachskinder waren sehr traurig sehen zu müssen, wie ihr Bruder dahin schmolz.
 
 ##
-Aber sie schmiedeten ein Plan. Sie formten den geschmolzenen Wachsklumpen zu einem Vogel.
+Aber sie schmiedeten einen Plan. Sie formten den geschmolzenen Wachsklumpen zu einem Vogel.
 
 ##
 Sie brachten ihren Vogelbruder auf einen hohen Berg.

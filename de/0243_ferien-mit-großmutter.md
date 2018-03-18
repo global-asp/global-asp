@@ -31,7 +31,7 @@ Sie kletterten auf Bäume und planschten im See.
 Als es dunkel war, gingen sie zum Abendessen ins Haus zurück. Noch bevor sie fertig waren, schliefen sie ein.
 
 ##
-Am nächsten Tag fuhr der Vater zurück in die Stadt und ließ die Kinder Nyar-Kanyada.
+Am nächsten Tag fuhr der Vater zurück in die Stadt und ließ die Kinder bei Nyar-Kanyada.
 
 ##
 Odongo und Apiyo halfen ihrer Großmutter im Haushalt. Sie holten Wasser und Feuerholz. Sie sammelten Eier von den Hühnern und ernteten Gemüse aus dem Garten.

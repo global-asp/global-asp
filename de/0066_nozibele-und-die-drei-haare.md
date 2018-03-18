@@ -40,7 +40,7 @@ Jeden Tag musste sie für den Hund kochen und kehren und waschen. Dann sagte der
 Sobald der Hund gegangen war, nahm Nozibele drei Haare von ihrem Kopf. Sie legte ein Haar unters Bett, eins hinter die Tür und eins ins Gehege. Dann lief sie so schnell sie konnte nach Hause.
 
 ##
-Als der Hund zurückkam, suchte er nach Nozibele. „Nozibele, wo bist du?“, rief er. „Ich bin hier, unter dem Bett.“, sagte das erste Haar. „Ich bin hier, hinter der Tür.“, sagte das zweite Haar. „Ich bin hier, im Gehege“, sagte das dritte Haar.
+Als der Hund zurückkam, suchte er nach Nozibele. „Nozibele, wo bist du?“, rief er. „Ich bin hier, unter dem Bett“, sagte das erste Haar. „Ich bin hier, hinter der Tür“, sagte das zweite Haar. „Ich bin hier, im Gehege“, sagte das dritte Haar.
 
 ##
 Da wusste der Hund, dass Nozibele ihn reingelegt hatte und so rannte und rannte er den ganzen Weg bis ins Dorf. Aber Nozibeles Brüder warteten dort mit großen Stöcken. Der Hund machte kehrt und lief davon und wurde seitdem nie mehr gesehen.

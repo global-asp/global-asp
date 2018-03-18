@@ -22,7 +22,7 @@ Die Bilder erzählten die Geschichte eines Jungen, der Pilot werden wollte. Mago
 Es war kalt und Magozwe war auf der Straße und bettelte. Ein Mann trat zu ihm. „Hallo, ich bin Thomas. Ich arbeite an einem Ort in der Nähe, wo du etwas zu essen bekommen kannst“, sagte der Mann. Er zeigte auf ein gelbes Haus mit einem blauen Dach. „Ich hoffe, du wirst dorthin gehen, um etwas zu essen?“, fragte er. Magozwe sah erst zu dem Mann, und dann zum Haus. „Vielleicht“, antwortet er und ging davon.
 
 ##
-Über die nächsten Monate trafen die obdachlosen Jungen Thomas oft. Er sprach gern mit Menschen, besonders Menschen, die auf der Straße lebten. Thomas hörte sich ihre Lebensgeschichte an. Er war ernst und geduldig, niemals unhöflich oder respektlos. Einige der Jungen fingen an, sich mittags im blauen und gelben Haus Essen zu holen.
+Über die nächsten Monate trafen die obdachlosen Jungen Thomas oft. Er sprach gern mit Menschen, besonders Menschen, die auf der Straße lebten. Thomas hörte sich ihre Lebensgeschichten an. Er war ernst und geduldig, niemals unhöflich oder respektlos. Einige der Jungen fingen an, sich mittags im blauen und gelben Haus Essen zu holen.
 
 ##
 Magozwe saß auf dem Bürgersteig und las das Bilderbuch als Thomas sich neben ihn setzte. „Wovon handelt die Geschichte?“, fragte er. „Von einem Jungen, der Pilot wird“, antwortet Magozwe. „Wie heißt der Junge?“, wollte Thomas wissen. „Weiß ich nicht, ich kann nicht lesen“, gab Magozwe leise zurück.

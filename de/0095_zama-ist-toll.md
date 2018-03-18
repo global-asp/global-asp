@@ -22,7 +22,7 @@ Ma erinnert mich: „Vergiss Deine Zähne nicht.“ Ich antworte: „Niemals, ic
 Nach dem Waschen grüße ich Opa und Tante und wünsche ihnen einen schönen Tag.
 
 ##
-Dann ziehe ich mich an. „Ich bin nun groß, Ma.“, sage ich.
+Dann ziehe ich mich an. „Ich bin nun groß, Ma“, sage ich.
 
 ##
 Ich kann meine Knöpfe zumachen und meine Schnürsenkel binden.
