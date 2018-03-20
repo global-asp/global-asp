@@ -13,13 +13,13 @@ Küçük kız utanarak ama cesaretle kadına biraz daha yaklaşmış. Küçük k
 Küçük çocuk hemen koşuşturmuş. "Haydi bir gayret ıkın!" "Örtü bulun!" "Su getirin!" "Ikıııın!"
 
 ##
-Ancak bebeği gördüklerinde herkes donup kalmış. "Eşek?! Bir küçük eşek?!"
+Ancak bebeği gördüklerinde herkes donup kalmış. "Bir eşek?!"
 
 ##
 Herkes tartışmaya başlamış. "Biz anne ve çocuğunu koruyacağız dedik," demiş bazıları. "Bunlar bize uğursuzluk getirecek," demiş diğerleri.
 
 ##
-Ve kadın gene yalnız kalmış. Bu garip bebekle ne yapacağını düşünmüş. Kendini başına ne yapacağını bilemiyormuş.
+Ve kadın gene yalnız kalmış. Bu garip bebekle ne yapacağını düşünmüş. Kendi başına ne yapacağını bilemiyormuş.
 
 ##
 Sonunda bu bebeğin kendi çocuğu olduğunu ve onun annesi olduğunu kabullenmiş.

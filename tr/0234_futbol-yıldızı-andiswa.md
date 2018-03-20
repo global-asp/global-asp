@@ -4,10 +4,10 @@
 Andiswa erkek çocukların futbol oynamasını izledi. Hep onlara katılmak istedi. Hocalarına onlarla birlikte çalışıp çalışamayacağını sordu.
 
 ##
-Hoca ellerini beline kodu ve "Bu okulda sadece erkek çocuklar futbol oynayabilir," dedi.
+Hoca ellerini beline koydu ve "Bu okulda sadece erkek çocuklar futbol oynayabilir," dedi.
 
 ##
-Çocuklar ona gidip voleybol oynamasını, voleybolun kızlar için daha uygun olduğunu, futbolun erkek oyunu olduğunu söylediler. Andiswa çok üzüldü.
+Çocuklar ona gidip netbol oynamasını, netbolun kızlar için daha uygun olduğunu, futbolun erkek oyunu olduğunu söylediler. Andiswa çok üzüldü.
 
 ##
 Ertesi gün, okulun büyük bir futbol maçı vardı. Hoca çok telaşlıydı çünkü en iyi oyuncusu hastalanmıştı ve oynaması mümkün değildi.

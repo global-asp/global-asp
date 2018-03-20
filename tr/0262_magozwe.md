@@ -43,7 +43,7 @@ Bu düşüncelerini ve korkularını Thomas'la paylaşmış. Zamanla Thomas onu 
 Böylece Thomas yeşili çatılı yeni bir evdeki bir odaya yerleşmiş. İki de oda arkadaşı varmış. Toplam 10 çocuk kalıyormuş burada. Evde ayrıca Cissy Teyze ve kocası, üç köpek bir kedi bir de keçi yaşıyormuş.
 
 ##
-Magozwe okula başlamış ama tabii çok zormuş. Geri kaldığı bir sürü şeyi öğrenerek sınıfın seviyesine yetişmesi gerekiyormuş. Bazen umdunu yitirip vazgeçmeyi düşündüğü de oluyormuş. Ama sonra pilot ve futbolcu olan çocukların hikayesi geliyormuş aklına. Tıpkı onlar gibi o da pes etmemeliymiş.
+Magozwe okula başlamış ama tabii çok zormuş. Geri kaldığı bir sürü şeyi öğrenerek sınıfın seviyesine yetişmesi gerekiyormuş. Bazen umudunu yitirip vazgeçmeyi düşündüğü de oluyormuş. Ama sonra pilot ve futbolcu olan çocukların hikayesi geliyormuş aklına. Tıpkı onlar gibi o da pes etmemeliymiş.
 
 ##
 Magozwe yeşil çatılı evin arka bahçesinde oturup, okula ait bir hikaye kitabını okuyormuş. Thomas gelmiş ve yanına oturmuş. "Bu hikaye nedir?" diye sormuş Thomas. "Öğretmen olan bir çocuğun hikayesi," diye cevap vermiş Magozwe. "Çocuğun adı ne?" diye sormuş Thomas. "Adı Magozwe," demiş Magozwe gülümseyerek.

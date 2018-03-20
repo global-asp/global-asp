@@ -31,7 +31,7 @@ Bir akşamüstü, büyükler eve döndüğünde hiç konuşmuyorlardı. Sakima b
 "Anne, baba ne oldu?" diye sordu Sakima. Meğerse zengin adamın oğlu kaybolmuştu. Adam da yapayalnız kalmıştı ve çok üzgündü.
 
 ##
-Sakima anne ve babasına "Ona şarkı söyleyebilirim ve mutlu edebilirim," demiş. Ama onu dinlemedi büyükler. "O çok zengin bir adam. Sen ise görmeyen bir çocuksun. Onu nasıl mutlu edebilirsin?" dediler.
+Sakima anne ve babasına "Ona şarkı söyleyebilirim ve mutlu edebilirim," dedi. Ama onu dinlemedi büyükler. "O çok zengin bir adam. Sen ise görmeyen bir çocuksun. Onu nasıl mutlu edebilirsin?" dediler.
 
 ##
 Sakima gene de vazgeçmedi. Küçük kardeşi de ona destek verdi. Dedi ki "Sakima nın şarkıları acıktığım zamanlar beni yatıştırıyor. Zengin adamı da rahatlatabilir."

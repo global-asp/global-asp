@@ -13,7 +13,7 @@ Büyükannemi, muzları, muz yapraklarını, ve büyük saman sepetini izlemek �
 Geri döndüğümde büyükannem dışarıda oturuyordu ama görünürde ne sepet ne de muzlar vardı. "Büyükanne, sepet nerede, muzlar nerede...." Ama aldığım tek cevap şuydu, "Benim sihirli yerimdeler." Çok can sıkıcı bir durumdu.
 
 ##
-İki gün sonra, büyükannem beni yatak odasından bastonunu getirmeye gönderdi. Odanın kapısını açar açmaz olgunlaşmakta olan muzların keskin kokusunu duydum. İçerdeki odada büyükannenin büyük saman sepeti vardı. Eski bir battaniye ile örülmüştü. Örtüyü kaldırıp o nefis kokuyu içime çektim.
+İki gün sonra, büyükannem beni yatak odasından bastonunu getirmeye gönderdi. Odanın kapısını açar açmaz olgunlaşmakta olan muzların keskin kokusunu duydum. İçerdeki odada büyükannenin büyük saman sepeti vardı. Eski bir battaniye ile örtülmüştü. Örtüyü kaldırıp o nefis kokuyu içime çektim.
 
 ##
 Büyükannenin sesiyle irkildim. "Haydi, nerede kaldın? Çabuk bastonumu getir bana." Hemen bastonunu ona yetiştirdim. "Neden gülümsüyorsun sen?" diye sordu büyükannem. O anda fark ettim ki onun sihirli yerinin sırrını keşfettiğim için hâlâ gülümsüyordum.
