@@ -7,7 +7,7 @@ Det var ei lita jente som først så den mystiske skikkelsen i det fjerne.
 Etter hvert som skikkelsen kom nærmere, så hun at det var en høygravid kvinne.
 
 ##
-Sjenert men modig gikk den lille jenta nærmere kvinnen. "Vi må beholde henne her hos oss", bestemte de som var med den lille jenta. "Vi skal beskytte henne og barnet hennes."
+Sjenert, men modig gikk den lille jenta nærmere kvinnen. "Vi må beholde henne her hos oss", bestemte de som var med den lille jenta. "Vi skal beskytte henne og barnet hennes."
 
 ##
 Barnet var snart på vei. "Trykk!" "Hent pledd!" "Vann!" "Tryyyykk!"
