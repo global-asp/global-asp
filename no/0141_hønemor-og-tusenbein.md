@@ -19,7 +19,7 @@ Hønemor ble sint fordi hun tapte. Hun var en veldig dårlig taper. Tusenbein be
 Hønemor var så sint at hun åpnet nebbet og slukte Tusenbein.
 
 ##
-Da Hønemor gikk hjemover møtte hun Mor Tusenbein. "Har du sett barnet mitt?" spurte Mor Tusenbein. Hønemor sa ikke noe. Mor Tusenbein ble urolig.
+Da Hønemor gikk hjemover, møtte hun Mor Tusenbein. "Har du sett barnet mitt?" spurte Mor Tusenbein. Hønemor sa ikke noe. Mor Tusenbein ble urolig.
 
 ##
 Så hørte Mor Tusenbein en svak stemme: "Mamma, hjelp meg!" Mor Tusenbein så seg rundt og lyttet spent. Lyden kom fra inni høna.
