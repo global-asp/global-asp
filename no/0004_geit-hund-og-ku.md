@@ -4,7 +4,7 @@
 Geit, Hund og Ku var gode venner. En dag dro de på reise med en buss.
 
 ##
-Da de kom fram ba sjåføren dem om å betale billetten sin. Ku betalte sin billett.
+Da de kom fram, ba sjåføren dem om å betale billetten sin. Ku betalte sin billett.
 
 ##
 Hund betalte litt ekstra fordi han ikke hadde akkurat med penger.
