@@ -28,7 +28,7 @@ Bestemor gjemte Tingi under bladene.
 En av soldatene satte foten rett på ham, men han sa ikke et ord.
 
 ##
-Da det var trygt kom Tingi og bestemoren hans ut.
+Da det var trygt, kom Tingi og bestemoren hans ut.
 
 ##
 De snek seg stille hjem.
