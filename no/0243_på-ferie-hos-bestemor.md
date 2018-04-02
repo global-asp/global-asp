@@ -28,7 +28,7 @@ Så gikk Odongo og Apiyo ut. De jagde sommerfugler og fugler.
 De klatret i trær og plasket i vannet i innsjøen.
 
 ##
-Da det ble mørkt gikk de tilbake til huset for å spise middag. Før de ble ferdige med å spise begynte de å sovne!
+Da det ble mørkt, gikk de tilbake til huset for å spise middag. Før de ble ferdige med å spise begynte de å sovne!
 
 ##
 Dagen etter kjørte faren deres tilbake til byen og lot dem bli igjen hos Nyar-Kanyada.
@@ -46,7 +46,7 @@ En morgen tok Odongo kuene til bestemoren sin for å beite. De løp inn på går
 En annen dag dro barna til markedsplassen sammen med Nyar-Kanyada. Hun hadde en bod der hun solgte grønnsaker, sukker og såpe. Apiyo likte å fortelle kundene prisen på varene. Odongo pakket varene som kundene kjøpte.
 
 ##
-Da dagen var omme drakk de krydret te sammen. De hjalp bestemor med å telle pengene hun hadde tjent.
+Da dagen var omme, drakk de krydret te sammen. De hjalp bestemor med å telle pengene hun hadde tjent.
 
 ##
 Men snart var ferien over og barna måtte dra tilbake til byen. Nyar-Kanyada ga Odongo en skyggelue og Apiyo en genser. Hun pakket mat for reisen deres.
@@ -58,7 +58,7 @@ Da faren deres kom for å hente dem, ville de ikke dra. Barna tryglet Nyar-Kanya
 Odongo og Apiyo klemte henne hardt og tok farvel.
 
 ##
-Da Odongo og Apiyo gikk tilbake til skolen fortalte de vennene sine om livet på landet. Noen barn syntes at livet i byen var godt. Andre syntes at landet var bedre. Men viktigst av alt var at alle var enige i at Odongo og Apiyo hadde en fantastisk bestemor!
+Da Odongo og Apiyo gikk tilbake til skolen, fortalte de vennene sine om livet på landet. Noen barn syntes at livet i byen var godt. Andre syntes at landet var bedre. Men viktigst av alt var at alle var enige i at Odongo og Apiyo hadde en fantastisk bestemor!
 
 ##
 * License: [CC-BY]
