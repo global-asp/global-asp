@@ -4,7 +4,7 @@
 I den travle byen Nairobi, langt fra det omsorgsfulle livet hjemme, bodde det en gjeng hjemløse gutter. De tok hver dag akkurat som den kom. En morgen pakket guttene sammen mattene sine etter at de hadde sovet på det kalde fortauet. For å fordrive kulden lagde de et bål av søppel. En av guttene i gjengen var Magozwe. Han var den yngste.
 
 ##
-Da Magozwes foreldre døde var han bare fem år. Han dro for å bo med onkelen sin. Denne mannen brydde seg ikke om barnet. Han ga ikke Magozwe nok mat. Han tvang gutten til å jobbe hardt.
+Da Magozwes foreldre døde, var han bare fem år. Han dro for å bo med onkelen sin. Denne mannen brydde seg ikke om barnet. Han ga ikke Magozwe nok mat. Han tvang gutten til å jobbe hardt.
 
 ##
 Hvis Magozwe klagde eller stilte spørsmål, slo onkelen hans ham. Når Magozwe spurte om han kunne gå på skolen, slo onkelen hans ham og sa: "Du er for dum til å lære noe som helst." Etter tre år med denne behandlingen rømte Magozwe fra onkelen sin. Han begynte å bo på gata.
@@ -28,7 +28,7 @@ I månedene som fulgte ble de hjemløse guttene vant til å se Thomas. Han likte
 Magozwe satt på fortauet og kikket i bildeboka da Thomas kom og satte seg ved siden av ham. "Hva handler fortellingen om?" spurte Thomas. "Den handler om en gutt som blir pilot", svarte Magozwe. "Hva heter gutten?" spurte Thomas. "Jeg vet ikke, jeg kan ikke lese", svarte Magozwe lavt.
 
 ##
-Da de møttes begynte Magozwe å fortelle sin egen historie til Thomas. Det var historien om onkelen hans og hvorfor han rømte hjemmefra. Thomas snakket ikke mye, og han sa ikke til Magozwe hva han skulle gjøre, men han lyttet alltid oppmerksomt. Noen ganger snakket de sammen mens de spiste i det gule huset med det blå taket.
+Da de møttes, begynte Magozwe å fortelle sin egen historie til Thomas. Det var historien om onkelen hans og hvorfor han rømte hjemmefra. Thomas snakket ikke mye, og han sa ikke til Magozwe hva han skulle gjøre, men han lyttet alltid oppmerksomt. Noen ganger snakket de sammen mens de spiste i det gule huset med det blå taket.
 
 ##
 Omkring Magozwes tiende fødselsdag ga Thomas ham en ny barnebok. Det var fortellingen om en landsbygutt som vokste opp til å bli en berømt fotballspiller. Thomas leste den fortellingen for Magozwe mange ganger, helt til han en dag sa: "Jeg synes det er på tide at du går på skolen og lærer å lese. Hva synes du?" Thomas forklarte at han visste om et sted hvor barn kunne bo og gå på skole.
