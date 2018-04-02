@@ -10,9 +10,7 @@ De kranglet aldri. Barna hjalp foreldrene sine hjemme og i åkeren.
 Men de fikk ikke lov til å gå nær ilden.
 
 ##
-De måtte gjøre alt arbeid om natten.
-
-Fordi de var laget av voks!
+De måtte gjøre alt arbeid om natten. Fordi de var laget av voks!
 
 ##
 Men en av guttene lengtet etter å gå ut i sollyset.
