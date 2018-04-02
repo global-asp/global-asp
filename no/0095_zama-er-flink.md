@@ -1,8 +1,7 @@
 # Zama er flink!
 
 ##
-Lillebroren min sover veldig lenge.
-Jeg våkner tidlig, fordi jeg er flink!
+Lillebroren min sover veldig lenge. Jeg våkner tidlig fordi jeg er flink!
 
 ##
 Jeg er den som slipper solen inn.
@@ -17,8 +16,7 @@ Jeg vasker meg selv, jeg vil ikke ha hjelp.
 Jeg tåler kaldt vann og blå stinkende såpe.
 
 ##
-Mamma minner meg på tannpussen: "Glem ikke tennene."
-Jeg svarer: "Aldri, ikke jeg!"
+Mamma minner meg på tannpussen: "Glem ikke tennene." Jeg svarer: "Aldri, ikke jeg!"
 
 ##
 Etter kroppsvasken hilser jeg på bestefar og tante og ønsker dem en god dag.
@@ -36,8 +34,7 @@ Og jeg sørger for at lillebror kjenner alt nytt fra skolen.
 I klassen gjør jeg alltid mitt beste.
 
 ##
-Jeg gjør alle disse gode tingene hver dag.
-Men det jeg liker mest, er å leke og leke!
+Jeg gjør alle disse gode tingene hver dag. Men det jeg liker mest, er å leke og leke!
 
 ##
 * License: [CC-BY]
