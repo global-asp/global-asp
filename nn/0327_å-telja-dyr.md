@@ -7,13 +7,13 @@
 To sjiraffar går for å drikka vatn.
 
 ##
-Tre bøflar og fire fuglar går òg for a drikke vatn.
+Tre bøflar og fire fuglar går òg for å drikke vatn.
 
 ##
 Fem impalaer og seks villsvin går mot vatnet.
 
 ##
-Sju sebraer lauper mot vatnet.
+Sju sebraer spring mot vatnet.
 
 ##
 Åtte froskar og ni fiskar sym i vatnet.

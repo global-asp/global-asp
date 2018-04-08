@@ -13,13 +13,13 @@ Geita seier "mæ".
 Hesten seier "vrinsk".
 
 ##
-Grisen seier "nøff".
+Grisen seier "nøff, nøff".
 
 ##
-Høna seier "klukk".
+Høna seier "klukk, klukk".
 
 ##
-Hunden seier "voff".
+Hunden seier "voff, voff".
 
 ##
 Bonden seier "hysj!"

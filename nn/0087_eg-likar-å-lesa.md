@@ -7,7 +7,7 @@ Eg likar å lesa.
 Kven kan eg lesa for?
 
 ##
-Syster mi søv.
+Systera mi søv.
 
 ##
 Kven kan eg lesa for?

@@ -1,7 +1,7 @@
 # Kroppen min
 
 ##
-Eg kan laupa med han.
+Eg kan springa med han.
 
 ##
 Eg kan hoppa med han.

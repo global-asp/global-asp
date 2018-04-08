@@ -7,7 +7,7 @@ Eg står opp og tenner elden.
 Eg kokar vatn.
 
 ##
-Eg huggar ved.
+Eg hogger ved.
 
 ##
 Eg rører i gryta.
@@ -21,7 +21,7 @@ Eg vaskar opp.
 ##
 Kvifor jobbar eg så hardt …
 
-… når bror min berre leikar?
+… når broren min berre leikar?
 
 ##
 * License: [CC-BY-NC]

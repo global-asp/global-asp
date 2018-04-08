@@ -1,7 +1,7 @@
 # Å laga mat
 
 ##
-Eg skrell potetene.
+Eg skrellar potetene.
 
 ##
 Eg skjer opp eit kålhovud.
@@ -19,7 +19,7 @@ Eg kuttar opp squashen.
 Eg hakkar spinaten.
 
 ##
-Mamma mi hakkar løken.
+Mora mi hakkar løken.
 
 ##
 Hakka løk får meg til å gråta.

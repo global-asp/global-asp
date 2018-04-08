@@ -4,7 +4,7 @@
 Hakka hans var for kort.
 
 ##
-Døropninga hans var for lav.
+Døropninga hans var for låg.
 
 ##
 Senga hans var for kort.
