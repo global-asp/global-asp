@@ -13,13 +13,13 @@ Ei ku har sterke tenner.
 Fuglar har ikkje tenner.
 
 ##
-Rottar har store framtenner.
+Rotter har store framtenner.
 
 ##
 Haiar har skarpe tenner.
 
 ##
-Eg pleidde å ha mange tenner.
+Eg brukte å ha mange tenner.
 
 ##
 Men no har eg ikkje mange.

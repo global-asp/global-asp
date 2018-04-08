@@ -4,7 +4,7 @@
 Hoppa tau
 
 ##
-Laupa
+Springa
 
 ##
 Sparka ball

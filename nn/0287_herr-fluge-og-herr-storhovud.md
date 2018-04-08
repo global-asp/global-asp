@@ -10,7 +10,7 @@ Dette er herr Storhovud.
 Herr Storhovud og herr Fluge var vener. Ein dag gjekk dei ein tur saman.
 
 ##
-Dei kom til ei elvebredd og byrja å krangla.
+Dei kom til ei elvebreidde og byrja å krangla.
 
 Herr Fluge sa: "Du kan ikkje hoppa over denne elva."
 "Jo, eg kan det! Det er du som ikkje kan!" svarte herr Storhovud.
@@ -25,7 +25,7 @@ Så hoppa herr Storhovud inn i elva. Men hovudet hans var så stort at han byrja
 
 ##
 Herr Fluge lo: "Ha, ha, ha!"
-Men han lo så mykje at munnen hans rakna frå han eine sidan til den andre!
+Men han lo så mykje at munnen hans rakna frå han eine sida til den andre!
 
 ##
 * License: [CC-BY]

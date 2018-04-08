@@ -10,22 +10,22 @@ Viss eg var eit køyretøy ville eg bringa folk rundt utan betaling.
 Viss eg var ein jeger ville eg jakta på dyr utan hår.
 
 ##
-Viss eg var ein rotte ville eg vakse meg stor og jaga katten.
+Viss eg var ei rotte ville eg vakse meg stor og jaga katten.
 
 ##
-Viss eg var ein baby vill eg skrike etter berre dyre ting.
+Viss eg var ein baby ville eg skrike etter berre dyre ting.
 
 ##
-Viss eg var ein katt ville eg ete rottar for å verta tjukkare.
+Viss eg var ein katt ville eg ete rotter for å verta tjukkare.
 
 ##
 Viss eg var ei høne ville eg lagt gullegg for folk.
 
 ##
-Viss eg var ein tiggar ville eg ikkje godteke mynter.
+Viss eg var ein tiggar ville eg ikkje godteke myntar.
 
 ##
-Viss eg var ein lege ville eg handsama folk med klaps på kinnet.
+Viss eg var ein lege ville eg behandla folk med klaps på kinnet.
 
 ##
 Viss eg var ein prest ville eg teke med meg alle til himmelen.
