@@ -13,7 +13,7 @@ Guttene sa at hun skulle gå og spille nettball. De sa at nettball er for jenter
 Dagen etter var det en stor fotballkamp på skolen. Treneren var bekymret fordi den beste spilleren på laget var syk og kunne ikke spille.
 
 ##
-Andiswa løp bort til treneren og tryglet om å få lov til å spille. Hva skulle han svare? Han bestemte seg for å ha Andiswa med på laget.
+Andiswa løp bort til treneren og tryglet om å få lov til å spille. Hva skulle han svare? Han bestemte seg for å la Andiswa være med på laget.
 
 ##
 Det ble en hard kamp. Ingen hadde skåret mål etter første omgang.

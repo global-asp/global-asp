@@ -13,13 +13,13 @@ Geita sier "mæ".
 Hesten sier "vrinsk".
 
 ##
-Grisen sier "nøff".
+Grisen sier "nøff, nøff".
 
 ##
-Høna sier "klukk".
+Høna sier "klukk, klukk".
 
 ##
-Hunden sier "voff".
+Hunden sier "voff, voff".
 
 ##
 Bonden sier "hysj!"

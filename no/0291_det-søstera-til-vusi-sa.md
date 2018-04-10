@@ -31,7 +31,7 @@ På veien møtte Vusi en bonde og ei ku. "For noe deilig halm, kan jeg få en sm
 Kua var lei seg for at hun var grådig. Bonden ble enig i at kua skulle følge med Vusi som en gave til søstera hans. Og slik fortsatte Vusi.
 
 ##
-Men kua sprang tilbake til bonden rundt middagstid. Og Vusi gikk seg vill på reisen. Han kom frem veldig sent til bryllupet til søstera si. Gjestene var allerede i gang med å spise.
+Men kua sprang tilbake til bonden rundt middagstid. Og Vusi gikk seg vill på reisen. Han kom fram veldig sent til bryllupet til søstera si. Gjestene var allerede i gang med å spise.
 
 ##
 "Hva skal jeg gjøre?" ropte Vusi. "Den kua som sprang bort var en gave til gjengjeld for halmen som bygningsarbeiderne ga meg. Bygningsarbeiderne ga meg halmen fordi de knakk kjeppen fra fruktplukkerne. Fruktplukkerne ga meg kjeppen fordi de knuste egget som var ment for kaka. Kaka var ment for bryllupet. Nå er det ikke noe egg, ikke noen kake, og ikke noen gave."

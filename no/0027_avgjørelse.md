@@ -1,7 +1,7 @@
 # Avgjørelse
 
 ##
-Landsbyen min hadde mange problemer. Vi stilte oss på en lang rekke for å hente vann fra en pumpe.
+Landsbyen min hadde mange problemer. Vi stilte oss på en lang rekke for å hente vann fra én pumpe.
 
 ##
 Vi ventet på mat som andre hadde gitt oss.
@@ -46,7 +46,7 @@ En kvinne sa: "Kvinnene kan bli med meg og dyrke mat."
 En annen mann reiste seg og sa: "Mennene skal grave en brønn."
 
 ##
-Vi ropte alle sammen med én stemme: "Vi må forandre livet vårt." Fra den dagen samarbeidet vi for å løse problemene våre.
+Vi ropte alle sammen med én stemme: "Vi må forandre livene våre." Fra den dagen samarbeidet vi for å løse problemene våre.
 
 ##
 * License: [CC-BY]

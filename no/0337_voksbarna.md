@@ -10,7 +10,7 @@ De kranglet aldri. Barna hjalp foreldrene sine hjemme og i åkeren.
 Men de fikk ikke lov til å gå nær ilden.
 
 ##
-De måtte gjøre alt arbeid om natten. Fordi de var laget av voks!
+De måtte gjøre alt arbeid om natten. Fordi de var lagd av voks!
 
 ##
 Men en av guttene lengtet etter å gå ut i sollyset.
@@ -31,7 +31,7 @@ Men de la en plan. De formet en fugl av den smeltede voksklumpen.
 De tok med seg fuglebroren sin opp på et høyt fjell.
 
 ##
-Og da solen steg fløy han syngende inn i morgenlyset.
+Og da solen steg, fløy han syngende inn i morgenlyset.
 
 ##
 * License: [CC-BY]

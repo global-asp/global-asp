@@ -19,9 +19,7 @@ Jeg feier gulvet.
 Jeg vasker opp.
 
 ##
-Hvorfor jobber jeg så hardt …
-
-… når broren min bare leker?
+Hvorfor jobber jeg så hardt … … når broren min bare leker?
 
 ##
 * License: [CC-BY-NC]

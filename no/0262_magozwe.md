@@ -10,7 +10,7 @@ Da Magozwes foreldre døde, var han bare fem år. Han dro for å bo med onkelen 
 Hvis Magozwe klagde eller stilte spørsmål, slo onkelen hans ham. Når Magozwe spurte om han kunne gå på skolen, slo onkelen hans ham og sa: "Du er for dum til å lære noe som helst." Etter tre år med denne behandlingen rømte Magozwe fra onkelen sin. Han begynte å bo på gata.
 
 ##
-Livet på gata var vanskelig, og de fleste guttene slet hver dag bare for å finne mat. Noen ganger ble de arrestert, andre ganger ble de slått. Når de ble syke var det ingen som kunne hjelpe dem. Gjengen var avhengig av de få pengene de fikk fra å tigge og fra å selge plast og annet til resirkulering. Livet var enda vanskeligere på grunn av slåsskamper med rivaliserende gjenger som ville ha kontroll over deler av byen.
+Livet på gata var vanskelig, og de fleste guttene slet hver dag bare for å finne mat. Noen ganger ble de arrestert, andre ganger ble de slått. Når de ble syke, var det ingen som kunne hjelpe dem. Gjengen var avhengig av de få pengene de fikk fra å tigge og fra å selge plast og annet til resirkulering. Livet var enda vanskeligere på grunn av slåsskamper med rivaliserende gjenger som ville ha kontroll over deler av byen.
 
 ##
 En dag mens Magozwe lette i noen søppelbøtter, fant han en gammel fillete barnebok. Han fjernet møkka fra den og la den i sekken sin. Hver påfølgende dag tok han ut boka og så på bildene. Han visste ikke hvordan han skulle lese ordene.
@@ -19,7 +19,7 @@ En dag mens Magozwe lette i noen søppelbøtter, fant han en gammel fillete barn
 Bildene fortalte fortellingen om en gutt som vokste opp til å bli pilot. Magozwe pleide å dagdrømme om å bli pilot. Noen ganger innbilte han seg at han var gutten i fortellingen.
 
 ##
-Det var kaldt og Magozwe stod langs veien og tagg. En mann gikk bort til ham. "Hei, jeg heter Thomas. Jeg bor i nærheten, på et sted der du kan få deg noe å spise", sa han og pekte på et gult hus med blått tak. "Jeg håper du drar dit for å få deg litt mat?" spurte han. Magozwe så på ham, og deretter på huset. "Kanskje", sa han, og gikk.
+Det var kaldt og Magozwe stod langs veien og tigget. En mann gikk bort til ham. "Hei, jeg heter Thomas. Jeg bor i nærheten, på et sted der du kan få deg noe å spise", sa han og pekte på et gult hus med blått tak. "Jeg håper du drar dit for å få deg litt mat?" spurte han. Magozwe så på ham, og deretter på huset. "Kanskje", sa han, og gikk.
 
 ##
 I månedene som fulgte ble de hjemløse guttene vant til å se Thomas. Han likte å snakke med folk, spesielt de som bodde på gata. Thomas hørte på fortellinger om livene til folk. Han var seriøs og tålmodig, aldri frekk eller respektløs. Noen av guttene begynte å dra til det gule og blå huset for å få mat midt på dagen.

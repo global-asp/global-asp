@@ -28,10 +28,10 @@ Så kler jeg på meg selv. "Jeg er stor nå, mamma", sier jeg.
 Jeg kan kneppe knapper og spenne skoene mine.
 
 ##
-Og jeg sørger for at lillebror kjenner alt nytt fra skolen.
+Og jeg sørger for at lillebror får vite alt nytt fra skolen.
 
 ##
-I klassen gjør jeg alltid mitt beste.
+I timene gjør jeg alltid mitt beste.
 
 ##
 Jeg gjør alle disse gode tingene hver dag. Men det jeg liker mest, er å leke og leke!

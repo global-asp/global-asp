@@ -34,10 +34,10 @@ Esel ble fylt av forvirring og sinne. Han kunne ikke gjøre ditt og han kunne ik
 Esel skammet seg. Han begynte å løpe vekk så fort han kunne.
 
 ##
-Når han hadde sluttet å løpe, var det blitt kveld, og Esel hadde gått seg vill. "I-a", visket han inn i mørket. "I-a?" lød ekkoet. Han var alene. Han krøket seg sammen til en liten ball og falt i en dyp og forstyrret søvn.
+Når han hadde sluttet å løpe, var det blitt kveld, og Esel hadde gått seg vill. "I-a", hvisket han inn i mørket. "I-a?" lød ekkoet. Han var alene. Han krøket seg sammen til en liten ball og falt i en dyp og forstyrret søvn.
 
 ##
-Esel våknet opp til en merkelig gammel mann som stirret ned på ham. Han så inn i den gamle mannens øyne og begynte å kjenne en snev av håp.
+Esel våknet opp til en merkelig gammel mann som stirret ned på ham. Han så inn i den gamle mannens øyne og begynte å kjenne et snev av håp.
 
 ##
 Esel dro for å bo med den gamle mannen, som lærte ham mange forskjellige måter å overleve på. Esel lyttet og lærte, og det gjorde den gamle mannen også. De hjalp hverandre og de lo sammen.
@@ -55,10 +55,10 @@ Høyt oppe blant skyene sovnet de. Esel drømte at moren hans var syk og ropte p
 Esel visste omsider hva han skulle gjøre.
 
 ##
-Esel fant moren sin som var alene og sørget tapet av barnet sitt. De stirret på hverandre lenge. Og så klemte de hverandre veldig hardt.
+Esel fant moren sin som var alene, og sørget tapet av barnet sitt. De stirret på hverandre lenge. Og så klemte de hverandre veldig hardt.
 
 ##
-Eselbarnet og moren hans har utviklet seg i fellesskap og funnet mange måter å leve side ved side.
+Eselbarnet og moren hans har utviklet seg i fellesskap og funnet mange måter å leve side ved side. Sakte men sikkert har andre familier begynt å slå seg ned rundt dem.
 
 ##
 * License: [CC-BY]

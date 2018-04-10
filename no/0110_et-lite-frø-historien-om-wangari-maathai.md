@@ -7,10 +7,10 @@ I en landsby ved foten av Mount Kenya i Øst-Afrika arbeidet en liten pike samme
 Wangari var glad i å være ute. Familien hadde en kjøkkenhage. Der vendte hun grønnsaksbedet med den store kniven sin. Hun stakk små frø ned i den varme jorda.
 
 ##
-Hun syntes den beste tiden på dagen var rett etter solnedgang. Når det ble for mørkt til å se plantene visste hun at det var på tide å gå hjem. Hun gikk langs smale stier på markene og over bekker på sin vei.
+Hun syntes den beste tiden på dagen var rett etter solnedgang. Når det ble for mørkt til å se plantene, visste hun at det var på tide å gå hjem. Hun gikk langs smale stier på markene og over bekker på sin vei.
 
 ##
-Wangari var en flink pike og ville gjerne begynne på skolen. Men moren og faren ville at hun skulle være hjemme og hjelpe til. Da hun ble syv år overtalte storebroren mor og far til å la henne få gå på skolen.
+Wangari var en flink pike og ville gjerne begynne på skolen. Men moren og faren ville at hun skulle være hjemme og hjelpe til. Da hun ble syv år, overtalte storebroren mor og far til å la henne få gå på skolen.
 
 ##
 Hun likte å lære! Wangari lærte mer og mer for hver bok hun leste. Hun ble så flink på skolen at hun ble invitert til å studere i USA. Wangari ble så glad! Hun ville lære mer om verden.
@@ -19,13 +19,13 @@ Hun likte å lære! Wangari lærte mer og mer for hver bok hun leste. Hun ble s�
 Wangari lærte mye nytt på det amerikanske universitetet. Hun studerte planter og hvordan de vokser. Og husket hvordan hun hadde vokst selv: i leker og spill med brødrene sine i Kenyas vakre skoger.
 
 ##
-Hun skjønte hun var glad i folk fra Kenya jo mer hun lærte. Hun ville de skulle være glade og frie. Og jo mer hun lærte jo mer husket hun hjemmet sitt i Afrika.
+Hun skjønte hun var glad i folk fra Kenya jo mer hun lærte. Hun ville de skulle være glade og frie. Og jo mer hun lærte, jo mer husket hun hjemmet sitt i Afrika.
 
 ##
-Da hun var ferdig med å studere dro hun tilbake til Kenya. Men landet hennes var forandret. Kjempestore bondegårder strakte seg utover i landet. Kvinnene hadde ikke ved til å tenne bål for å lage mat. Folk var fattige og barn sultet.
+Da hun var ferdig med å studere, dro hun tilbake til Kenya. Men landet hennes var forandret. Kjempestore bondegårder strakte seg utover i landet. Kvinnene hadde ikke ved til å tenne bål for å lage mat. Folk var fattige og barn sultet.
 
 ##
-Wangari visste råd. Hun lærte kvinnene å plante trær ved å sette frø i jorda. Kvinnene solgte trærne og brukte pengene til beste for familien sin. De ble veldig glade. Wangari hadde fått dem til å føle seg sterke og mektige.
+Wangari visste råd. Hun lærte kvinnene å plante trær ved å så frø i jorda. Kvinnene solgte trærne og brukte pengene til beste for familien sin. De ble veldig glade. Wangari hadde fått dem til å føle seg sterke og mektige.
 
 ##
 Tiden gikk og de nye trærne vokste og ble til skog, og det kom vann i elvene igjen. Historien om Wangari spredte seg over hele Afrika. I dag er det millioner av trær som har vokst opp fra Wangaris frø.

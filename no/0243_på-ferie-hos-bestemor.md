@@ -1,7 +1,7 @@
 # På ferie hos bestemor
 
 ##
-Odongo og Apiyo bodde i byen med faren sin. De så frem til ferien. Ikke bare fordi skolen var slutt, men fordi de skulle besøke bestemoren sin. Hun bodde i en fiskelandsby nær en stor sjø.
+Odongo og Apiyo bodde i byen med faren sin. De så fram til ferien. Ikke bare fordi skolen var slutt, men fordi de skulle besøke bestemoren sin. Hun bodde i en fiskerlandsby nær en stor innsjø.
 
 ##
 Odongo og Apiyo var begeistret fordi de var på tide å besøke bestemor igjen. Kvelden før pakket de veskene sine og gjorde seg klare for den lange reisen til landsbyen hennes. De fikk ikke sove og de snakket hele natten om ferien.
@@ -40,7 +40,7 @@ Odongo og Apiyo hjalp bestemoren sin med gjøremålene i huset. De hentet vann o
 Nyar-Kanyada lærte barnebarna sine hvordan de skulle lage myk ugali for å spise sammen med en gryterett. Hun viste dem hvordan de skulle lage kokosris for å spise sammen med grillet fisk.
 
 ##
-En morgen tok Odongo kuene til bestemoren sin for å beite. De løp inn på gården til en nabo. Bonden ble sint på Odongo. Han truet med å beholde kuene siden de spiste avlingen hans. Etter den dagen sørget gutten for at kuene ikke skapte trøbbel igjen.
+En morgen tok Odongo kuene til bestemoren sin ut for å beite. De løp inn på gården til en nabo. Bonden ble sint på Odongo. Han truet med å beholde kuene siden de spiste avlingen hans. Etter den dagen sørget gutten for at kuene ikke skapte trøbbel igjen.
 
 ##
 En annen dag dro barna til markedsplassen sammen med Nyar-Kanyada. Hun hadde en bod der hun solgte grønnsaker, sukker og såpe. Apiyo likte å fortelle kundene prisen på varene. Odongo pakket varene som kundene kjøpte.
@@ -58,7 +58,7 @@ Da faren deres kom for å hente dem, ville de ikke dra. Barna tryglet Nyar-Kanya
 Odongo og Apiyo klemte henne hardt og tok farvel.
 
 ##
-Da Odongo og Apiyo gikk tilbake til skolen, fortalte de vennene sine om livet på landet. Noen barn syntes at livet i byen var godt. Andre syntes at landet var bedre. Men viktigst av alt var at alle var enige i at Odongo og Apiyo hadde en fantastisk bestemor!
+Da Odongo og Apiyo dro tilbake til skolen, fortalte de vennene sine om livet på landet. Noen barn syntes at livet i byen var godt. Andre syntes at landet var bedre. Men viktigst av alt var at alle var enige i at Odongo og Apiyo hadde en fantastisk bestemor!
 
 ##
 * License: [CC-BY]
