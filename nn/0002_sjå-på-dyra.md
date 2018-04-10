@@ -28,5 +28,6 @@ Bonden seier "hysj!"
 * License: [CC-BY-NC]
 * Text: Jenny Katz
 * Illustration: Sandy Campbell
-* Translation: Espen Strangar-Johannessen
+* Translation: Espen Stranger
+-Johannessen
 * Language: nn

@@ -1,7 +1,7 @@
 # På ferie hos bestemor
 
 ##
-Odongo og Apiyo budde i byen med faren sin. Dei såg fram til ferien. Ikkje berre fordi skulen var slutt, men fordi dei skulle vitja bestemora si. Ho budde i ein fiskelandsby nær ein stor sjø.
+Odongo og Apiyo budde i byen med faren sin. Dei såg fram til ferien. Ikkje berre fordi skulen var slutt, men fordi dei skulle vitja bestemora si. Ho budde i ein fiskerlandsby nær ein stor innsjø.
 
 ##
 Odongo og Apiyo var begeistra fordi dei var på tide å vitja bestemor igjen. Kvelden før pakka dei veskene sine og gjorde seg klare for den lange reisa til landsbyen hennar. Dei fekk ikkje sova og dei snakka heile natta om ferien.
@@ -40,7 +40,7 @@ Odongo og Apiyo hjelpte bestemora si med gjeremåla i huset. Dei henta vatn og v
 Nyar-Kanyada lærde barneborna sine korleis dei skulle laga mjuk ugali for å eta saman med ein gryterett. Ho viste dei korleis dei skulle laga kokosris for å eta saman med grilla fisk.
 
 ##
-Ein morgon tok Odongo kyrne til bestemora si for å beita. Dei sprang inn på garden til ein nabo. Bonden vart sint på Odongo. Han truga med å halda på kyrne sidan dei åt avlinga hans. Etter den dagen sørgde guten for at kyrne ikkje skapte trøbbel igjen.
+Ein morgon tok Odongo kyrne til bestemora si ut for å beita. Dei sprang inn på garden til ein nabo. Bonden vart sint på Odongo. Han truga med å halda på kyrne sidan dei åt avlinga hans. Etter den dagen sørgde guten for at kyrne ikkje skapte trøbbel igjen.
 
 ##
 Ein annan dag drog borna til marknadsplassen saman med Nyar-Kanyada. Ho hadde ei bu der ho selde grønsaker, sukker og såpe. Apiyo likte å fortelja kundane prisen på varene. Odongo pakka varene som kundane kjøpte.

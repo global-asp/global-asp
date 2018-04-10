@@ -1,13 +1,13 @@
 # Hønemor og Tusenbein
 
 ##
-Hønemor og Tusenbein var vener. Men dei likte alltid å konkurrera. Ein dag spelte dei fotball for å sjå kven som var den beste på banen.
+Hønemor og Tusenbein var vener. Men dei likte alltid å konkurrera. Ein dag spelte dei fotball for å sjå kven som var den beste spelaren.
 
 ##
 Dei drog til fotballbanen og starta kampen. Hønemor var rask, men Tusenbein var raskare. Hønemor sparka langt, men Tusenbein sparka lengre. Hønemor vart surare og surare.
 
 ##
-Så laga dei ein straffekonkurranse. Først var Tusenbein keeper. Hønemor skåra berre eitt mål. Så var det Hønemor sin tur til å forsvara målet.
+De bestemte seg for å ha ein straffekonkurranse. Først var Tusenbein keeper. Hønemor skåra berre eitt mål. Så var det Hønemor sin tur til å forsvara målet.
 
 ##
 Tusenbein sparka ballen og skåra. Tusenbein dribla ballen og skåra. Tusenbein heada ballen og skåra. Fem mål skåra Tusenbein.

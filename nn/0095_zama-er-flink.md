@@ -28,10 +28,10 @@ Så kler eg meg sjølv. "Eg er stor no, mamma", seier eg.
 Eg kan kneppa knappar og spenna skorne mine.
 
 ##
-Og eg sørgjer at for veslebror kjenner alt nytt frå skulen.
+Og eg sørgjer at for veslebror får vita alt nytt frå skulen.
 
 ##
-I klassa mi gjer eg mitt beste på alle måtar.
+I timane mi gjer eg mitt beste på alle måtar.
 
 ##
 Eg gjer alle desse gode tinga kvar dag. Men det eg likar mest, er å leika og leika!
@@ -41,5 +41,5 @@ Eg gjer alle desse gode tinga kvar dag. Men det eg likar mest, er å leika og le
 * Text: Michael Oguttu
 * Illustration: Vusi Malindi
 * Adaptation: Nina Orange
-* Translation: Espen Strangar-Johannessen
+* Translation: Espen Stranger-Johannessen
 * Language: nn

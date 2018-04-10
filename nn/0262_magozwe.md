@@ -10,7 +10,7 @@ Då Magozwe sine foreldre døydde, var han berre fem år. Han drog for å bu med
 Viss Magozwe klaga eller stilte spørsmål, slo onkelen hans han. Når Magozwe spurde om han kunne gå på skulen, slo onkelen hans han og sa: "Du er for dum til å læra noko som helst." Etter tre år med denne behandlinga rømde Magozwe frå onkelen sin. Han byrja å bu på gata.
 
 ##
-Livet på gata var vanskeleg, og dei fleste gutane sleit kvar dag berre for å finna mat. Nokre gonger vart dei arrestert, andre gonger vart dei slått. Når dei vart sjuke var det ingen som kunne hjelpa dei. Gjengen var avhengig av dei få pengane dei fekk frå å tigga og frå å selja plast og anna til resirkulering. Livet var endå vanskelegare på grunn av slåsskampar med rivaliserande gjengar som ville ha kontroll over delar av byen.
+Livet på gata var vanskeleg, og dei fleste gutane sleit kvar dag berre for å finna mat. Nokre gonger vart dei arrestert, andre gonger vart dei slått. Når dei vart sjuke, var det ingen som kunne hjelpa dei. Gjengen var avhengig av dei få pengane dei fekk frå å tigga og frå å selja plast og anna til resirkulering. Livet var endå vanskelegare på grunn av slåsskampar med rivaliserande gjengar som ville ha kontroll over delar av byen.
 
 ##
 Ein dag medan Magozwe leitte i nokre søppelbøtter, fann han ei gammal fillete barnebok. Han fjerna møkka frå ho og la den i sekken sin. Kvar påfølgjande dag tok han ut boka og såg på bileta. Han visste ikkje korleis han skulle lesa orda.

@@ -4,7 +4,7 @@
 Ein dag fekk mamma mykje frukt.
 
 ##
-"Når kan vi få litt frukt?" spør vi. "Vi et frukta i kveld", seier mamma.
+"Når kan vi få litt frukt?" spør vi. "Vi skal eta frukta i kveld", seier mamma.
 
 ##
 Broren min Rahim er grådig. Han smakar på all frukta. Han et mykje av ho.
@@ -31,7 +31,7 @@ Rahim byrjar å føla seg uvel.
 "Eg har så vondt i magen", kviskrar Rahim.
 
 ##
-Mamma visste at dette ville skje. Frukta straffar Rahim.
+Mamma visste at dette ville skje. Frukta straffar Rahim!
 
 ##
 Seinare seier Rahim orsak til oss. "Eg skal aldri vera så grådig igjen", lovar han. Vi trur han alle saman.

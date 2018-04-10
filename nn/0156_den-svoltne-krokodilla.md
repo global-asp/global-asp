@@ -4,9 +4,7 @@
 Det var ein gong ei veldig svolten krokodille.
 
 ##
-Ho leitte etter mat sakte og lydlaust.
-
-Og så …
+Ho leitte etter mat sakte og lydlaust. Og så …
 
 ##
 Pang! Krokodilla slår til!

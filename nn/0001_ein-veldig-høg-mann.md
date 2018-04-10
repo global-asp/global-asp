@@ -37,5 +37,5 @@ Han reiste frå huset sitt og budde i ein stor skog. Han levde i mange år.
 * License: [CC-BY]
 * Text: Cornelius Gulare
 * Illustration: Catherine Groenewald
-* Translation: Espen Strangar-Johannessen
+* Translation: Espen Stranger-Johannessen
 * Language: nn

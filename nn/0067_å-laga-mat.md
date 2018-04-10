@@ -4,7 +4,7 @@
 Eg skrellar potetene.
 
 ##
-Eg skjer opp eit kålhovud.
+Eg hakkar opp eit kålhovud.
 
 ##
 Eg riv gulrøtene.

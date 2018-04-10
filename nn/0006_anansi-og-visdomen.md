@@ -1,7 +1,7 @@
 # Anansi og visdomen
 
 ##
-For lenge, lenge sidan visste ikkje folk nokon ting. Dei visste ikkje korleis ein dyrka jorda, dei kunne ikkje veva tøy eller laga reiskapar av jarn. Det var guden Nyame oppe i himmelen som hadde all visdomen i verda. Han gøymde han i ei leirkrukke.
+For lenge, lenge sidan visste ikkje folk nokon ting. Dei visste ikkje korleis ein dyrka jorda, dei kunne ikkje veva tøy eller laga reiskapar av jarn. Det var guden Nyame oppe i himmelen som hadde all visdomen i verda. Han gøymde den i ei leirkrukke.
 
 ##
 Ein dag bestemte Nyame seg for å gje krukka med visdom til Anansi. Kvar gong Anansi såg i krukka lærde han noko nytt. Det var spennande!

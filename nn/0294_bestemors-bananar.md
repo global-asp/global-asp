@@ -13,13 +13,13 @@ Det var så interessant å sjå på bestemor, bananane, bananblada og den store 
 Då eg kom tilbake, sat bestemor utanfor, men med verken korga eller bananane. "Bestemor, kor er korga, kor er bananane, og kor …" Men det einaste svaret eg fekk, var: "Dei er på den magiske staden min." Det var så skuffande!
 
 ##
-To dagar seinare bad bestemor meg om å henta stokken hennar frå soverommet. Så snart eg opna døra vart eg møtt av den sterke lukta av modne bananar. I det inste rommet var den store magiske stråkorga til bestemor. Han var godt gøymd av eit gammalt teppe. Eg løfta det og lukta på den vedunderlege dufta.
+To dagar seinare bad bestemor meg om å henta stokken hennar frå soverommet. Så snart eg opna døra, vart eg møtt av den sterke lukta av modne bananar. I det inste rommet var den store magiske stråkorga til bestemor. Han var godt gøymd av eit gammalt teppe. Eg løfta det og lukta på den vedunderlege dufta.
 
 ##
 Stemma til bestemor skremde meg då ho ropte: "Kva held du på med?" "Skund deg og ta med stokken." Eg skunda meg ut med stokken hennar. "Kva er det du smiler for?" spurde bestemor. Spørsmålet hennar fekk meg til å innsjå at eg enno smilte over oppdaginga av den magiske staden hennar.
 
 ##
-Neste dag då bestemor kom for å vitja mora mi, skunda eg meg av garde til huset hennar for å sjekka bananane ein gong til. Det var ein klase veldig modne bananar der. Eg tok éin og gøymde den i kjolen min. Etter at eg hadde dekt korga, gjekk eg bak huset og åt den fort. Det var den søtaste bananen eg nokosinne hadde smakt.
+Neste dag, då bestemor kom for å vitja mora mi, skunda eg meg av garde til huset hennar for å sjekka bananane ein gong til. Det var ein klase veldig modne bananar der. Eg tok éin og gøymde den i kjolen min. Etter at eg hadde dekt korga, gjekk eg bak huset og åt den fort. Det var den søtaste bananen eg nokosinne hadde smakt.
 
 ##
 Neste dag medan bestemor var i kjøkkenhagen og plukka grønsaker, sneik eg meg inn og titta på bananane. Nesten alle var modne. Eg kunne ikkje la vera å ta ein klase med fire. I det eg lista meg mot døra, høyrde eg bestemor hosta utanfor. Eg rekte så vidt å gøyma bananane under kjolen og gjekk forbi ho.
@@ -28,7 +28,7 @@ Neste dag medan bestemor var i kjøkkenhagen og plukka grønsaker, sneik eg meg 
 Neste dag var det marknadsdag. Bestemor stod tidleg opp. Ho tok alltid med modne bananar og maniok for å selja på marknaden. Eg skunda meg ikkje for å vitja ho den dagen. Men eg kunne ikkje vika unna ho veldig lenge.
 
 ##
-Seinare den kvelden sende mor, far og bestemor bod etter meg. Eg visste kvifor. Den natta då eg la meg til å sova, visste eg at eg ikkje kunne stela igjen, ikkje frå bestemor, ikkje frå foreldra mine, og definitivt ikkje frå nokon andre.
+Seinare den kvelden sende mor, far og bestemor bod etter meg. Eg visste kvifor. Då eg la meg til å sova den natta, visste eg at eg ikkje kunne stela igjen, ikkje frå bestemor, ikkje frå foreldra mine, og definitivt ikkje frå nokon andre.
 
 ##
 * License: [CC-BY]

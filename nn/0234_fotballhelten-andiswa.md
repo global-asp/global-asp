@@ -13,7 +13,7 @@ Gutane sa at ho skulle gå og spela nettball. Dei sa at nettball er for jenter o
 Dagen etter var det ein stor fotballkamp på skulen. Trenaren var bekymra fordi den beste spelaren på laget var sjuk og kunne ikkje spela.
 
 ##
-Andiswa sprang bort til trenaren og trygla om å få lov til å spela. Kva skulle han svara? Han bestemte å ha Andiswa med på laget.
+Andiswa sprang bort til trenaren og trygla om å få lov til å spela. Kva skulle han svara? Han bestemte å la Andiswa vera med på laget.
 
 ##
 Det vart ein hard kamp. Ingen hadde skåra mål etter første omgang.

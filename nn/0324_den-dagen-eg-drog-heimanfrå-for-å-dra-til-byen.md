@@ -7,7 +7,7 @@ Den vesle busstasjonen i landsbyen min var travel og stappfull av busser. På ba
 "Byen! Byen! Vestover!" høyrde eg ein medhjelpar ropa. Det var bussen eg måtte ta.
 
 ##
-Bybussen var nesten full, men fleire folk dytta for å koma om bord. Nokre plasserte bagasjen sin i bagasjerommet under bussen. Andre la han på hyllene inne i bussen.
+Bussen til byen var nesten full, men fleire folk dytta for å koma om bord. Nokre plasserte bagasjen sin i bagasjerommet under bussen. Andre la han på hyllene inne i bussen.
 
 ##
 Nye passasjerar klamra seg til billettane sine medan dei såg etter ein stad å sitja sidan det var trongt om plassen. Kvinner med unge born la til rette for dei så dei skulle få det behageleg under den lange reisa.

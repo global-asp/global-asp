@@ -19,9 +19,7 @@ Eg feiar golvet.
 Eg vaskar opp.
 
 ##
-Kvifor jobbar eg så hardt …
-
-… når broren min berre leikar?
+Kvifor jobbar eg så hardt … … når broren min berre leikar?
 
 ##
 * License: [CC-BY-NC]
