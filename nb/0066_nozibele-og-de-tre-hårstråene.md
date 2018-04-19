@@ -28,7 +28,7 @@ Da sa hunden: "Lag mat til meg!" "Men jeg har aldri lagd mat til en hund før", 
 Da sa hunden: "Re opp sengen for meg!" Nozibele svarte: "Jeg har aldri redd opp sengen for en hund." "Re opp sengen, ellers biter jeg deg!" sa hunden. Så Nozibele redde opp sengen.
 
 ##
-Hver dag måtte hun lage mat og feie og gjøre rent for hunden. Så en dag sa hunden: "Nozibele, i dag må jeg besøke noen venner. Fei huset, lag mat og gjør rent tingene mine før jeg kommer tilbake."
+Hver dag måtte hun lage mat og feie og gjøre rent for hunden. Så en dag sa hunden: "Nozibele, i dag må jeg besøke noen venner. Fei huset, lag mat og gjør rent før jeg kommer tilbake."
 
 ##
 Så snart hunden var dratt, tok Nozibele tre hårstrå fra hodet sitt. Hun la ett hårstrå under sengen, ett bak døra, og ett i innhegningen. Så løp hun hjem så fort hun orket.
