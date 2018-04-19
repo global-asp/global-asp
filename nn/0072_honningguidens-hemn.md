@@ -19,7 +19,7 @@ Då biene var ute, dytta Gingile handa si inn i bolet. Han tok ut handfuller med
 Ngede såg ivrig på alt som Gingile gjorde. Han venta på at han skulle leggja igjen ei tjukk vokskake som ei takkegåve til honningguiden. Ngede svinsa frå grein til grein, nærare og nærare bakken. Til slutt nådde Gingile foten av treet. Ngede sat på ein stein nær guten og venta på påskjøninga si.
 
 ##
-Men Gingile sløkte bålet, plukka opp spydet, byrja å gå heim og oversåg fuglen. Ngede ropte sint: "Vik-tor, vik-tor!" Gingile stoppa og stira på den vesle fuglen og lo høgt. "Du vil ha litt honning, du, vesle ven? Ha! Men eg gjorde alt arbeidet og fekk alle stikka. Kvifor skulle eg dela noko av denne herlege honningen med deg?" Ngede var rasande! Dette var då ingen måte å behandla han på! Men han skulle få hemnen sin.
+Men Gingile sløkte bålet, plukka opp spydet, byrja å gå heim og oversåg fuglen. Ngede ropte sint: "SI-ger, SI-ger!" Gingile stoppa og stira på den vesle fuglen og lo høgt. "Du vil ha litt honning, du, vesle ven? Ha! Men eg gjorde alt arbeidet og fekk alle stikka. Kvifor skulle eg dela noko av denne herlege honningen med deg?" Ngede var rasande! Dette var då ingen måte å behandla han på! Men han skulle få hemnen sin.
 
 ##
 Ein dag fleire veker seinare høyrde Gingile igjen kallet frå Ngede. Han hugsa den herlege honningen og følgde ivrig etter fuglen nok ein gong. Etter at han hadde leidd Gingile langs skogkanten, stoppa han for å kvila i eit stort akasietre. "Å", tenkte Gingile. "Bolet må vera i dette treet." Han tende raskt det vesle bålet sitt og byrja å klatra med den rykande greina mellom tennene. Ngede sat og venta.
