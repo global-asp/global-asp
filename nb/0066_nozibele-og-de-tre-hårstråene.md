@@ -13,7 +13,7 @@ Plutselig merket de at det var blitt sent. De skyndte seg tilbake til landsbyen.
 Da de var nesten hjemme, la Nozibele hånden på halsen. Hun hadde glemt halsbåndet! "Vær så snill og dra tilbake sammen med meg!" tryglet hun venninnene sine. Men venninnene hennes sa at det var for sent.
 
 ##
-Så Nozibele gikk tilbake til elven alene. Hun fant halsbåndet og skynde seg hjem. Men hun gikk seg vill i mørket.
+Så Nozibele gikk tilbake til elven alene. Hun fant halsbåndet og skyndte seg hjem. Men hun gikk seg vill i mørket.
 
 ##
 I det fjerne så hun lys som kom fra en hytte. Hun løp mot hytta og banket på døra.
