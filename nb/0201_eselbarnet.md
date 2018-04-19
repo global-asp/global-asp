@@ -16,7 +16,7 @@ Barnet var snart på vei. "Trykk!" "Hent pledd!" "Vann!" "Tryyyykk!"
 Men da de fikk se babyen, vek alle tilbake i sjokk. "Et esel?"
 
 ##
-Alle sammen begynte å krangle. "Vi sa vi skulle beskytte mor og barn, og det skal vi gjøre", sa noen. Men de kommer til å bringe ulykke!" sa andre.
+Alle sammen begynte å krangle. "Vi sa vi skulle beskytte mor og barn, og det skal vi gjøre", sa noen. "Men de kommer til å bringe ulykke!" sa andre.
 
 ##
 Og slik var det at kvinnen ble alene igjen. Hun lurte på hva hun skulle gjøre med dette rare barnet. Hun lurte på hva hun skulle gjøre med seg selv.
@@ -55,7 +55,7 @@ Høyt oppe blant skyene sovnet de. Esel drømte at moren hans var syk og ropte p
 Esel visste omsider hva han skulle gjøre.
 
 ##
-Esel fant moren sin som var alene, og sørget tapet av barnet sitt. De stirret på hverandre lenge. Og så klemte de hverandre veldig hardt.
+Esel fant moren sin som var alene, og sørget over tapet av barnet sitt. De stirret på hverandre lenge. Og så klemte de hverandre veldig hardt.
 
 ##
 Eselbarnet og moren hans har utviklet seg i fellesskap og funnet mange måter å leve side ved side. Sakte men sikkert har andre familier begynt å slå seg ned rundt dem.
