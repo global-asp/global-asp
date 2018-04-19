@@ -13,7 +13,7 @@ Jeg kan danse med den.
 Jeg kan svømme med den.
 
 ##
-Jeg kan hoppe med den.
+Jeg kan hoppe tau med den.
 
 ##
 Jeg kan sparke med den.
