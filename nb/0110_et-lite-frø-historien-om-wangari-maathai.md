@@ -16,7 +16,7 @@ Wangari var en flink pike og ville gjerne begynne på skolen. Men moren og faren
 Hun likte å lære! Wangari lærte mer og mer for hver bok hun leste. Hun ble så flink på skolen at hun ble invitert til å studere i USA. Wangari ble så glad! Hun ville lære mer om verden.
 
 ##
-Wangari lærte mye nytt på det amerikanske universitetet. Hun studerte planter og hvordan de vokser. Og husket hvordan hun hadde vokst selv: i leker og spill med brødrene sine i Kenyas vakre skoger.
+Wangari lærte mye nytt på det amerikanske universitetet. Hun studerte planter og hvordan de vokser. Og husket hvordan hun hadde vokst opp selv: i leker og spill med brødrene sine i Kenyas vakre skoger.
 
 ##
 Hun skjønte hun var glad i folk fra Kenya jo mer hun lærte. Hun ville de skulle være glade og frie. Og jo mer hun lærte, jo mer husket hun hjemmet sitt i Afrika.
