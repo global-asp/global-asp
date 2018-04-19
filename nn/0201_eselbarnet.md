@@ -16,7 +16,7 @@ Barnet var snart på veg. "Trykk!" "Hent pledd!" "Vatn!" "Tryyyykk!"
 Men då dei fekk sjå babyen, veik alle tilbake i sjokk. "Eit esel?"
 
 ##
-Alle saman byrja å krangla. "Vi sa vi skulle verna mor og barn, og det skal vi gjera", sa nokon. Men dei kjem til å bringa ulukke!" sa andre.
+Alle saman byrja å krangla. "Vi sa vi skulle verna mor og barn, og det skal vi gjera", sa nokon. "Men dei kjem til å bringa ulukke!" sa andre.
 
 ##
 Og slik var det at kvinna vart åleine igjen. Ho lurte på kva ho skulle gjera med dette rare barnet. Ho lurte på kva ho skulle gjera med seg sjølv.
@@ -55,7 +55,7 @@ Høgt oppe blant skyene sovna dei. Esel drøymde at mora hans var sjuk og ropte 
 Esel visste endeleg kva han skulle gjera.
 
 ##
-Esel fann mora si som var åleine, og sørgde tapet av barnet sitt. Dei stira på kvarandre lengje. Og så klemde dei kvarandre veldig hardt.
+Esel fann mora si som var åleine, og sørgde over tapet av barnet sitt. Dei stira på kvarandre lengje. Og så klemde dei kvarandre veldig hardt.
 
 ##
 Eselbarnet og mora hans har utvikla seg i fellesskap og funne mange måtar å leva side ved side. Sakte men sikkert har andre familiar begynt å slå seg ned rundt dei.
