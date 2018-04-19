@@ -13,7 +13,7 @@ Eg kan dansa med han.
 Eg kan symja med han.
 
 ##
-Eg kan hoppa med han.
+Eg kan hoppa tau med han.
 
 ##
 Eg kan sparka med han.
