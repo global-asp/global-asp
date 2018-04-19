@@ -16,7 +16,7 @@ Wangari var ei flink jente og ville gjerne byrja på skulen. Men mora og faren v
 Ho likte å læra! Wangari lærde meir og meir for kvar bok ho las. Ho vart så flink på skulen at ho vart invitert til å studera i USA. Wangari vart så glad! Ho ville læra meir om verda.
 
 ##
-Wangari lærde mykje nytt på det amerikanske universitetet. Ho studerte planter og korleis dei veks. Og hugsa korleis ho hadde vakse sjølv: i leiker og spel med brørne sine i Kenyas vene skogar.
+Wangari lærde mykje nytt på det amerikanske universitetet. Ho studerte planter og korleis dei veks. Og hugsa korleis ho hadde vakse opp sjølv: i leiker og spel med brørne sine i Kenyas vene skogar.
 
 ##
 Ho skjønte ho var glad i folk frå Kenya jo meir ho lærde. Ho ville dei skulle vera glade og frie. Og jo meir ho lærde, jo meir hugsa ho heimen sin i Afrika.
