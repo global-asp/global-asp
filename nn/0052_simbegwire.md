@@ -4,7 +4,7 @@
 Då Simbegwire si mor døydde, vart ho veldig lei seg. Simbegwire sin far gjorde sitt beste for å ta hand om dotter si. Litt etter litt vart dei lukkelege igjen, utan Simbegwire si mor. Kvar morgon sat dei og snakka om dagen som låg føre dei. Kvar kveld laga dei middag saman. Etter at dei hadde teke oppvasken, hjelpte Simbegwire sin far ho med leksene.
 
 ##
-Ein dag kom Simbegwire sin far heim seinare enn vanleg. "Kor er du, jenta mi?" ropte han. Simbegwire sprang til faren sin. Ho stoppa opp då ho såg at han heldt ei dame i handa. "Eg vil at du skal møta ei spesiell kvinne, jenta mi." Dette er Anita", sa han og smilte.
+Ein dag kom Simbegwire sin far heim seinare enn vanleg. "Kor er du, jenta mi?" ropte han. Simbegwire sprang til faren sin. Ho stoppa opp då ho såg at han heldt ei dame i handa. "Eg vil at du skal møta ei spesiell kvinne, jenta mi. Dette er Anita", sa han og smilte.
 
 ##
 "Hei Simbegwire, faren din har fortalt meg mykje om deg", sa Anita. Men ho smilte ikkje og tok ikkje handa til jenta. Simbegwire sin far var glad og begeistra. Han snakka om at dei tre skulle bu saman, og kor godt dei skulle få det. "Jenta mi, eg håpar du vil akseptera Anita som mora di", sa han.
