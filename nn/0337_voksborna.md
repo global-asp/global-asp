@@ -37,5 +37,5 @@ Og då sola steig, flaug han syngande inn i morgonlyset.
 * License: [CC-BY]
 * Text: Southern African Folktale
 * Illustration: Wiehan de Jager
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

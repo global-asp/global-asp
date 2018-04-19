@@ -28,5 +28,5 @@ Kva gjer du?
 * License: [CC-BY]
 * Text: Nina Orange
 * Illustration: Wiehan dei Jagar
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

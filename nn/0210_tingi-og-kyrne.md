@@ -36,5 +36,5 @@ Dei sneik seg stille heim.
 * License: [CC-BY]
 * Text: Ingrid Schechter
 * Illustration: Ingrid Schechter
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

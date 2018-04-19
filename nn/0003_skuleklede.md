@@ -28,5 +28,5 @@ Men desse skorne er nye.
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Mlungisi Dlamini, Anonymous
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

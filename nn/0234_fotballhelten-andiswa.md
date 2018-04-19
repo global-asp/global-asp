@@ -28,5 +28,5 @@ Publikum var frå seg av glede. Sidan den dagen fekk jenter òg spela fotball p�
 * License: [CC-BY-NC]
 * Text: Eden Daniels
 * Illustration: Eden Daniels
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

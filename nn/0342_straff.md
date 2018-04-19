@@ -40,5 +40,5 @@ Seinare seier Rahim orsak til oss. "Eg skal aldri vera så grådig igjen", lovar
 * License: [CC-BY]
 * Text: Adelheid Marie Bwire
 * Illustration: Melany Pietersen
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

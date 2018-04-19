@@ -43,5 +43,5 @@ Systera til Vusi tenkte eit bel, så sa ho: "Vusi, kjære bror, eg bryr meg verk
 * License: [CC-BY]
 * Text: Nina Orange
 * Illustration: Wiehan de Jager
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

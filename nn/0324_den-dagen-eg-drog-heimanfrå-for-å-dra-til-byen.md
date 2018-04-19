@@ -52,5 +52,5 @@ Bussen som skulle tilbake vart fylt opp fort. Det viktigaste for meg no var å b
 * License: [CC-BY]
 * Text: Lesley Koyi, Ursula Nafula
 * Illustration: Brian Wambi
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

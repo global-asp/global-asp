@@ -43,5 +43,5 @@ Då skjønte hunden at Nozibele hadde lura han. Så han sprang og sprang heile v
 * License: [CC-BY]
 * Text: Tessa Welch
 * Illustration: Wiehan de Jager
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

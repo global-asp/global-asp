@@ -41,5 +41,5 @@ Eg gjer alle desse gode tinga kvar dag. Men det eg likar mest, er å leika og le
 * Text: Michael Oguttu
 * Illustration: Vusi Malindi
 * Adaptation: Nina Orange
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

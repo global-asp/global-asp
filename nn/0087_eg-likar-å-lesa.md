@@ -28,5 +28,5 @@ Kven kan eg lesa for? Eg kan lesa for meg sjølv!
 * License: [CC-BY]
 * Text: Letta Machoga
 * Illustration: Wiehan de Jager
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

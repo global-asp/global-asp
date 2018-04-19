@@ -52,5 +52,5 @@ Vi ropte alle saman med éi stemme: "Vi må forandra liva våre." Frå den dagen
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Vusi Malindi
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

@@ -28,5 +28,5 @@ Kanin var glad for at håret til Flodhest brann. Og den dag i dag, av frykt for 
 * License: [CC-BY]
 * Text: Basilio Gimo, David Ker
 * Illustration: Carol Liddiment
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

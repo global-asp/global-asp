@@ -28,5 +28,5 @@ Når Khalai kjem heim frå skulen, vitjar ho appelsintreet. "Er appelsinane dine
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Jesse Pietersen
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

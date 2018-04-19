@@ -52,5 +52,5 @@ Neste veke bad Anita Simbegwire, saman med fetrane, kusinene og tanta, heim til 
 * License: [CC-BY]
 * Text: Rukia Nantale
 * Illustration: Benjamin Mitchley
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

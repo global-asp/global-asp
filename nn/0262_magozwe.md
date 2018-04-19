@@ -52,5 +52,5 @@ Magozwe sat på tunet ved huset med det grøne taket og las ei barnebok frå sku
 * License: [CC-BY]
 * Text: Lesley Koyi
 * Illustration: Wiehan de Jager
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

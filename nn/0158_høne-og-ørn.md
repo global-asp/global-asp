@@ -34,5 +34,5 @@ Når Ørn si venge kastar skuggen sin på bakken, varslar Høne kyllingane sine:
 * License: [CC-BY]
 * Text: Ann Nduku
 * Illustration: Wiehan de Jager
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

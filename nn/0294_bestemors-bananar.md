@@ -34,5 +34,5 @@ Seinare den kvelden sende mor, far og bestemor bod etter meg. Eg visste kvifor. 
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Catherine Groenewald
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

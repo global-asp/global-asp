@@ -64,5 +64,5 @@ Eselbarnet og mora hans har utvikla seg i fellesskap og funne mange måtar å le
 * License: [CC-BY]
 * Text: Lindiwe Matshikiza
 * Illustration: Meghan Judge
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

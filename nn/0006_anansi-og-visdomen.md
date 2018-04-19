@@ -22,5 +22,5 @@ Ho gjekk i tusen knas på bakken. Då vart det fritt for alle å dela visdomen. 
 * License: [CC-BY]
 * Text: Ghanaian folktale
 * Illustration: Wiehan de Jager
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

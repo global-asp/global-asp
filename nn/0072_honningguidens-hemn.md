@@ -37,5 +37,5 @@ Og på den måten, når borna til Gingile høyrer forteljinga om Ngede, respekte
 * License: [CC-BY]
 * Text: Zulu folktale
 * Illustration: Wiehan de Jager
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

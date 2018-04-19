@@ -40,5 +40,5 @@ Tom balanserer kassa på hovudet og går heim.
 * License: [CC-BY]
 * Text: Humphreys Odunga
 * Illustration: Zablon Alex Nguku
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

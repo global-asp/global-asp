@@ -57,5 +57,5 @@ Den rike mannen var veldig glad for å sjå sonen sin igjen. Han lønte Sakima f
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Peris Wachuka
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

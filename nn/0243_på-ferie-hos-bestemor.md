@@ -64,5 +64,5 @@ Då Odongo og Apiyo drog tilbake til skulen, fortalde dei venene sine om livet p
 * License: [CC-BY]
 * Text: Violet Otieno
 * Illustration: Catherine Groenewald
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

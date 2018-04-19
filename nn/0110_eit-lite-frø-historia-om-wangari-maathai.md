@@ -40,5 +40,5 @@ Wangari døydde i 2011, men vi kan tenkja på ho kvar gong vi ser eit vent tre.
 * License: [CC-BY]
 * Text: Nicola Rijsdijk
 * Illustration: Maya Marshak
-* Translation: Espen Stranger-Johannessen
+* Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn
