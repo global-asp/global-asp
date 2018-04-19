@@ -1,7 +1,7 @@
 # Magozwe
 
 ##
-I den travle byen Nairobi, langt frå det omsorgsfulle livet heime, budde det ein gjeng heimlause gutar. Dei tok kvar dag akkurat som han kom. Ein morgon pakka gutane saman mattene sine etter at dei hadde sove på det kalde fortauet. For å fordriva kulda laga dei eit bål av søppel. Ein av gutane i gjengen var Magozwe. Han var den yngste.
+I den travle byen Nairobi, langt frå det trygge livet heime, budde det ein gjeng heimlause gutar. Dei tok kvar dag akkurat som han kom. Ein morgon pakka gutane saman mattene sine etter at dei hadde sove på det kalde fortauet. For å fordriva kulda laga dei eit bål av søppel. Ein av gutane i gjengen var Magozwe. Han var den yngste.
 
 ##
 Då Magozwe sine foreldre døydde, var han berre fem år. Han drog for å bu med onkelen sin. Denne mannen brydde seg ikkje om barnet. Han gav ikkje Magozwe nok mat. Han tvinga guten til å jobba hardt.
