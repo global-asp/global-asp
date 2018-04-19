@@ -31,7 +31,7 @@ Gingile klatra, men lurte på kvifor han ikkje høyrde den sedvanlege summinga. 
 Før Leopard kunne svinga labben etter Gingile, skunda han seg ned fra treet. I hastverket bomma han på ei grein og landa med eit høgt brak på bakken og forstua ankelen. Han hinka vidare så fort han kunne. Heldigvis for han var Leopard enno for søvnig til å jaga han. Ngede, honningguiden, hadde fått hemnen sin. Og Gingile hadde fått seg ein lærepenge.
 
 ##
-Og på den måten, når borna til Gingile høyrde forteljinga om Ngede, respekterte dei den vesle fuglen. Kvar gong dei sanka honning sørgde dei for å gje den største delen av vokskaka til honningguiden!
+Og på den måten, når borna til Gingile høyrer forteljinga om Ngede, respekterer dei den vesle fuglen. Kvar gong dei sankar honning sørger dei for å gje den største delen av vokskaka til honningguiden!
 
 ##
 * License: [CC-BY]
