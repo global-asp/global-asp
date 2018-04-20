@@ -13,7 +13,7 @@ Eg føler meg tullete når eg leikar med venene mine.
 Eg vert trist når pappa seier at han ikkje har pengar.
 
 ##
-Eg føler mamma er glad i meg når ho gjev meg ein klem.
+Eg føler at mamma er glad i meg når ho gjev meg ein klem.
 
 ##
 * License: [CC-BY-NC]
