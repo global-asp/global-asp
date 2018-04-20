@@ -10,7 +10,7 @@ Det var ein varm dag, så dei gjekk ned til elva for å symja. Dei leikte og pla
 Plutseleg merka dei at det var vorte seint. Dei skunda seg tilbake til landsbyen.
 
 ##
-Då dei var nesten heime, la Nozibele handa på halsen. Ho hadde gløymt halsbandet! "Ver så snill og dra tilbake saman med meg!" trygla ho veninnene sine. Men veninnene hennar sa at det var for seint.
+Då dei var nesten heime, la Nozibele handa på halsen. Ho hadde gløymt halsbandet! "Ver så snill å dra tilbake saman med meg!" trygla ho veninnene sine. Men veninnene hennar sa at det var for seint.
 
 ##
 Så Nozibele gjekk tilbake til elva åleine. Ho fann halsbandet og skunda seg heim. Men ho gjekk seg vill i mørket.
