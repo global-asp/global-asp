@@ -39,6 +39,6 @@ Da quel momento, polli e millepiedi sono nemici.
 ##
 * License: [CC-BY]
 * Text: Winny Asara
-* Illustration: Winny Asara
+* Illustration: Magriet Brink
 * Translation: Laura Pighini
 * Language: it

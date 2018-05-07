@@ -39,6 +39,6 @@ Ab diesem Zeitpunkt waren Hühner und Tausendfüßler Feinde.
 ##
 * License: [CC-BY]
 * Text: Winny Asara
-* Illustration: Winny Asara
+* Illustration: Magriet Brink
 * Translation: Lisa Birkner
 * Language: de

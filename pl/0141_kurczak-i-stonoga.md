@@ -39,6 +39,6 @@ Od tej pory, kurczaki i stonogi to wrogowie.
 ##
 * License: [CC-BY]
 * Text: Winny Asara
-* Illustration: Winny Asara
+* Illustration: Magriet Brink
 * Translation: Aleksandra Migorska
 * Language: pl

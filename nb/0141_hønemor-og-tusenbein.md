@@ -39,6 +39,6 @@ Siden den gang har høner og tusenbein vært fiender.
 ##
 * License: [CC-BY]
 * Text: Winny Asara
-* Illustration: Winny Asara
+* Illustration: Magriet Brink
 * Translation: Finn Stranger-Johannessen
 * Language: nb

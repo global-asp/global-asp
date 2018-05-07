@@ -39,6 +39,6 @@ Sidan den gongen har høner og tusenbein vore fiendar.
 ##
 * License: [CC-BY]
 * Text: Winny Asara
-* Illustration: Winny Asara
+* Illustration: Magriet Brink
 * Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

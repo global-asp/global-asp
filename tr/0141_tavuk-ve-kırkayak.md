@@ -39,6 +39,6 @@ O günden beri Tavuklar ve Kırkayaklar birbirlerinin düşmanı oldular.
 ##
 * License: [CC-BY]
 * Text: Winny Asara
-* Illustration: Winny Asara
+* Illustration: Magriet Brink
 * Translation: Leyla Tekül
 * Language: tr

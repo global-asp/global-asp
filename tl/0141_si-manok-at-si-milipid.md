@@ -39,6 +39,6 @@ Mula noon, naging magkaaway ang mga manok at mga milipid.
 ##
 * License: [CC-BY]
 * Text: Winny Asara
-* Illustration: Winny Asara
+* Illustration: Magriet Brink
 * Translation: Karla Comanda
 * Language: tl

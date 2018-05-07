@@ -39,6 +39,6 @@ Desde ese instante, los pollos y los milpiés fueron enemigos.
 ##
 * License: [CC-BY]
 * Text: Winny Asara
-* Illustration: Winny Asara
+* Illustration: Magriet Brink
 * Translation: Karina Vásquez
 * Language: es
