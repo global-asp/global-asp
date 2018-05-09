@@ -46,7 +46,7 @@ Bir kadın dedi ki "Kadınlar yiyecek yetiştirme de bana katılabilirler."
 Başka bir adam kalktı ve dedi ki, "Erkekler kuyu açacaklar."
 
 ##
-Hepimiz bir ağızdan bağırdık, " Hayatlarımızı değiştirmek zorundayız." O günden itibaren problemlerimizi çözmek için hep birlikte çalıştık.
+Hepimiz bir ağızdan bağırdık, "Hayatlarımızı değiştirmek zorundayız." O günden itibaren problemlerimizi çözmek için hep birlikte çalıştık.
 
 ##
 * License: [CC-BY]
