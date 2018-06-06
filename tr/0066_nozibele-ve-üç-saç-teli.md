@@ -10,7 +10,7 @@ Hava çok sıcak olduğu için dereye girip serinlemek istemişler. Suyun içind
 Sonra bir anda geç kaldıklarını fark edip köye doğru koşmaya başlamışlar.
 
 ##
-Tam köye yaklaştıklarında Nozibele elini ensesine götürmüş. Boynundaki kolyesi yerinde yokmuş! Arkadaşlarına "Lütfen benimle geri dönün!" diye yalvarmış. Ama onlar zaten çok kaldıklarını söylemişler.
+Tam köye yaklaştıklarında Nozibele elini ensesine götürmüş. Boynundaki kolyesi yerinde yokmuş! Arkadaşlarına "Lütfen benimle geri dönün!" diye yalvarmış. Ama onlar zaten çok geç kaldıklarını söylemişler.
 
 ##
 Böylece Nozibele dereye tek başına geri dönmüş. Kolyesini bulmuş ve eve doğru koşmaya başlamış. Ancak hava karardığından, yolunu kaybetmiş.
