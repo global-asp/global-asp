@@ -37,7 +37,7 @@ Idet bussen forlét busstasjonen, stira eg ut av vindauget. Eg lurte på om eg n
 Etter kvart som reisa heldt fram vart det veldig varmt i bussen. Eg lukka auga og håpte å få sova.
 
 ##
-Men tankane mine vandra heim. Kjem mor mi til å verta trygg? Kjem kaninane mine til å innbringe nokre pengar? Kjem broren min til å hugsa å vatna dei nyutsprungne trea mine?
+Men tankane mine vandra heim. Kjem mor mi til å verta trygg? Kjem kaninane mine til å innbringe nokre pengar? Kjem bror min til å hugsa å vatna dei nyutsprungne trea mine?
 
 ##
 På vegen lærte eg meg utanåt namnet på staden i den store byen der onkelen min budde. Eg mumla enno då eg fall i søvn.
