@@ -22,7 +22,7 @@ Ting vart berre vondare for Simbegwire. Viss ho ikkje gjorde ferdig husarbeidet,
 Ein morgon brukte Simbegwire lang tid på å stå opp. "Din lathans!" ropte Anita. Ho drog Simbegwire ut av senga. Teppet ho var så glad i sat fast på ein spikar og rakna.
 
 ##
-Simbegwire var veldig opprørt. Ho bestemte seg for å rømma. Ho tok bitane frå teppet til mora, pakka litt mat og drog av garde. Ho følgde den same vegen som faren hennar hadde teke.
+Simbegwire var veldig opprørt. Ho bestemte seg for å rømma. Ho tok bitane frå teppet til mora, pakka litt mat og drog av garde. Ho følgde den same vegen som far hennar hadde teke.
 
 ##
 Då kvelden kom, klatra ho opp i eit høgt tre ved ein bekk og reidde seg ei seng i greinene. Då ho gjekk og la seg, song ho: "Mamma, mamma, mamma, du forlét meg. Du forlét meg og kom aldri tilbake. Pappa er ikkje glad i meg lenger. Mamma, når kjem du tilbake? Du forlét meg."
