@@ -22,7 +22,7 @@ Alle saman byrja å krangla. "Vi sa vi skulle verna mor og barn, og det skal vi 
 Og slik var det at kvinna vart åleine igjen. Ho lurte på kva ho skulle gjera med dette rare barnet. Ho lurte på kva ho skulle gjera med seg sjølv.
 
 ##
-Men til slutt godtok ho at han var barnet hennar og at ho var mora hans.
+Men til slutt godtok ho at han var barnet hennar og at ho var mor hans.
 
 ##
 Viss berre barnet hadde halde på den vesle storleiken, hadde alt kanskje vore annleis. Men eselbarnet voks og voks heilt til han ikkje lenger fekk plass på ryggen til mora. Og uansett kor hardt han freista, klarte han ikkje å oppføra seg som eit menneske. Mora hans var ofte sliten og frustrert. Nokre gongar sette ho han til å gjera arbeid som var meint for dyr.
