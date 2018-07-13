@@ -7,10 +7,10 @@ Ein dag fekk mamma mykje frukt.
 "Når kan vi få litt frukt?" spør vi. "Vi skal eta frukta i kveld", seier mamma.
 
 ##
-Broren min Rahim er grådig. Han smakar på all frukta. Han et mykje av ho.
+Bror min Rahim er grådig. Han smakar på all frukta. Han et mykje av ho.
 
 ##
-"Sjå kva Rahim gjorde", ropar veslebroren min. "Rahim er slem og egoistisk", seier eg.
+"Sjå kva Rahim gjorde", ropar veslebror min. "Rahim er slem og egoistisk", seier eg.
 
 ##
 Mamma er sint på Rahim.
