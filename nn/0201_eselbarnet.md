@@ -25,10 +25,10 @@ Og slik var det at kvinna vart åleine igjen. Ho lurte på kva ho skulle gjera m
 Men til slutt godtok ho at han var barnet hennar og at ho var mor hans.
 
 ##
-Viss berre barnet hadde halde på den vesle storleiken, hadde alt kanskje vore annleis. Men eselbarnet voks og voks heilt til han ikkje lenger fekk plass på ryggen til mora. Og uansett kor hardt han freista, klarte han ikkje å oppføra seg som eit menneske. Mora hans var ofte sliten og frustrert. Nokre gongar sette ho han til å gjera arbeid som var meint for dyr.
+Viss berre barnet hadde halde på den vesle storleiken, hadde alt kanskje vore annleis. Men eselbarnet voks og voks heilt til han ikkje lenger fekk plass på ryggen til mora. Og uansett kor hardt han freista, klarte han ikkje å oppføra seg som eit menneske. Mor hans var ofte sliten og frustrert. Nokre gongar sette ho han til å gjera arbeid som var meint for dyr.
 
 ##
-Esel vart fylt av forvirring og sinne. Han kunne ikkje gjera ditt og han kunne ikkje gjera datt. Han kunne ikkje vera på éin måte og han kunne ikkje vera på ein annan måte. Han vart så sint at han ein dag sparka ned huset til mora si.
+Esel vart fylt av forvirring og sinne. Han kunne ikkje gjera ditt og han kunne ikkje gjera datt. Han kunne ikkje vera på éin måte og han kunne ikkje vera på ein annan måte. Han vart så sint at han ein dag sparka ned huset til mor si.
 
 ##
 Esel skamma seg. Han byrja å springe vekk så fort han kunne.
@@ -46,7 +46,7 @@ Esel drog for å bu med den gamle mannen, som lærte han mange ulike måtar å o
 Ein morgon bad den gamle mannen Esel om å bera han opp til toppen av eit fjell.
 
 ##
-Høgt oppe blant skyene sovna dei. Esel drøymde at mora hans var sjuk og ropte på han. Og då han vakna …
+Høgt oppe blant skyene sovna dei. Esel drøymde at mor hans var sjuk og ropte på han. Og då han vakna …
 
 ##
 … hadde skyene forsvunne, liksom venen hans, den gamle mannen.
@@ -55,10 +55,10 @@ Høgt oppe blant skyene sovna dei. Esel drøymde at mora hans var sjuk og ropte 
 Esel visste endeleg kva han skulle gjera.
 
 ##
-Esel fann mora si som var åleine, og sørgde over tapet av barnet sitt. Dei stira på kvarandre lengje. Og så klemde dei kvarandre veldig hardt.
+Esel fann mor si som var åleine, og sørgde over tapet av barnet sitt. Dei stira på kvarandre lengje. Og så klemde dei kvarandre veldig hardt.
 
 ##
-Eselbarnet og mora hans har utvikla seg i fellesskap og funne mange måtar å leva side ved side. Sakte men sikkert har andre familiar begynt å slå seg ned rundt dei.
+Eselbarnet og mor hans har utvikla seg i fellesskap og funne mange måtar å leva side ved side. Sakte men sikkert har andre familiar begynt å slå seg ned rundt dei.
 
 ##
 * License: [CC-BY]
