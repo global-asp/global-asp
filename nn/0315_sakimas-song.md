@@ -37,7 +37,7 @@ Ein kveld då foreldra hans kom heim, var dei veldig stille. Sakima visste at no
 Likevel gav ikkje Sakima opp. Veslesyster hans støtta han. Ho sa: "Songane til Sakima er lindrande når eg er svolten. Dei kjem til å verka lindrande på den rike mannen òg."
 
 ##
-Neste dag bad Sakima veslesystera si om å leia han til huset til den rike mannen.
+Neste dag bad Sakima veslesyster si om å leia han til huset til den rike mannen.
 
 ##
 Han stod nedanfor eit stort vindauge og byrja å synga favorittsongen sin. Sakte byrja hovudet til den rike mannen å visa seg gjennom det store vindauget.
