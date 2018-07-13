@@ -31,7 +31,7 @@ Då kvelden kom, klatra ho opp i eit høgt tre ved ein bekk og reidde seg ei sen
 Neste morgon song Simbegwire songen igjen. Då kvinnene kom for å vaska kleda sine i bekken, høyrde dei den triste songen frå høgt oppa i treet. Dei trudde det berre var vinden som rasla med blada og heldt fram med arbeidet sitt. Men éin av kvinnene høyrde veldig nøye på songen.
 
 ##
-Denne kvinna såg opp i treet. Då ho såg jenta og bitane av det fargerike teppet, ropte ho: "Simbegwire, dottera til broren min!" Dei andre kvinnene stoppa å vaska og hjelpte Simbegwire med å klatra ned frå treet. Tanta hennar gav den vesle jenta ein klem og prøvde å trøysta henne.
+Denne kvinna såg opp i treet. Då ho såg jenta og bitane av det fargerike teppet, ropte ho: "Simbegwire, dottera til bror min!" Dei andre kvinnene stoppa å vaska og hjelpte Simbegwire med å klatra ned frå treet. Tanta hennar gav den vesle jenta ein klem og prøvde å trøysta henne.
 
 ##
 Tanta til Simbegwire tok med seg barnet til sitt eige hus. Ho gav Simbegwire varm mat, og la henne til å sova med teppet til mor si. Den natta gret Simbegwire i det ho sovna. Men det var fordi ho var så letta. Ho visste at tanta hennar ville ta seg av henne.
