@@ -1,7 +1,7 @@
 # Geit, Hund og Ku
 
 ##
-Geit, Hund og Ku var gode venner. En dag dro de på reise med en buss.
+Geit, Hund og Ku var gode venner. En dag dro de på tur med en buss.
 
 ##
 Da de kom fram, ba sjåføren dem om å betale billetten sin. Ku betalte sin billett.
@@ -19,10 +19,10 @@ Sjåføren ble veldig sur. Han kjørte av gårde uten å gi vekslepengene tilbak
 Det er derfor Hund, selv i dag, løper mot biler for å sjekke om han ser sjåføren som skylder ham vekslepenger.
 
 ##
-Geit stikker når hun hører lyden av en bil. Hun er redd for at hun vil bli arrestert for ikke å ha betalt billetten.
+Geit stikker når hun hører lyden av en bil. Hun er redd for at hun vil bli arrestert for ikke å ha betalt for billetten.
 
 ##
-Og Ku bryr seg ikke når det kommer en bil. Ku bruker god tid når hun krysser veien fordi hun vet at hun betalte hele billetten sin.
+Og Ku bryr seg ikke når det kommer en bil. Ku bruker god tid når hun krysser veien fordi hun vet at hun betalte for hele billetten sin.
 
 ##
 * License: [CC-BY]
