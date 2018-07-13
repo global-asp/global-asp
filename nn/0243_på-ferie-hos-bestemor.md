@@ -55,7 +55,7 @@ Men snart var ferien over og borna måtte dra tilbake til byen. Nyar-Kanyada gav
 Då faren deira kom for å henta dei, ville dei ikkje dra. Borna trygla Nyar-Kanyada om å verta med dei til byen. Ho smilte og sa: "Eg er for gammal for byen. Eg skal venta på at de kjem tilbake til landsbyen min."
 
 ##
-Odongo og Apiyo klemde ho hardt og tok farvel.
+Odongo og Apiyo klemde henne hardt og tok farvel.
 
 ##
 Då Odongo og Apiyo drog tilbake til skulen, fortalde dei venene sine om livet på landet. Nokre barn syntest at livet i byen var godt. Andre syntest at landet var betre. Men viktigast av alt var at alle var samde i at Odongo og Apiyo hadde ei fantastisk bestemor!
