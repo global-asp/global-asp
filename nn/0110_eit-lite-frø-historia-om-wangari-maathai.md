@@ -10,7 +10,7 @@ Wangari var glad i å vera ute. Familien hadde ein kjøkkenhage. Der vende ho gr
 Ho syntest den beste tida på dagen var rett etter solnedgang. Når det vart for mørkt til å sjå plantene, visste ho at det var på tide å gå heim. Ho gjekk langs smale stiar på markene og over bekkar på vegen sin.
 
 ##
-Wangari var ei flink jente og ville gjerne byrja på skulen. Men mora og faren ville at ho skulle vera heime og hjelpa til. Då ho vart sju år, overtalte storebroren mor og far til å la ho få gå på skulen.
+Wangari var ei flink jente og ville gjerne byrja på skulen. Men mora og faren ville at ho skulle vera heime og hjelpa til. Då ho vart sju år, overtalte storebroren mor og far til å la henne få gå på skulen.
 
 ##
 Ho likte å læra! Wangari lærde meir og meir for kvar bok ho las. Ho vart så flink på skulen at ho vart invitert til å studera i USA. Wangari vart så glad! Ho ville læra meir om verda.
@@ -31,7 +31,7 @@ Wangari visste råd. Ho lærde kvinnene å planta tre ved å så frø i jorda. K
 Tida gjekk og dei nye trea voks og vart til skog, og det kom vatn i elvene igjen. Historia om Wangari spreidde seg over heile Afrika. I dag er det millionar av tre som har vakse opp frå Wangaris frø.
 
 ##
-Wangari hadde arbeidd hardt. Folk over heile verda la merke til det og dei gav ho ein berømt pris. Han vert kalla Nobels fredspris. Ho vart den første afrikanske kvinna som fekk han.
+Wangari hadde arbeidd hardt. Folk over heile verda la merke til det og dei gav henne ein berømt pris. Han vert kalla Nobels fredspris. Ho vart den første afrikanske kvinna som fekk han.
 
 ##
 Wangari døydde i 2011, men vi kan tenkja på ho kvar gong vi ser eit vent tre.
