@@ -22,13 +22,13 @@ Ein dag vart lengsla for sterk. Brørne hans åtvara han.
 Men det var for seint! Han smelta i den varme sola.
 
 ##
-Voksborna vart leie seg av å sjå broren sin smelte bort.
+Voksborna vart leie seg av å sjå bror sin smelte bort.
 
 ##
 Men dei la ein plan. Dei forma ein fugl av den smelta voksklumpen.
 
 ##
-Dei tok med seg fuglebroren sin opp på eit høgt fjell.
+Dei tok med seg fuglebror sin opp på eit høgt fjell.
 
 ##
 Og då sola steig, flaug han syngande inn i morgonlyset.
