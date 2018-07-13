@@ -22,7 +22,7 @@ Stemma til bestemor skremde meg då ho ropte: "Kva held du på med?" "Skund deg 
 Neste dag, då bestemor kom for å vitja mora mi, skunda eg meg av garde til huset hennar for å sjekka bananane ein gong til. Det var ein klase veldig modne bananar der. Eg tok éin og gøymde den i kjolen min. Etter at eg hadde dekt korga, gjekk eg bak huset og åt den fort. Det var den søtaste bananen eg nokosinne hadde smakt.
 
 ##
-Neste dag medan bestemor var i kjøkkenhagen og plukka grønsaker, sneik eg meg inn og titta på bananane. Nesten alle var modne. Eg kunne ikkje la vera å ta ein klase med fire. I det eg lista meg mot døra, høyrde eg bestemor hosta utanfor. Eg rekte så vidt å gøyma bananane under kjolen og gjekk forbi ho.
+Neste dag medan bestemor var i kjøkkenhagen og plukka grønsaker, sneik eg meg inn og titta på bananane. Nesten alle var modne. Eg kunne ikkje la vera å ta ein klase med fire. I det eg lista meg mot døra, høyrde eg bestemor hosta utanfor. Eg rekte så vidt å gøyma bananane under kjolen og gjekk forbi henne.
 
 ##
 Neste dag var det marknadsdag. Bestemor stod tidleg opp. Ho tok alltid med modne bananar og maniok for å selja på marknaden. Eg skunda meg ikkje for å vitja ho den dagen. Men eg kunne ikkje vika unna ho veldig lenge.
