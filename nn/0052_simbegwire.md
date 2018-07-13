@@ -7,16 +7,16 @@ Då Simbegwire si mor døydde, vart ho veldig lei seg. Simbegwire sin far gjorde
 Ein dag kom Simbegwire sin far heim seinare enn vanleg. "Kor er du, jenta mi?" ropte han. Simbegwire sprang til far sin. Ho stoppa opp då ho såg at han heldt ei dame i handa. "Eg vil at du skal møta ei spesiell kvinne, jenta mi. Dette er Anita", sa han og smilte.
 
 ##
-"Hei Simbegwire, far din har fortalt meg mykje om deg", sa Anita. Men ho smilte ikkje og tok ikkje handa til jenta. Simbegwire sin far var glad og begeistra. Han snakka om at dei tre skulle bu saman, og kor godt dei skulle få det. "Jenta mi, eg håpar du vil akseptera Anita som mora di", sa han.
+"Hei Simbegwire, far din har fortalt meg mykje om deg", sa Anita. Men ho smilte ikkje og tok ikkje handa til jenta. Simbegwire sin far var glad og begeistra. Han snakka om at dei tre skulle bu saman, og kor godt dei skulle få det. "Jenta mi, eg håpar du vil akseptera Anita som mor di", sa han.
 
 ##
-Livet til Simbegwire forandra seg. Ho hadde ikkje lenger tid til å sitja saman med far sin om morgonen. Anita gav henne så mykje husarbeid at ho vart for sliten til å gjera leksene om kvelden. Ho gjekk rett til sengs etter middag. Den einaste trøysta ho hadde var eit fargerikt teppe mora hennar hadde gjeve henne. Det verka ikkje som Simbegwire sin far merka at dotter hans var ulykkelig.
+Livet til Simbegwire forandra seg. Ho hadde ikkje lenger tid til å sitja saman med far sin om morgonen. Anita gav henne så mykje husarbeid at ho vart for sliten til å gjera leksene om kvelden. Ho gjekk rett til sengs etter middag. Den einaste trøysta ho hadde var eit fargerikt teppe mor hennar hadde gjeve henne. Det verka ikkje som Simbegwire sin far merka at dotter hans var ulykkelig.
 
 ##
 Etter nokre månader fortalde Simbegwire sin far dei at han skulle vera borte eit bel. "Eg må reisa på grunn av jobben min", sa han. Men eg veit at de kjem til ta vare på kvarandre." Simbegwire såg trist ut, men faren la ikkje merke til det. Anita sa ikkje noko. Ho var ikkje glad ho heller.
 
 ##
-Ting vart berre vondare for Simbegwire. Viss ho ikkje gjorde ferdig husarbeidet, eller klaga, slo Anita henne. Og under middagen åt Anita det meste av maten, slik at Simbegwire berre fekk nokre få restar. Kvar natt gret Simbegwire til ho fall i søvn medan ho klemde rundt teppet frå mora si.
+Ting vart berre vondare for Simbegwire. Viss ho ikkje gjorde ferdig husarbeidet, eller klaga, slo Anita henne. Og under middagen åt Anita det meste av maten, slik at Simbegwire berre fekk nokre få restar. Kvar natt gret Simbegwire til ho fall i søvn medan ho klemde rundt teppet frå mor si.
 
 ##
 Ein morgon brukte Simbegwire lang tid på å stå opp. "Din lathans!" ropte Anita. Ho drog Simbegwire ut av senga. Teppet ho var så glad i sat fast på ein spikar og rakna.
@@ -34,7 +34,7 @@ Neste morgon song Simbegwire songen igjen. Då kvinnene kom for å vaska kleda s
 Denne kvinna såg opp i treet. Då ho såg jenta og bitane av det fargerike teppet, ropte ho: "Simbegwire, dottera til broren min!" Dei andre kvinnene stoppa å vaska og hjelpte Simbegwire med å klatra ned frå treet. Tanta hennar gav den vesle jenta ein klem og prøvde å trøysta henne.
 
 ##
-Simbegwire si tante tok med seg barnet til sitt eige hus. Ho gav Simbegwire varm mat, og la henne til å sova med teppet til mora hennar. Den natta gret Simbegwire i det ho sovna. Men det var fordi ho var så letta. Ho visste at tanta hennar ville ta seg av henne.
+Tanta til Simbegwire tok med seg barnet til sitt eige hus. Ho gav Simbegwire varm mat, og la henne til å sova med teppet til mora hennar. Den natta gret Simbegwire i det ho sovna. Men det var fordi ho var så letta. Ho visste at tanta hennar ville ta seg av henne.
 
 ##
 Då Simbegwire sin far kom heim, såg han at rommet hennar var tomt. "Kva har skjett, Anita?" spurde han bekymra. Kvinna svara at Simbegwire hadde stukke av. "Eg ville at ho skulle respektera meg", sa ho. "Men kanskje eg var for streng." Simbegwire sin far forlét huset og gjekk i retning av bekken. Han heldt fram til landsbyen til systera si for å finna ut om ho hadde sett Simbegwire.
