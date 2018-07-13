@@ -40,13 +40,13 @@ Etter kvart som reisa heldt fram vart det veldig varmt i bussen. Eg lukka auga o
 Men tankane mine vandra heim. Kjem mor mi til å verta trygg? Kjem kaninane mine til å innbringe nokre pengar? Kjem bror min til å hugsa å vatna dei nyutsprungne trea mine?
 
 ##
-På vegen lærte eg meg utanåt namnet på staden i den store byen der onkelen min budde. Eg mumla enno då eg fall i søvn.
+På vegen lærte eg meg utanåt namnet på staden i den store byen der onkel min budde. Eg mumla enno då eg fall i søvn.
 
 ##
 Ni timar seinare vakna eg med høglydt banking og roping etter passasjerar som skulle tilbake til landsbyen min. Eg greip fatt i den vesle veska mi og hoppa ut av bussen.
 
 ##
-Bussen som skulle tilbake vart fylt opp fort. Det viktigaste for meg no var å byrja å leita etter huset til onkelen min.
+Bussen som skulle tilbake vart fylt opp fort. Det viktigaste for meg no var å byrja å leita etter huset til onkel min.
 
 ##
 * License: [CC-BY]
