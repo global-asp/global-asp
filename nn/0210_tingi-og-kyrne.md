@@ -1,7 +1,7 @@
 # Tingi og kyrne
 
 ##
-Tingi budde saman med bestemora si.
+Tingi budde saman med bestemor si.
 
 ##
 Han brukte å passa på kyrne med henne.
@@ -13,7 +13,7 @@ Ein dag kom soldatane.
 Dei tok kyrne.
 
 ##
-Tingi og bestemora hans sprang og gøymde seg.
+Tingi og bestemor hans sprang og gøymde seg.
 
 ##
 Dei gøymde seg i skogen til natta kom.
@@ -28,7 +28,7 @@ Bestemor gøymde Tingi under blada.
 Ein av soldatane sat foten rett på han, men han sa ikkje eit ord.
 
 ##
-Då det var trygt, kom Tingi og bestemora hans ut.
+Då det var trygt, kom Tingi og bestemor hans ut.
 
 ##
 Dei sneik seg stille heim.
