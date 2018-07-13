@@ -1,13 +1,13 @@
 # På ferie hos bestemor
 
 ##
-Odongo og Apiyo budde i byen med faren sin. Dei såg fram til ferien. Ikkje berre fordi skulen var slutt, men fordi dei skulle vitja bestemora si. Ho budde i ein fiskerlandsby nær ein stor innsjø.
+Odongo og Apiyo budde i byen med far sin. Dei såg fram til ferien. Ikkje berre fordi skulen var slutt, men fordi dei skulle vitja bestemora si. Ho budde i ein fiskerlandsby nær ein stor innsjø.
 
 ##
 Odongo og Apiyo var begeistra fordi dei var på tide å vitja bestemor igjen. Kvelden før pakka dei veskene sine og gjorde seg klare for den lange reisa til landsbyen hennar. Dei fekk ikkje sova og dei snakka heile natta om ferien.
 
 ##
-Tidleg neste morgon drog dei til landsbyen i bilen til faren sin. Dei køyrde forbi fjell, ville dyr og teplantasjar. Dei talde bilar og song songar.
+Tidleg neste morgon drog dei til landsbyen i bilen til far sin. Dei køyrde forbi fjell, ville dyr og teplantasjar. Dei talde bilar og song songar.
 
 ##
 Etter eit bel vart borna trøytte og sovna.
@@ -31,7 +31,7 @@ Dei klatra i tre og plaska i vatnet i innsjøen.
 Då det vart mørkt, gjekk dei tilbake til huset for å eta middag. Før dei vart ferdige med å eta byrja dei å sovna!
 
 ##
-Dagen etter køyrde faren deira tilbake til byen og lét dei verta igjen hos Nyar-Kanyada.
+Dagen etter køyrde far deira tilbake til byen og lét dei verta igjen hos Nyar-Kanyada.
 
 ##
 Odongo og Apiyo hjelpte bestemora si med gjeremåla i huset. Dei henta vatn og ved. Dei samla egg frå hønene og plukka grønsaker frå kjøkkenhagen.
@@ -52,7 +52,7 @@ Då dagen var omme, drakk dei krydra te saman. Dei hjelpte bestemor med å telja
 Men snart var ferien over og borna måtte dra tilbake til byen. Nyar-Kanyada gav Odongo ei skyggelue og Apiyo ein genser. Ho pakka mat for reisa deira.
 
 ##
-Då faren deira kom for å henta dei, ville dei ikkje dra. Borna trygla Nyar-Kanyada om å verta med dei til byen. Ho smilte og sa: "Eg er for gammal for byen. Eg skal venta på at de kjem tilbake til landsbyen min."
+Då far deira kom for å henta dei, ville dei ikkje dra. Borna trygla Nyar-Kanyada om å verta med dei til byen. Ho smilte og sa: "Eg er for gammal for byen. Eg skal venta på at de kjem tilbake til landsbyen min."
 
 ##
 Odongo og Apiyo klemde henne hardt og tok farvel.
