@@ -28,13 +28,13 @@ Folk skar seg på glasbrot som folk hadde slengt frå seg.
 Så ein dag tørka vatnet i pumpa opp og behaldarane våre vart tomme.
 
 ##
-Faren min gjekk frå hus til hus for å be folk delta på eit folkemøte.
+Far min gjekk frå hus til hus for å be folk delta på eit folkemøte.
 
 ##
 Folk samla seg under eit stort tre og lytta.
 
 ##
-Faren min reiste seg og sa: "Vi må samarbeida for å løysa problema våre."
+Far min reiste seg og sa: "Vi må samarbeida for å løysa problema våre."
 
 ##
 Åtteårige Juma, som sat på stammen til eit tre, ropte: "Eg kan hjelpa til med å samla søppel."
