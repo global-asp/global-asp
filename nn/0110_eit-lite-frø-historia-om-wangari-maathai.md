@@ -34,7 +34,7 @@ Tida gjekk og dei nye trea voks og vart til skog, og det kom vatn i elvene igjen
 Wangari hadde arbeidd hardt. Folk over heile verda la merke til det og dei gav henne ein berømt pris. Han vert kalla Nobels fredspris. Ho vart den første afrikanske kvinna som fekk han.
 
 ##
-Wangari døydde i 2011, men vi kan tenkja på ho kvar gong vi ser eit vent tre.
+Wangari døydde i 2011, men vi kan tenkja på henne kvar gong vi ser eit vent tre.
 
 ##
 * License: [CC-BY]
