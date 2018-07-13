@@ -13,7 +13,7 @@ Sakima kunne mange ting som andre seksåringar ikkje kunne. Til dømes kunne han
 Sakima sine foreldre jobba i huset til den rike mannen. Dei drog tidleg om morgonen og kom tilbake seint på kvelden. Sakima vart igjen saman med veslesystera si.
 
 ##
-Sakima elska å synga songar. Ein dag spurde mora hans han: "Kor har du lært desse songane, Sakima?"
+Sakima elska å synga songar. Ein dag spurde mor hans han: "Kor har du lært desse songane, Sakima?"
 
 ##
 Sakima svara: "Dei kjem berre, mamma. Eg høyrer dei i hovudet mitt og så syng eg."
