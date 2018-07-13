@@ -4,7 +4,7 @@
 Tingi budde saman med bestemora si.
 
 ##
-Han brukte å passa på kyrne med ho.
+Han brukte å passa på kyrne med henne.
 
 ##
 Ein dag kom soldatane.
