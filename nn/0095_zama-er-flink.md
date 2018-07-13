@@ -1,7 +1,7 @@
 # Zama er flink!
 
 ##
-Veslebroren min søv veldig seint. Eg vaknar tidleg fordi eg er flink!
+Veslebror min søv veldig seint. Eg vaknar tidleg fordi eg er flink!
 
 ##
 Eg er ho som slepp sola inn.
