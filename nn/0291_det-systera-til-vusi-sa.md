@@ -7,7 +7,7 @@ Tidleg ein morgon ropte bestemora til Vusi på han: "Vusi, ver snill og ta med d
 På veg til foreldra sine møtte Vusi to gutar som plukka frukt. Éin gut snappa egget frå Vusi og kasta det på eit tre. Egget knuste.
 
 ##
-"Kva har du gjort?" ropte Vusi. "Det egget var meint for ei kake. Kaka var til bryllaupet til systera mi. Kva kjem syster mi til å seia viss det ikkje vert noka bryllaupskake?"
+"Kva har du gjort?" ropte Vusi. "Det egget var meint for ei kake. Kaka var til bryllaupet til syster mi. Kva kjem syster mi til å seia viss det ikkje vert noka bryllaupskake?"
 
 ##
 Gutane var lei seg for at dei erta Vusi. "Vi kan ikkje hjelpa deg med kaka, men her er ein kjepp til syster di", sa han eine. Vusi heldt fram på reisa.
