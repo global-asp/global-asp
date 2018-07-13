@@ -25,7 +25,7 @@ Neste dag, då bestemor kom for å vitja mora mi, skunda eg meg av garde til hus
 Neste dag medan bestemor var i kjøkkenhagen og plukka grønsaker, sneik eg meg inn og titta på bananane. Nesten alle var modne. Eg kunne ikkje la vera å ta ein klase med fire. I det eg lista meg mot døra, høyrde eg bestemor hosta utanfor. Eg rekte så vidt å gøyma bananane under kjolen og gjekk forbi henne.
 
 ##
-Neste dag var det marknadsdag. Bestemor stod tidleg opp. Ho tok alltid med modne bananar og maniok for å selja på marknaden. Eg skunda meg ikkje for å vitja ho den dagen. Men eg kunne ikkje vika unna ho veldig lenge.
+Neste dag var det marknadsdag. Bestemor stod tidleg opp. Ho tok alltid med modne bananar og maniok for å selja på marknaden. Eg skunda meg ikkje for å vitja henne den dagen. Men eg kunne ikkje vika unna ho veldig lenge.
 
 ##
 Seinare den kvelden sende mor, far og bestemor bod etter meg. Eg visste kvifor. Då eg la meg til å sova den natta, visste eg at eg ikkje kunne stela igjen, ikkje frå bestemor, ikkje frå foreldra mine, og definitivt ikkje frå nokon andre.
