@@ -19,7 +19,7 @@ To dagar seinare bad bestemor meg om å henta stokken hennar frå soverommet. S�
 Stemma til bestemor skremde meg då ho ropte: "Kva held du på med?" "Skund deg og ta med stokken." Eg skunda meg ut med stokken hennar. "Kva er det du smiler for?" spurde bestemor. Spørsmålet hennar fekk meg til å innsjå at eg enno smilte over oppdaginga av den magiske staden hennar.
 
 ##
-Neste dag, då bestemor kom for å vitja mora mi, skunda eg meg av garde til huset hennar for å sjekka bananane ein gong til. Det var ein klase veldig modne bananar der. Eg tok éin og gøymde den i kjolen min. Etter at eg hadde dekt korga, gjekk eg bak huset og åt den fort. Det var den søtaste bananen eg nokosinne hadde smakt.
+Neste dag, då bestemor kom for å vitja mor mi, skunda eg meg av garde til huset hennar for å sjekka bananane ein gong til. Det var ein klase veldig modne bananar der. Eg tok éin og gøymde den i kjolen min. Etter at eg hadde dekt korga, gjekk eg bak huset og åt den fort. Det var den søtaste bananen eg nokosinne hadde smakt.
 
 ##
 Neste dag medan bestemor var i kjøkkenhagen og plukka grønsaker, sneik eg meg inn og titta på bananane. Nesten alle var modne. Eg kunne ikkje la vera å ta ein klase med fire. I det eg lista meg mot døra, høyrde eg bestemor hosta utanfor. Eg rekte så vidt å gøyma bananane under kjolen og gjekk forbi henne.
