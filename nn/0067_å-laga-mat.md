@@ -19,7 +19,7 @@ Eg kuttar opp squashen.
 Eg hakkar spinaten.
 
 ##
-Mora mi hakkar løken.
+Mor mi hakkar løken.
 
 ##
 Hakka løk får meg til å gråta.
