@@ -1,7 +1,7 @@
 # Eit lite frø: Historia om Wangari Maathai
 
 ##
-I ein landsby ved foten av Mount Kenya i Aust-Afrika arbeidde ei lita jente saman med mora si på åkeren. Wangari heitte ho.
+I ein landsby ved foten av Mount Kenya i Aust-Afrika arbeidde ei lita jente saman med mor si på åkeren. Wangari heitte ho.
 
 ##
 Wangari var glad i å vera ute. Familien hadde ein kjøkkenhage. Der vende ho grønsakshagen med den store kniven sin. Ho stakk små frø ned i den varme jorda.
