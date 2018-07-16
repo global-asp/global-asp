@@ -7,19 +7,19 @@ Sjå på dyra.
 Kua seier "mø".
 
 ##
-Geita seier "mæ".
+Geita seier "mæ, mæ".
 
 ##
 Hesten seier "vrinsk".
 
 ##
-Grisen seier "nøff, nøff".
+Grisen seier "nøff".
 
 ##
 Høna seier "klukk, klukk".
 
 ##
-Hunden seier "voff, voff".
+Hunden seier "voff".
 
 ##
 Bonden seier "hysj!"
