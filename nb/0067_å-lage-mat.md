@@ -13,7 +13,7 @@ Jeg river gulrøttene.
 Jeg vasker bønnene.
 
 ##
-Jeg kutter opp squashen.
+Jeg kutter opp gresskaret.
 
 ##
 Jeg hakker spinaten.
