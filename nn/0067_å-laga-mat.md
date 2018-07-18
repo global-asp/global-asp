@@ -13,7 +13,7 @@ Eg riv gulrøtene.
 Eg vaskar bønene.
 
 ##
-Eg kuttar opp squashen.
+Eg kuttar opp graskaret.
 
 ##
 Eg hakkar spinaten.
