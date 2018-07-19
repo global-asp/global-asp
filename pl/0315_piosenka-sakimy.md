@@ -16,22 +16,22 @@ Rodzice Sakima pracowali na lądzie bogacza. Wychodzili z domu wcześnie rano i 
 Sakima uwielbiał śpiewać. Pewnego dnia matka zapytała go: „Skąd znasz te wszystkie piosenki?”
 
 ##
-„Słyszę je w mojej głowie i śpiewam, po prostu przychodzą do mnie” - odpowiedział chłopiec.
+„Słyszę je w mojej głowie i śpiewam, po prostu przychodzą do mnie” – odpowiedział chłopiec.
 
 ##
 Sakima lubił śpiewać dla młodszej siostry, szczególnie, gdy była głodna. Siostra słuchała, gdy śpiewał swoją ulubioną piosenkę i kołysała się w jej rytm.
 
 ##
-„Sakima, czy możesz zaśpiewać tę piosenkę jeszcze raz?” - prosiła. Sakima zgadzał się i śpiewał piosenkę od początku.
+„Sakima, czy możesz zaśpiewać tę piosenkę jeszcze raz?” – prosiła. Sakima zgadzał się i śpiewał piosenkę od początku.
 
 ##
 Pewnego dnia, gdy rodzice wrócili do domu byli bardzo małomówni. Sakima czuł, że coś się stało.
 
 ##
-„Mamo, tato, co się stało?” - zapytał chłopiec. Okazało się, że zaginął syn bogacza. Bogacz był załamany.
+„Mamo, tato, co się stało?” – zapytał chłopiec. Okazało się, że zaginął syn bogacza. Bogacz był załamany.
 
 ##
-„Zaśpiewam dla niego. Może znowu będzie szczęśliwy” - Sakima zaproponował. Rodzicom nie podobał się ten pomysł: „To jest bardzo bogaty człowiek, a ty jesteś tylko niewidomym chłopcem. Naprawdę myślisz, że możesz pomóc bogaczowi?”
+„Zaśpiewam dla niego. Może znowu będzie szczęśliwy” – Sakima zaproponował. Rodzicom nie podobał się ten pomysł: „To jest bardzo bogaty człowiek, a ty jesteś tylko niewidomym chłopcem. Naprawdę myślisz, że możesz pomóc bogaczowi?”
 
 ##
 Sakima nie poddawał się. Jego siostra postanowiła go wesprzeć: „Piosenki Sakima pomagają mi, gdy jestem głodna. Pomogą również bogaczowi!”

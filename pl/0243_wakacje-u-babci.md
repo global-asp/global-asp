@@ -1,7 +1,7 @@
 # Wakacje u babci
 
 ##
-Odongo i Apiyo mieszkali z ojcem w mieście. Nie mogli doczekać się wakacji - nie tylko dlatego, że w czasie wakacji szkoła była zamknięta, ale przede wszystkim dlatego, że w czasie wakacji odwiedzali babcię. Babcia mieszkała w wiosce rybackiej nieopodal jeziora.
+Odongo i Apiyo mieszkali z ojcem w mieście. Nie mogli doczekać się wakacji – nie tylko dlatego, że w czasie wakacji szkoła była zamknięta, ale przede wszystkim dlatego, że w czasie wakacji odwiedzali babcię. Babcia mieszkała w wiosce rybackiej nieopodal jeziora.
 
 ##
 Odongo i Apiyo byli tak przejęci wyjazdem do babci, że nie mogli zasnąć. Poprzedniego wieczoru spakowali się i przygotowali na długą podróż do wioski. Całą noc rozmawiali o wakacjach.
@@ -16,7 +16,7 @@ Po pewnym czasie dzieci zmęczyły się i zasnęły.
 Gdy dotarli na miejsce, Tata obudził Odongo i Apiyo. Babcia Nyar-Kanyada odpoczywała na macie pod drzewem. Była piękną i silną kobietą. Nyar-Kanyada w języku Luo oznacza „córka ludu Kanyada”.
 
 ##
-Nyar-Kanyada powitała ich w swoim domu tańcząc i śpiewając z radości. Jej wnuki były przejęte, gdy wręczały jej podarunki z miasta. „Najpierw otwórz mój prezent!” - powiedział Odongo. „Nie, najpierw mój!” - przekrzykiwała go Apiyo.
+Nyar-Kanyada powitała ich w swoim domu tańcząc i śpiewając z radości. Jej wnuki były przejęte, gdy wręczały jej podarunki z miasta. „Najpierw otwórz mój prezent!” – powiedział Odongo. „Nie, najpierw mój!” – przekrzykiwała go Apiyo.
 
 ##
 Po otworzeniu prezentów, Nyar-Kanyada pobłogosławiła wnuki w tradycyjny sposób.

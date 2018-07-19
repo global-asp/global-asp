@@ -7,7 +7,7 @@ Mała dziewczynka zobaczyła tajemniczy kształt w oddali.
 Gdy kształt przybliżył się, dziewczynka zobaczyła, że była to kobieta w zaawansowanej ciąży.
 
 ##
-Nieśmiała ale dzielna dziewczynka podeszła bliżej do kobiety. „Zostań z nami. Zaopiekujemy się Tobą i dzieckiem” - powiedzieli ludzie, z którymi była dziewczynka.
+Nieśmiała ale dzielna dziewczynka podeszła bliżej do kobiety. „Zostań z nami. Zaopiekujemy się Tobą i dzieckiem” – powiedzieli ludzie, z którymi była dziewczynka.
 
 ##
 Nadszedł dzień narodzin dziecka: „Pchaj! Przynieście koce i wodę! Pchaaaaaaj!”
@@ -16,7 +16,7 @@ Nadszedł dzień narodzin dziecka: „Pchaj! Przynieście koce i wodę! Pchaaaaa
 Ku zdziwieniu wszystkich, zamiast dziecka, kobieta urodziła osiołka!
 
 ##
-Ludzie zaczęli się kłócić: „Obiecaliśmy tej kobiecie i jej dziecku bezpieczeństwo, i tak zrobimy” - mówili jedni. „Przyniosą nam pecha!” - krzyczeli inni.
+Ludzie zaczęli się kłócić: „Obiecaliśmy tej kobiecie i jej dziecku bezpieczeństwo, i tak zrobimy” – mówili jedni. „Przyniosą nam pecha!” – krzyczeli inni.
 
 ##
 Kobieta poczuła się samotna. Nie wiedziała co ze sobą zrobić i co zrobić z tym dziwnym oślim dzieckiem.
@@ -34,7 +34,7 @@ Zagubienie i złość rosły w osiołku. Nie wolno mu było robić tego i tamteg
 Osiołek poczuł się bardzo winny. Zaczął uciekać, najszybciej jak potrafił i najdalej jak mógł.
 
 ##
-Kiedy wreszcie się zatrzymał, było już ciemno. „I-o? I-o?” - wyszeptał. „I-o? I-o?” - odpowiedziało echo. Był sam. Zwinął się w kulkę i zapadł w głęboki, niespokojny sen.
+Kiedy wreszcie się zatrzymał, było już ciemno. „I-o? I-o?” – wyszeptał. „I-o? I-o?” – odpowiedziało echo. Był sam. Zwinął się w kulkę i zapadł w głęboki, niespokojny sen.
 
 ##
 Osiołek obudził się i zauważył dziwnego staruszka, który mu się przyglądał. Spojrzał w oczy staruszka i poczuł iskierkę nadziei.

@@ -22,7 +22,7 @@ Khalai mówi do żywopłotu, który otacza jej szkołę: „Proszę rośnij siln
 Gdy Khalai wraca ze szkoły, odwiedza drzewo pomarańczowe: „Czy twoje owoce są już dojrzałe?”
 
 ##
-„Pomarańcze są nadal zielone” - wzdycha dziewczynka. „Do zobaczenia jutro” - mówi Khalai. „Może jutro podarujesz mi dojrzałe i soczyste owoce”.
+„Pomarańcze są nadal zielone” – wzdycha dziewczynka. „Do zobaczenia jutro” – mówi Khalai. „Może jutro podarujesz mi dojrzałe i soczyste owoce”.
 
 ##
 * License: [CC-BY]
