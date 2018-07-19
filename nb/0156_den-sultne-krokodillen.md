@@ -4,7 +4,7 @@
 Det var en gang en veldig sulten krokodille.
 
 ##
-Han lette etter mat sakte og lydløst. Og så …
+Han lette etter mat sakte og lydløst. Og så ...
 
 ##
 Pang! Krokodillen slår til!

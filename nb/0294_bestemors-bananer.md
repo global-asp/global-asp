@@ -7,10 +7,10 @@ Bestemors kjøkkenhage var full av durra, hirse og maniok. Men best av alt var b
 En dag så jeg en stor stråkurv som stod plassert utenfor huset til bestemor. Da jeg spurte hva den var ment for, fikk jeg svaret: "Det er den magiske kurven min." Ved siden av kurven var det flere bananblader som bestemor snudde fra tid til annen. Jeg var nysgjerrig: "Hva bruker du bladene til, bestemor?" spurte jeg. Det eneste svaret jeg fikk, var: "De er de magiske bladene mine."
 
 ##
-Det var så interessant å se på bestemor, bananene, bananbladene og den store stråkurven. Men bestemor sendte meg av gårde til mamma for et ærend. "Bestemor, vær så snill, la meg få se på mens du forbereder …" "Ikke vær så sta, jenta mi, gjør det du har blitt bedt om", insisterte hun. Jeg sprang av gårde.
+Det var så interessant å se på bestemor, bananene, bananbladene og den store stråkurven. Men bestemor sendte meg av gårde til mamma for et ærend. "Bestemor, vær så snill, la meg få se på mens du forbereder ..." "Ikke vær så sta, jenta mi, gjør det du har blitt bedt om", insisterte hun. Jeg sprang av gårde.
 
 ##
-Da jeg kom tilbake, satt bestemor utenfor, men med verken kurven eller bananene. "Bestemor, hvor er kurven, hvor er bananene, og hvor …" Men det eneste svaret jeg fikk, var: "De er på det magiske stedet mitt." Det var så skuffende!
+Da jeg kom tilbake, satt bestemor utenfor, men med verken kurven eller bananene. "Bestemor, hvor er kurven, hvor er bananene, og hvor ..." Men det eneste svaret jeg fikk, var: "De er på det magiske stedet mitt." Det var så skuffende!
 
 ##
 To dager senere ba bestemor meg om å hente stokken hennes fra soverommet. Så snart jeg åpnet døra, ble jeg møtt av den sterke lukten av modne bananer. I det innerste rommet var bestemors store magiske stråkurv. Den var godt gjemt av et gammelt teppe. Jeg løftet det og luktet på den vidunderlige duften.
