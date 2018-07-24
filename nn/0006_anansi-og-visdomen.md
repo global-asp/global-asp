@@ -7,7 +7,7 @@ For lenge, lenge sidan visste ikkje folk nokon ting. Dei visste ikkje korleis ei
 Ein dag bestemte Nyame seg for å gje krukka med visdom til Anansi. Kvar gong Anansi såg i krukka lærde han noko nytt. Det var spennande!
 
 ##
-Grådige Anansi tenkte: "Eg gøymer krukka i toppen av eit høgt tre. Sånn kan eg ha han heilt for meg sjølv!" Han spann ein langt tråd, batt han rundt leirkrukka og knytte han om livet. Og byrja å klatra. Men det var vanskelig å klatra i treet med krukka som slo borti knea hans heile tida.
+Grådige Anansi tenkte: "Eg gøymer krukka i toppen av eit høgt tre. Sånn kan eg ha han heilt for meg sjølv!" Han spann ein lang tråd, batt han rundt leirkrukka og knytte han om livet. Og byrja å klatra. Men det var vanskelig å klatra i treet med krukka som slo borti knea hans heile tida.
 
 ##
 Den vesle sonen til Anansi hadde stått og sett på ved foten av treet. "Hadde det ikkje vore lettare å klatra med krukka på ryggen i staden?" sa han. Anansi prøvde å binda fast leirkrukka full av visdom på ryggen. Og då vart det jo mykje lettare.
