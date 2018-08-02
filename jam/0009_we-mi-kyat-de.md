@@ -1,25 +1,25 @@
-# We di pus de?
+# We mi kyat de?
 
 ##
-We di pus de?
+We mi kyat de?
 
 ##
-A im anda di bed?
+Im anda di bed?
 
 ##
-A im pan tap a dresa?
+Im pan tap a di kobad?
 
 ##
-A im baka kouch?
+Im de bak a di kouch?
 
 ##
-A im saida gyaabij pan?
+Im de said a di robish pan?
 
 ##
-A im iina di baaskit?
+Im de ina di baaskit?
 
 ##
-A im outsaida di ous?
+Im de outa duor?
 
 ##
 Si im ya!
@@ -28,5 +28,5 @@ Si im ya!
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Bronwen Heath
-* Translation: dohliam
+* Translation: Georgette McGlashen
 * Language: jam
