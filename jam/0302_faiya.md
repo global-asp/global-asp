@@ -4,25 +4,25 @@
 Luk, faiya!
 
 ##
-Faiya bon
+Faiya bon.
 
 ##
-Faiya kuk
+Faiya kuk.
 
 ##
-Faiya mek yu waam
+Faiya mek yu waam.
 
 ##
-Faiya gi lait
+Faiya lait op di plies.
 
 ##
 Luk, faiya!
 
 ##
-Faiya nais, nais
+Faiya nais, nais.
 
 ##
-An it powaful
+An it powaful.
 
 ##
 * License: [CC-BY]

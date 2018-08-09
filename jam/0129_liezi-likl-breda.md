@@ -1,25 +1,25 @@
 # Liezi likl breda
 
 ##
-Mi wiek op an kech di faiya
+Mi wiek op an kech op di faiya.
 
 ##
-Mi bwail som waata
+Mi bwail som waata.
 
 ##
-Mi chap op di faiyastik
+Mi chap op som ud fi di faiya.
 
 ##
-Mi stor op di pat
+Mi stor op di pat.
 
 ##
-Mi swiip di fluor
+Mi swiip aaf di fluor.
 
 ##
-Mi wash op di pliet dem
+Mi wash op di pliet dem.
 
 ##
-Wa mek mi a wok so aad...wen mi breda bizi jos a ramp?
+Wa mek mi a wok so aad... wen mi breda bizi jos a ramp?
 
 ##
 * License: [CC-BY-NC]
