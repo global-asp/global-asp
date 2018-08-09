@@ -1,4 +1,4 @@
-# Mi badi.
+# Mi badi
 
 ##
 Mi kyan ron wid it.
