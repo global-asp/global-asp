@@ -1,28 +1,28 @@
 # Weda buk
 
 ##
-It jrai
+It jrai.
 
 ##
-Di son at
+Di son at.
 
 ##
-Evi briiz a bluo
+Evi briiz a bluo.
 
 ##
-Di skai blak op
+Di skai blak op.
 
 ##
-It kuol
+It kuol.
 
 ##
-Rien a faal
+Rien a faal.
 
 ##
-Tonda a ruol
+Tonda a ruol.
 
 ##
-Mi si wan rienbuo
+Mi si wan rienbuo.
 
 ##
 * License: [CC-BY-NC]
