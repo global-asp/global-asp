@@ -1,7 +1,7 @@
 # Az ügyes Zama
 
 ##
-Az öcsém nagyon sokáig alszik. Én korán kelek, mert én ügyes vagyok!
+Az öcsém nagyon sokáig alszik. Én korán kelek, mert ügyes vagyok!
 
 ##
 Én engedem be a napsugarakat.
@@ -13,7 +13,7 @@ Az öcsém nagyon sokáig alszik. Én korán kelek, mert én ügyes vagyok!
 Én már magamtól mosakodom, nincs szükségem segítségre.
 
 ##
-Nekem a hideg víz is jó és az a kék szappan is, ami olyan büdös.
+Nekem a hideg víz is jó és a büdös kék szappan is megfelel.
 
 ##
 "Ne felejtsd el a fogadat!" - figyelmeztet anya. "Soha, én ugyan nem!"
@@ -31,10 +31,10 @@ Be tudom gombolni a ruhámat. Meg tudom kötni a cipőmet.
 És el tudom mesélni az öcsémnek az iskolai híreket.
 
 ##
-Az osztályban pedig nagyon igyekezek.
+Az osztályban pedig nagyon igyekszek.
 
 ##
-Rengeteg dolgom van minden nap! De amit a legjobban szeretek: az játszani és játszani!
+Rengeteg dolgom van minden nap! De tudod mit szeretek a legjobban? Játszani és játszani!
 
 ##
 * License: [CC-BY]

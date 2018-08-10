@@ -31,7 +31,7 @@ Az egyik katona rálépett a fiúra, de Tingi csendben maradt.
 Tingi és a nagymamája csak akkor jöttek elő, amikor biztonságban voltak.
 
 ##
-Csendesen hazalopództak.
+Majs csendesen hazalopództak.
 
 ##
 * License: [CC-BY]

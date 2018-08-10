@@ -1,10 +1,10 @@
 # Mit csinálsz?
 
 ##
-Én énekelek.
+Énekelek.
 
 ##
-Ő integet.
+Integet.
 
 ##
 Tapsolok.

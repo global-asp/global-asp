@@ -19,7 +19,7 @@ A fiú nagyon szeretett énekelni. "Hol tanulod ezeket a dalokat Sakima?" - kér
 "Csak úgy jönnek. A fejemben hallom, majd eléneklem őket." - válaszolta Sakima.
 
 ##
-Sakima szeretett a húgának énekelni, főleg akkor, amikor a lány éhes volt. A húga pedig szívesen hallgatta tőle a kedvenc dalát. Táncolt is a nyugtató dallamokra.
+Szeretett a húgának énekelni, főleg akkor, amikor a lány éhes volt. A húga pedig szívesen hallgatta tőle a kedvenc dalát. Táncolt is a nyugtató dallamokra.
 
 ##
 "El tudod még egyszer énekelni Sakima?" - kérlelte a fiút testvére. Sakima újra és újra elénekelte a dalt.
@@ -46,10 +46,10 @@ Egy ablak alá állt, és elkezdte énekelni a kedvenc dalát. Hamarosan a gazda
 A munkások is abbahagyták, amit éppen csináltak, és Sakima gyönyörű dalát hallgatták. "Senki nem tudta megvigasztalni a főnököt." - szólalt meg egyikük - "Honnan gondolja ez a vak fiú, hogy majd neki sikerülni fog?"
 
 ##
-Sakima befejezte a dalát, és már indulni készült, amikor a gazdag ember kirohant utána. "Kérlek, énekelj még egyet!" - mondta.
+Sakima befejezte a dalát, és már indulni készült, amikor a gazdag ember utána rohant. "Kérlek, énekelj még egyet!" - mondta.
 
 ##
-Ebben a pillanatban jelent meg két férfi hordágyat cipelve. Összeverve, az út szélén hagyva találták meg a gazdag ember fiát.
+Ebben a pillanatban megjelent két férfi, hordágyat cipelve. Összeverve, az út szélén hagyva találták meg a gazdag ember fiát.
 
 ##
 A gazdag ember nagyon boldog volt, hogy újra láthatja gyermekét. Amiért Sakima megvigasztalta őt, jutalomképpen fiával együtt a vak fiút is kórházba vitte. Így Sakima visszanyerhette a látását.

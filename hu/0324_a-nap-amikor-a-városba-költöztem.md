@@ -1,4 +1,4 @@
-# A nap, amikor elmentem a városba
+# A nap, amikor a városba költöztem
 
 ##
 A falum kis buszmegállója tele volt emberekkel és zsúfolt buszokkal. A földön még rengeteg csomag volt, amit be kellett pakolni. A sofőrök a buszuk úti céljának nevét kiabálták.
@@ -34,10 +34,10 @@ Az árusok egymást összenyomva szálltak le a buszról. Néhányan éppen a vi
 Ahogy a busz elhagyta a buszmegállót, kibámultam az ablakon. Azon tűnődtem, hogy vajon visszajövök-e még a falumba.
 
 ##
-Miközben utaztunk, egyre melegebb lett a buszban. Becsuktam a szememet és abban reménykedtem, hogy el tudok majd aludni.
+Miközben utaztunk, egyre melegebb lett a buszon. Becsuktam a szememet és abban reménykedtem, hogy el tudok majd aludni.
 
 ##
-Álmomban visszatértem az otthonomba. Vajon anyukám biztonságban lesz? A nyulaim hoznak pénzt a házhoz? Az öcsém meg fogja locsolni fáimat?
+Álmomban visszatértem az otthonomba. Vajon anyukám biztonságban lesz? A nyulaim hoznak pénzt a házhoz? Az öcsém meg fogja locsolni a fáimat?
 
 ##
 Útközben próbáltam megtanulni a hely nevét, ahol a nagybátyám élt a városban. Még álmomban is ezt motyogtam.

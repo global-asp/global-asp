@@ -22,7 +22,7 @@ Nyolc béka és kilenc hal úszik a vízben.
 Egy oroszlán bömböl. Ő is inni akar. Ki fél az oroszlántól?
 
 ##
-Egy elefánt vizet iszik az oroszlánnal.
+Egy elefánt az oroszlánnal iszik vizet.
 
 ##
 * License: [CC-BY]

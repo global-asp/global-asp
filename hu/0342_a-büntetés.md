@@ -4,37 +4,37 @@
 Egy nap anya sok gyümölcsöt hozott haza.
 
 ##
-"Mikor ehetünk gyümölcsöt?" - kérdeztük. "Majd ma este ehettek." - válaszolta anya.
+"Mikor ehetünk gyümölcsöt?" - kérdezzük. "Majd este ehettek." - válaszolja anya.
 
 ##
-A bátyám, Rahim nagyon mohó volt. Az összes gyümölcsöt megkóstolta. Sokat meg is evett.
+A bátyám, Rahim nagyon mohó. Az összes gyümölcsöt megkóstolja. Sokat meg is eszik.
 
 ##
-"Nézd mit csinált Rahim!" - kiáltotta az öcsém. "Rahim rossz és önző." - mondtam.
+"Nézd mit csinált Rahim!" - kiáltotja az öcsém. "Rahim rossz és önző." - mondom.
 
 ##
 Anya haragszik Rahimra.
 
 ##
-Mi is haragszunk Rahimra. De Rahim nem bánta meg, amit tett.
+Mi is haragszunk Rahimra. De Rahim nem sajnálja.
 
 ##
-"Nem fogod megbüntetni Rahimot?" - kérdezte az öcsém.
+"Nem fogod megbüntetni Rahimot?" - kérdezzi az öcsém.
 
 ##
-"Rahim, hamarosan úgyis meg fogod bánni, amit tettél!" - figyelmeztette anya.
+"Rahim, hamarosan úgyis sajnálni fogod, ami tettél!" - figyelmezteti anya.
 
 ##
-Rahim rosszul kezdte érezni magát.
+Rahim rosszul kezdi érezni magát.
 
 ##
-"Nagyon fáj a hasam." - suttogta Rahim.
+"Nagyon fáj a hasam." - suttogja Rahim.
 
 ##
-Anya tudta, hogy ez fog történni. A gyümölcs megbüntette Rahimot!
+Anya tudta, hogy ez fog történni. A gyümölcs megbünteti Rahimot!
 
 ##
-Később, Rahim bocsánatot kért tőlünk. "Soha többet nem leszek ilyen mohó!" - ígérte meg nekünk. És mi mind hittünk neki.
+Később, Rahim bocsánatot kér tőlünk. "Soha többet nem leszek ilyen mohó!" - ígéri meg nekünk. És mi mind hiszünk neki.
 
 ##
 * License: [CC-BY]

@@ -10,22 +10,22 @@ A gyerekek sohasem veszekedtek. Otthon és a földeken is segítettek szüleikne
 Azonban nem mehettek a tűz közelébe.
 
 ##
-Minden munkájukat éjszaka kellett elvégezniük, mert a gyerekek viaszból voltak.
+Minden munkájukat éjszaka kellett végezniük, mert a gyerekek viaszból voltak.
 
 ##
-A legkisebb fiú nagyon vágyott rá, hogy egyszer láthassa a napot.
+A legkisebb fiú nagyon vágyott rá, hogy egyszer lássa a napot.
 
 ##
-Egy nap ez a vágyakozása eluralkodott rajta. Hiába figyelmeztették testvérei...
+Egy nap ez a vágy eluralkodott rajta. Hiába figyelmeztették testvérei...
 
 ##
-Már túl késő volt. Elolvadt a forró napon.
+Már túl késő volt! Elolvadt a forró napon.
 
 ##
-A viaszgyerekek látták, ahogy testvérük elolvadt és nagyon elszomorodtak.
+A viaszgyermekek nagyon szomorúak voltak, mert látták, hogy testvérük elolvadt.
 
 ##
-Hirtelen jó ötletük támadt. Az olvadt viaszból madarat formáztak.
+Hirtelen jó ötletük támadt. Az olvadt viaszból madarat formáltak.
 
 ##
 Majd elvitték a madárrá formált bátyjukat egy magas hegyre.

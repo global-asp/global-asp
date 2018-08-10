@@ -10,10 +10,10 @@ Elmegy a piacra, hogy eladja a banánt.
 A piacon az emberek gyümölcsöket vesznek.
 
 ##
-De senki sem vesz Tomtól banánt. Inkább a nőktől vesznek gyümölcsöt.
+De senki sem vesz Tomtól banánt. Inkább az asszonyoktól vesznek gyümölcsöt.
 
 ##
-"Nálunk csak a nők árulnak gyümölcsöt" - mondják az emberek. "Milyen férfi ez?"- kérdezik.
+"Nálunk csak az asszonyok árulnak gyümölcsöt" - mondják az emberek. "Milyen férfi ez?"- kérdezik.
 
 ##
 De Tom nem adja fel. "Vegyenek a banánomból! Vegyenek az érett, édes banánomból!" - hívogatja a vevőket.

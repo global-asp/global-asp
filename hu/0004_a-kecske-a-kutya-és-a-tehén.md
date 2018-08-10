@@ -16,13 +16,13 @@ A sofőr éppen a kutya pénzét váltotta fel, amikor a kecske fizetés nélkü
 A sofőr méregbe gurult. Elhajtott anélkül, hogy a visszajárót oda adta volna a kutyának.
 
 ##
-Ezért van az még ma is, hogy a kutya az autók felé rohan, hogy bekukucskáljon és megtalálja azt a sofőrt, aki tartozik neki a visszajáróval.
+Ezért van az még ma is, hogy a kutya rohan az autók felé, hogy bekukucskáljon és megtalálja azt a sofőrt, aki tartozik neki a visszajáróval.
 
 ##
-A kecske már az autó hangját hallva elrohan. Fél, hogy letartóztatják, mert nem fizette ki a részét.
+A kecske pedig már az autó hangját hallva elrohan. Fél, hogy letartóztatják, mert nem fizette ki a részét.
 
 ##
-A tehenet pedig egyáltalán nem érdekli, hogy jön az autó. Szépen lassan sétál át az úton, hiszen ő kifizette az utazást.
+A tehenet viszont egyáltalán nem érdekli, hogy jön az autó. Szépen lassan sétál át az úton, hiszen ő kifizette az utazást.
 
 ##
 * License: [CC-BY]

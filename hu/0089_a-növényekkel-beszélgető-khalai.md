@@ -1,7 +1,7 @@
-# Khalai a növényekkel beszél
+# A növényekkel beszélgető Khalai
 
 ##
-Ő Khalai. Hét éves. Lubukusu nyelven a neve azt jelenti, hogy "a jó".
+Ő Khalai. Hét éves. Lubukusu nyelven a neve azt jelenti, hogy "a jóságos".
 
 ##
 Khalai felkel és így szól a narancsfához: "Kérlek narancsfa, nőj nagyra és adj nekünk sok érett narancsot!"
@@ -19,10 +19,10 @@ Az iskola udvarának közepén álló fához pedig így szól: "Kérlek fa, növ
 Khalai az iskola körül lévő sövényhez szól: "Kérlek legyél erős, állítsd meg a rossz embereket, hogy nehogy bejöjjenek!"
 
 ##
-Amikor Khalai hazaér az iskolából, meglátogatja a narancsfát. "Érettek már a narancaid?" - kérdezi tőle.
+Amikor Khalai hazaér az iskolából, meglátogatja a narancsfát. "Érettek már a narancsaid?" - kérdezi tőle.
 
 ##
-"A narancsok még zöldek" - sóhajt Khalai - "Holnap is meglátogatlak! Talán akkor majd lesz egy érett narancsod nekem."
+"Zöldek még a narancsok!" - sóhajt Khalai - "Holnap is meglátogatlak! Talán akkor majd lesz egy érett narancsod nekem."
 
 ##
 * License: [CC-BY]

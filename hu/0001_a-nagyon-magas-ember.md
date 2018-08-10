@@ -31,7 +31,7 @@ Vásárolt egy nagyon magas biciklit.
 Nagyon magas széken ült és nagyon hosszú villával evett.
 
 ##
-Elhagyta otthonát és egy nagy erdőben élt tovább. Sok-sok évig élt még.
+Elhagyta otthonát és egy nagy erdőben sokáig élt még.
 
 ##
 * License: [CC-BY]

@@ -7,7 +7,7 @@ Egy kislány volt az első, aki meglátta a távolból közeledő rejtélyes ala
 Ahogy az alak közelebb ért, a kislány észrevette, hogy egy várandós nő közeledik.
 
 ##
-A kislány félénken közelebb ment a nőhöz. "Be kell fogadnunk magunk közé." - határozta el a kislány népe - "Biztonságba helyezzük őt és a gyermekét is."
+Félénken közelebb ment a nőhöz. "Be kell fogadnunk magunk közé." - határozta el a kislány népe - "Biztonságba helyezzük őt és a gyermekét is."
 
 ##
 Hamarosan megkezdődött a szülés. "Nyomj!" "Hozz takarót!" "Vizet!" "Nyomjjjj!!!"
@@ -19,7 +19,7 @@ De amikor meglátták a kisbabát, mindenki ijedve ugrott hátra. "Egy szamár?!
 Az emberek veszekedni kezdtek. "Azt ígértük, hogy biztonságba helyezzük az anyát és gyermekét, ezt is kell tennünk." - mondták néhányan. "De szerencsétlenséget fognak hozni nekünk!" - mondták mások.
 
 ##
-Nemsokára a nő megint egyedül maradt. Azon töprengett, hogy mit tegyen ezzel a furcsa gyermekkel és mit tegyen magával.
+Nemsokára a nő megint egyedül maradt. Azon töprengett, hogy mit tegyen ezzel a furcsa gyermekkel, és mit tegyen magával.
 
 ##
 Végül elfogadta, hogy a szamár az ő gyermeke. Ő pedig a szamár anyja.
@@ -34,25 +34,25 @@ A szamár összezavarodott és nagyon mérges lett. Ezt sem, azt sem tudta jól 
 A szamár nagyon elszégyellte magát. Olyan gyorsan futott el, ahogyan csak tudott.
 
 ##
-Csak akkor állt meg, amikor már besötétedett. A szamár elveszett. "IÁ?" - suttogta a sötétben - "IÁ?" - válaszolt a visszhang. Egyedül volt. A földön összegömbölyödött és nagyon nehezen, de végül elaludt.
+Csak akkor állt meg, amikor már besötétedett. A szamár eltévedt. "IÁ?" - suttogta a sötétben - "IÁ?" - válaszolt a visszhang. Egyedül volt. A földön összegömbölyödött és nagyon nehezen, de végül elaludt.
 
 ##
-Arra ébredt fel, hogy egy furcsa öregember bámulja. Belenézett az ember szemébe és reménykedni kezdett.
+Arra ébredt fel, hogy egy furcsa öregember bámulja. Belenézett az ember szemébe, és reménykedni kezdett.
 
 ##
-Az öregember magával vitte a szamarat, és sok a túléléshez szükséges dolgot tanított meg neki. A szamár szívesen hallgatta az öregember tanításait, és az öregember is szívesen hallgatta a szamarat. Segítettek egymásnak, és sokat nevettek együtt.
+Az öregember magával vitte, és sok a túléléshez szükséges dolgot tanított meg neki. A szamár szívesen hallgatta tanításait, és az öregember is szívesen hallgatta a szamarat. Segítettek egymásnak, és sokat nevettek együtt.
 
 ##
 Egy reggel az öregember megkérte a szamarat, hogy vigye fel egy hegy tetejére.
 
 ##
-Aznap fent a felhők között aludtak el. A szamár azt álmodta, hogy az anyukája hívja, mert beteg. És amikor a szamár felébredt ...
+Aznap fent a felhők között aludtak el. A szamár azt álmodta, hogy az anyukája hívja, mert beteg. És amikor felébredt ...
 
 ##
-… a felhők eltűntek az öregemberrel együtt.
+… a felhők eltűntek az öreg emberrel együtt.
 
 ##
-A szamár tudta, hogy mit kell tennie.
+Tudta, hogy mit kell tennie.
 
 ##
 Megkereste az anyukáját, aki éppen az elveszett gyermekét siratta. Sokáig csak nézte egyik a másikat, majd szorosan megölelték egymást.

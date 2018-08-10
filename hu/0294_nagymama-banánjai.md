@@ -1,13 +1,13 @@
 # Nagymama banánjai
 
 ##
-Nagymama kertje csodálatos volt. Tele volt cirokkal, kölessel és maniókával. De a legjobbak mind közül a banánok voltak. Bár nagymamának sok unokája volt, titkon tudtam, hogy én voltam a kedvence. Gyakran meghívott a házába. Titkokat is elmondott nekem. De egy titkot soha nem osztott meg velem: soha nem mondta el, hogy hol érlelte a banánokat.
+Nagymama kertje csodálatos volt. Tele volt cirokkal, kölessel és maniókával. De a legjobbak mind közül a banánok voltak. Bár nagymamának sok unokája volt, titkon tudtam, hogy én voltam a kedvence. Gyakran meghívott a házába. Titkokat is elmondott nekem. De egy titkot soha nem osztott meg velem: soha sem mondta el, hogy hol érlelte a banánokat.
 
 ##
 Egy nap láttam egy nagy szalmából készült kosarat, ami nagymama kertjében volt kitéve a napra. Amikor megkérdeztem, hogy mit keres az ott, csak ezt a választ kaptam: "Az a varázskosár." A kosár mellett volt néhány banánlevél, amit nagymama időről-időre megforgatott. Nagyon kíváncsi voltam. "Nagymama, miért vannak ott a levelek?" - kérdeztem. "Azok varázslevelek." - kaptam a választ.
 
 ##
-Nagyon érdekes volt nézni nagymamát, a banánokat, a banánleveleket és a nagy szalmakosarat, de nagymama hazaküldött anyukámhoz egy feladattal. "Kérlek nagymama, hadd nézzem, hogy készíted..." "Ne legyél önfejű, csináld, amit mondtam!" - mondta. Így hát elrohantam.
+Nagyon érdekes volt nézni nagymamát, a banánokat, a banánleveleket és a nagy szalmakosarat, de nagymama hazaküldött anyukámhoz egy feladattal. "Kérlek nagymama, hadd nézzem, hogy hogyan készíted..." "Ne legyél önfejű, csináld, amit mondtam!" - mondta. Így hát elrohantam.
 
 ##
 Mire visszaértem nagymama már a banánok és a kosár nélkül ült a kertben. "Nagymama, hol van a kosár, hol vannak a banánok és hol vannak a..." De csak ennyi választ kaptam: "A varázshelyemen." Nagyon elkeseredtem!

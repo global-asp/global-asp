@@ -1,7 +1,7 @@
 # Magozwe
 
 ##
-Nairobi forgalmas városában, messze a szerető családi otthontól, élt egy csapat hajléktalan fiú. Napról napra éltek. Egy reggel összeszedték a matracaikat, amiken a hideg járdán aludtak. Hogy a hideget elűzzék, szemétből gyújtottak tüzet. Magozwe volt a legfiatalabb a fiúk között.
+Nairobi forgalmas városában, messze a szerető családi otthontól, élt egy csapat hajléktalan fiú. Napról napra éltek. Egy reggel összeszedték a matracokat, amiken a hideg járdán aludtak. Hogy a hideget elűzzék, szemétből gyújtottak tüzet. Magozwe volt a legfiatalabb a fiúk között.
 
 ##
 Amikor Magozwe szülei meghaltak, ő még csak öt éves volt. A nagybátyja fogadta magához, de ő nem foglalkozott a fiúval. Nem adott neki elég ételt és sokat dolgoztatta.
@@ -19,10 +19,10 @@ Egy nap, amikor Magozwe egy kukában turkált, talált egy régi, szakadt mesek�
 A képek egy fiú történetét mondták el, aki pilóta lett. Magozwe arra gondolt, hogy milyen jó lehet pilótának lenni. Néha a történetben lévő fiú helyébe képzelte magát.
 
 ##
-Hideg volt és Magozwe az út szélén kéregetett. Ekkor egy férfi lépett oda hozzá. "Szia! Thomas vagyok. Nem messze innen dolgozom, a munkahelyemen ehetnél valamit." - mondta a férfi. Egy sárga házra mutatott, aminek kék volt a teteje. "Elmész oda enni?" - kérdezte. Magozwe a férfire nézett és így válaszolt: "Talán". Majd arrébb ment.
+Hideg volt és Magozwe az út szélén kéregetett. Ekkor egy férfi lépett oda hozzá. "Szia! Thomas vagyok. Nem messze innen dolgozom, a munkahelyemen ehetnél valamit." - mondta a férfi. Egy sárga házra mutatott, aminek kék volt a teteje. "Elmész oda enni?" - kérdezte. Magozwe a férfira nézett, és így válaszolt: "Talán". Majd arrébb ment.
 
 ##
-A következő hónapokban a hajléktalan fiúk sokat látták Thomast. A férfi szeretett beszélgetni, főleg olyanokkal, akik az utcán éltek. Thomas szerette meghallgatni az élettörténetüket. Mindig komoly és türelmes volt, soha nem volt udvariatlan vagy tiszteletlen. Néhány fiú elkezdett ebédelni járni a kék tetejű sárga házba.
+A következő hónapokban a hajléktalan fiúk sokat látták Thomast. A férfi szeretett beszélgetni, főleg olyanokkal, akik az utcán éltek. Thomas szerette meghallgatni a történetüket. Mindig komoly és türelmes volt, soha nem volt udvariatlan vagy tiszteletlen. Néhány fiú elkezdett ebédelni járni a kék tetejű sárga házba.
 
 ##
 Magozwe éppen a járdán ült és a könyvét nézegette, amikor Thomas leült mellé. "Miről szól a történet?" kérdezte Thomas. "Egy fiúról, aki pilóta lesz." - válaszolta Magozwe. "Mi a fiú neve?" - kérdezte Thomas. "Nem tudom. Nem tudok olvasni." - mondta Magozwe halkan.
@@ -31,13 +31,13 @@ Magozwe éppen a járdán ült és a könyvét nézegette, amikor Thomas leült 
 Amikor csak találkoztak Magozwe saját életéről mesélt Thomasnak. Mesélt a nagybátyjáról, és hogy miért szökött el otthonról. Thomas nem beszélt sokat, és soha nem mondta meg Magozwe-nak, hogy mit tegyen, de mindig figyelmesen meghallgatta. Néha ebéd közben is beszélgettek a kék tetejű házban.
 
 ##
-Magozwe tizedik születésnapja környékén Thomas egy új mesekönyvet adott a fiúnak. Ez a történet egy falusi fiúról szólt, akiből híres focista lett. Thomas sokszor felolvasta a történetet Magozwe-nak. Aztán egyik nap, így szólt: "Szerintem itt az ideje, hogy iskolába menj és megtanulj olvasni. Mit gondolsz?" Thomas elmagyarázta a fiúnak, hogy ismer egy olyan iskolát, ahol a gyerekek nemcsak tanulnak, de ott is laknak.
+Magozwe tizedik születésnapja környékén Thomas egy új mesekönyvet adott a fiúnak. Ez a történet egy falusi fiúról szólt, akiből híres focista lett. Thomas sokszor felolvasta a történetet Magozwe-nak. Aztán egyik nap, így szólt: "Szerintem itt az ideje, hogy iskolába menj és megtanulj olvasni. Mit gondolsz?" Thomas elmagyarázta a fiúnak, hogy ismer egy olyan iskolát, ahol a gyerekek nemcsak tanulnak, hanem ott is laknak.
 
 ##
 Magozwe sokat gondolt erre a helyre és arra, hogy milyen lehet iskolába járni. De mi van akkor, ha a nagybátyjának igaza van és ő túl buta ahhoz, hogy tanuljon? Nagyon félt. "Talán jobban járok, ha az utcán élek tovább." gondolta.
 
 ##
-A félelmeit elmondta Thomasnak. Végül a férfinek sikerült meggyőznie arról, hogy sokkal jobb lesz az élete az új helyen.
+A félelmeit elmondta Thomasnak. Végül a férfinak sikerült meggyőznie arról, hogy sokkal jobb lesz az élete az új helyen.
 
 ##
 Így Magozwe két másik fiúval együtt beköltözött egy zöld tetejű ház egyik szobájába. Összesen tíz gyerek lakott ebben a házban, Cissy nénivel, a férjével, három kutyával, egy macskával és egy öreg kecskével.

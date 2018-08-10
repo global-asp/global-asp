@@ -22,7 +22,7 @@ A tyúk azt mondja, "kot-kot-kot".
 A kutya azt mondja, "vau-vau".
 
 ##
-A gazda azt mondja, "Shhh!"
+A gazda azt mondja, "Hess!"
 
 ##
 * License: [CC-BY-NC]
