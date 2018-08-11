@@ -1,13 +1,13 @@
-# Wa unu a du?
+# Wa yu a du?
 
 ##
 Mi a sing.
 
 ##
-Shi a wiev ar an.
+Shi a wiev.
 
 ##
-Mi a klap mi an.
+Im a clap.
 
 ##
 Shi a chrech.
@@ -16,17 +16,17 @@ Shi a chrech.
 Im a kaal.
 
 ##
-Mi a ansa.
+Im a ansa.
 
 ##
 Shi a lisn.
 
 ##
-Wa unu a du?
+Wa yu a du?
 
 ##
 * License: [CC-BY]
 * Text: Nina Orange
 * Illustration: Wiehan de Jager
-* Translation: dohliam
+* Translation: Georgette McGlashen
 * Language: jam
