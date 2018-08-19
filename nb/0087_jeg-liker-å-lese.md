@@ -7,7 +7,7 @@ Jeg liker å lese.
 Hvem kan jeg lese for?
 
 ##
-Søsteren min sover.
+Søstera mi sover.
 
 ##
 Hvem kan jeg lese for?
