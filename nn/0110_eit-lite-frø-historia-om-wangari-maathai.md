@@ -19,7 +19,7 @@ Ho likte å læra! Wangari lærde meir og meir for kvar bok ho las. Ho vart så 
 Wangari lærde mykje nytt på det amerikanske universitetet. Ho studerte planter og korleis dei veks. Og hugsa korleis ho hadde vakse opp sjølv: i leiker og spel med brørne sine i Kenyas vene skogar.
 
 ##
-Ho skjønte ho var glad i folk frå Kenya jo meir ho lærde. Ho ville dei skulle vera glade og frie. Og jo meir ho lærde, jo meir hugsa ho heimen sin i Afrika.
+Ho skjønte ho var glad i folk frå Kenya jo meir ho lærde. Ho ville dei skulle vera glade og frie. Og jo meir ho lærde, desto meir hugsa ho heimen sin i Afrika.
 
 ##
 Då ho var ferdig med å studera, drog ho tilbake til Kenya. Men landet hennar var forandra. Kjempestore bondegardar strekte seg utover i landet. Kvinnene hadde ikkje ved til å tenna bål for å laga mat. Folk var fattige og barn svalt.
