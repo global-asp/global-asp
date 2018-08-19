@@ -37,7 +37,7 @@ Denne kvinnen så opp i treet. Da hun så jenta og bitene av det fargerike teppe
 Simbegwires tante tok med seg barnet til sitt eget hus. Hun ga Simbegwire varm mat, og la henne til å sove med teppet til moren sin. Den natten gråt Simbegwire i det hun sovnet. Men det var fordi hun var så lettet. Hun visste at tanta hennes ville ta seg av henne.
 
 ##
-Da Simbegwires far kom hjem, så han at rommet hennes var tomt. "Hva har skjedd, Anita?" spurte han bekymret. Kvinnen svarte at Simbegwire hadde stukket av. "Jeg ville at hun skulle respektere meg", sa hun. "Men kanskje jeg var for streng." Simbegwires far forlot huset og gikk i retning av bekken. Han fortsatte til landsbyen til søsteren sin for å finne ut om hun hadde sett Simbegwire.
+Da Simbegwires far kom hjem, så han at rommet hennes var tomt. "Hva har skjedd, Anita?" spurte han bekymret. Kvinnen svarte at Simbegwire hadde stukket av. "Jeg ville at hun skulle respektere meg", sa hun. "Men kanskje jeg var for streng." Simbegwires far forlot huset og gikk i retning av bekken. Han fortsatte til landsbyen til søstera si for å finne ut om hun hadde sett Simbegwire.
 
 ##
 Simbegwire lekte med fetterne og kusinene sine da hun så faren sin på lang avstand. Hun var redd han skulle bli sint, så hun løp inn i huset og gjemte seg. Men faren hennes gikk til henne og sa: "Simbegwire, du har funnet den beste moren i verden. En som er glad i deg og forstår deg. Jeg er stolt av deg og glad i deg." De ble enige om at Simbegwire skulle bli boende hos tanta si så lenge hun ville.
