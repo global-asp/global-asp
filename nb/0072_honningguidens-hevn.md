@@ -16,7 +16,7 @@ Snart kunne han høre summingen til de travle biene. De kom inn og ut av et hulr
 Da biene var ute, dyttet Gingile hånden sin inn i bolet. Han tok ut håndfuller med tunge vokskaker som dryppet av deilig honning og var fulle av feite, hvite larver. Han la vokskakene forsiktig i veska han bar på skulderen og begynte å klatre ned fra treet.
 
 ##
-Ngede så ivrig på alt som Gingile gjorde. Han ventet på at han skulle legge igjen en tjukk vokskake som en takkegave til honningguiden. Ngede svinset fra gren til gren, nærmere og nærmere bakken. Til slutt nådde Gingile foten av treet. Ngede satt på en stein nær gutten og ventet på belønningen sin.
+Ngede så ivrig på alt Gingile gjorde. Han ventet på at han skulle legge igjen en tjukk vokskake som en takkegave til honningguiden. Ngede svinset fra gren til gren, nærmere og nærmere bakken. Til slutt nådde Gingile foten av treet. Ngede satt på en stein nær gutten og ventet på belønningen sin.
 
 ##
 Men Gingile slukket bålet, plukket opp spydet, begynte å gå hjem og overså fuglen. Ngede ropte sint: "SEI-er, SEI-er!" Gingile stoppet og stirret på den lille fuglen og lo høyt. "Du vil ha litt honning, du, lille venn? Ha! Men jeg gjorde alt arbeidet og fikk alle stikkene. Hvorfor skulle jeg dele noe av denne deilige honningen med deg?" Ngede var rasende! Dette var da ingen måte å behandle ham på! Men han skulle få sin hevn.
