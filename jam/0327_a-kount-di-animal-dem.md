@@ -1,4 +1,4 @@
-# A Kount Di Animal Dem.
+# A Kount Di Animal Dem
 
 ##
 Wan elifant a go jrink waata.
