@@ -13,7 +13,7 @@ Nie wolno im było jednak zbliżać się do ognia.
 Byli zrobieni z wosku, więc musieli wykonywać wszystkie prace w nocy.
 
 ##
-Mimo to, jeden z chłopców bardzo pragnął wyjść na zewnątrz w ciągu dnia..
+Mimo to, jeden z chłopców bardzo pragnął wyjść na zewnątrz w ciągu dnia.
 
 ##
 Pewnego dnia, pragnienie było zbyt silne. Jego bracia ostrzegali go…
