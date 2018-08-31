@@ -19,7 +19,7 @@ Di jraiva did wel beks. Im jraiv we an no gi Daag im chienj.
 Das wai, iivn tu dis die, Daag ron aafa kyar fi si ef im kyan fain di jraiva uu uo im, im chienj.
 
 ##
-Guot ronwe fram di soun a kyar. Shi fraid shi a go get lak op fi no pie ar fier.
+Guot ronwe fram di soun a kyar. Shi fried shi a go get lak op fi no pie ar fier.
 
 ##
 An Kou no bizniz wen kyar a kom. Kou tek ar taim a kraas di ruod kaa shi nuo se shi pie aal a ar fier.
