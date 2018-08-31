@@ -7,7 +7,7 @@ Wan elifant a go jrink waata.
 Tuu jeraaf a go jrink waata.
 
 ##
-Chrii bofaluo an fuor bord a go jrink waata tu.
+Chrii bofaluo an fuor bod a go jrink waata tu.
 
 ##
 Faiv impaala an siks waatag a waak go a di waata.
