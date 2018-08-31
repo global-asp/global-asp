@@ -65,4 +65,4 @@ Di dangki pikni an im mada gruo tugeda an fain uol iip a wie fi liv wid wan aned
 * Text: Lindiwe Matshikiza
 * Illustration: Meghan Judge
 * Translation: Georgette McGlashen
-* Language: Jamaican Creol
+* Language: jam
