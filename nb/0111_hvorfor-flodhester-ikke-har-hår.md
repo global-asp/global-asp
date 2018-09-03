@@ -4,7 +4,7 @@
 En dag gikk Kanin langs elvebredden.
 
 ##
-Flodhest var der også. Han gikk en tur og spiste litt fint grønt gress.
+Flodhest var der også. Hun gikk en tur og spiste litt fint grønt gress.
 
 ##
 Flodhest så seg ikke for, så hun var uheldig og tråkket på foten til Kanin. Kanin skrek og begynte å rope til Flodhest: "Hei, Flodhest! Ser du ikke at du tråkker på foten min?"
