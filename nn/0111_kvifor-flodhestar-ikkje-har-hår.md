@@ -4,7 +4,7 @@
 Ein dag gjekk Kanin langs elvebreidda.
 
 ##
-Flodhest var der òg. Han gjekk ein tur og åt litt fint grønt gras.
+Flodhest var der òg. Ho gjekk ein tur og åt litt fint grønt gras.
 
 ##
 Flodhest såg seg ikkje for, så ho var uheldig og trakka på foten til Kanin. Kanin skreik og byrja å ropa til Flodhest: "Hei, Flodhest! Ser du ikkje at du trakkar på foten min?"
