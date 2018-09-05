@@ -54,6 +54,7 @@ I same augneblink kom det to menn berande på ei båre. Dei hadde funne sonen ti
 ##
 Den rike mannen var veldig glad for å sjå sonen sin igjen. Han lønte Sakima for at han trøysta han. Han tok sonen sin og Sakima med til sjukehuset slik at Sakima kunne få synet tilbake.
 
+##
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Peris Wachuka

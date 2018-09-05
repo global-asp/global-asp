@@ -33,6 +33,7 @@ Då det var trygt, kom Tingi og bestemor hans ut.
 ##
 Dei sneik seg stille heim.
 
+##
 * License: [CC-BY]
 * Text: Ingrid Schechter
 * Illustration: Ingrid Schechter
