@@ -23,7 +23,7 @@ Kènit mittġajjbe fi Weħìd il-Qarn. "Ġlèc garnik mđebbib?" nicdittu.
 Kènit mittġajjbe barce fi'it-Timsèħ. "Cnuwwe yèklu it-tmèseħ fi'l-ġce?" nicdit.
 
 ##
-Il-Ɍràb iđ-Đkiy fìsaġ qàl,"Tebbaġni l'il-wèd. Ɍàdi tewwe tcùf cnuwwe yèklu it-tmèseħ fi'l-ġce."
+Il-Ɍràb iđ-Đkiy fìsaġ qàl, "Tebbaġni l'il-wèd. Ɍàdi tewwe tcùf cnuwwe yèklu it-tmèseħ fi'l-ġce."
 
 ##
 W hekke il-Fìle iṡ-Ṡɍìra tebbġit il-Ɍràb l'il-wèd.

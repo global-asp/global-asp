@@ -4,16 +4,31 @@
 Ŧarbùce ṡɍìra, ŧarbùce kbìra.
 
 ##
+
+
+##
 Ydìn ṡɍàr, ydìn kbàr.
+
+##
+
 
 ##
 Miġze ṡɍìra, miġze kbìra.
 
 ##
+
+
+##
 Ktèb ṡɍìr, ktèb kbìr.
 
 ##
+
+
+##
 Tebsìme ṡɍìra, tebsìme kbìra.
+
+##
+
 
 ##
 Wfèt il-ħkèye.
