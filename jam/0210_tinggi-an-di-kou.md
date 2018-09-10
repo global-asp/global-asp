@@ -31,7 +31,7 @@ Wan a di suoja dem put im fut rait pan tap a im, bot im kip kwaiyat.
 Wen it did aarait, Tinggi an im granmada kom out.
 
 ##
-Dem tek dem taim go uom kwaiyat, kwaiyat.
+Dem tek dem taim go uom kwaiyat-kwaiyat.
 
 ##
 * License: [CC-BY]

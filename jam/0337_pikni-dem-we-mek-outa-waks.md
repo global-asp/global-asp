@@ -22,7 +22,7 @@ Wan die di fiilin fi guot did tuu chrang. Im bredda dem waan im...
 Bot it did tuu liet! Im melt out ina di son at.
 
 ##
-Di wax pikni dem did fiil sad, sad fi si dem bredda jos a melt out so.
+Di wax pikni dem did fiil sad-sad fi si dem bredda jos a melt out so.
 
 ##
 Bot dem mek a plan. Dem shiep out di lomp a saaf waks ina a bord.

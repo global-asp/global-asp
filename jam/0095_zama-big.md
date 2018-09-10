@@ -1,7 +1,7 @@
 # Zama big!
 
 ##
-Mi likl bredda sliip liet, liet. Mi get op orli kaaz mi big!
+Mi likl bredda sliip liet-liet. Mi get op orli kaaz mi big!
 
 ##
 A mi mek di son kom iihn.

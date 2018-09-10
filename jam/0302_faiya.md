@@ -19,7 +19,7 @@ Faiya lait op di plies.
 Luk, faiya!
 
 ##
-Faiya nais, nais.
+Faiya nais-nais.
 
 ##
 An it powaful.
