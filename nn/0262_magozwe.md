@@ -19,7 +19,7 @@ Ein dag medan Magozwe leitte i nokre søppelbøtter, fann han ei gammal fillete 
 Bileta fortalde forteljinga om ein gut som voks opp til å verta pilot. Magozwe brukte å dagdrøyma om å verta pilot. Nokre gonger innbilte han seg at han var guten i forteljinga.
 
 ##
-Det var kaldt og Magozwe stod langs vegen og tagg. Ein mann gjekk bort til han. "Hei, eg heiter Thomas. Eg bur i nærleiken, på ein stad der du kan få deg noko å eta", sa han og peikte på eit gult hus med blått tak. "Eg håpar du dreg dit for å få deg litt mat?" spurde han. Magozwe såg på han, og deretter på huset. "Kanskje", sa han, og gjekk.
+Det var kaldt og Magozwe stod langs vegen og tagg. Ein mann gjekk bort til han. "Hei, eg heiter Thomas. Eg bur i nærleiken, på ein stad der du kan få deg noko å eta", sa han og peikte på eit gult hus med blått tak. "Eg håpar du dreg dit for å få deg litt mat?" spurde han. Magozwe såg på han, og deretter på huset. "Kanskje", sa han og gjekk.
 
 ##
 I månadene som følgde vart dei heimlause gutane vande til å sjå Thomas. Han likte å snakka med folk, spesielt dei som budde på gata. Thomas høyrde på forteljingar om liva til folk. Han var seriøs og tolmodig, aldri frekk eller respektlaus. Nokon av gutane byrja å dra til det gule og blå huset for å få mat midt på dagen.
