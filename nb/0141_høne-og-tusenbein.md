@@ -13,7 +13,7 @@ De bestemte seg for å ha en straffekonkurranse. Først var Tusenbein keeper. H�
 Tusenbein sparket ballen og skåret. Tusenbein driblet ballen og skåret. Tusenbein headet ballen og skåret. Fem mål skåret Tusenbein.
 
 ##
-Høne ble sint fordi hun tapte. Hun var en veldig dårlig taper. Tusenbein begynte å le av vennen som lagde så mye bråk.
+Høne ble sint fordi hun tapte. Hun var en veldig dårlig taper. Tusenbein begynte å le av vennen som lagde så mye oppstyr.
 
 ##
 Høne var så sint at hun åpnet nebbet og slukte Tusenbein.
