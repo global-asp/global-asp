@@ -19,7 +19,7 @@ En dag mens Magozwe lette i noen søppelbøtter, fant han en gammel fillete barn
 Bildene fortalte fortellingen om en gutt som vokste opp til å bli pilot. Magozwe pleide å dagdrømme om å bli pilot. Noen ganger innbilte han seg at han var gutten i fortellingen.
 
 ##
-Det var kaldt og Magozwe stod langs veien og tigget. En mann gikk bort til ham. "Hei, jeg heter Thomas. Jeg bor i nærheten, på et sted der du kan få deg noe å spise", sa han og pekte på et gult hus med blått tak. "Jeg håper du drar dit for å få deg litt mat?" spurte han. Magozwe så på ham, og deretter på huset. "Kanskje", sa han, og gikk.
+Det var kaldt og Magozwe stod langs veien og tigget. En mann gikk bort til ham. "Hei, jeg heter Thomas. Jeg bor i nærheten, på et sted der du kan få deg noe å spise", sa han og pekte på et gult hus med blått tak. "Jeg håper du drar dit for å få deg litt mat?" spurte han. Magozwe så på ham, og deretter på huset. "Kanskje", sa han og gikk.
 
 ##
 I månedene som fulgte ble de hjemløse guttene vant til å se Thomas. Han likte å snakke med folk, spesielt de som bodde på gata. Thomas hørte på fortellinger om livene til folk. Han var seriøs og tålmodig, aldri frekk eller respektløs. Noen av guttene begynte å dra til det gule og blå huset for å få mat midt på dagen.
