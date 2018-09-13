@@ -28,7 +28,7 @@ Så gikk Odongo og Apiyo ut. De jagde sommerfugler og fugler.
 De klatret i trær og plasket i vannet i innsjøen.
 
 ##
-Da det ble mørkt, gikk de tilbake til huset for å spise middag. Før de ble ferdige med å spise begynte de å sovne!
+Da det ble mørkt, gikk de tilbake til huset for å spise middag. Før de ble ferdige med å spise begynte de å falle i søvn!
 
 ##
 Dagen etter kjørte faren deres tilbake til byen og lot dem bli igjen hos Nyar-Kanyada.
