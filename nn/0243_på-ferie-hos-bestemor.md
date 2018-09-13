@@ -28,7 +28,7 @@ Så gjekk Odongo og Apiyo ut. Dei jaga sommarfuglar og fuglar.
 Dei klatra i tre og plaska i vatnet i innsjøen.
 
 ##
-Då det vart mørkt, gjekk dei tilbake til huset for å eta middag. Før dei vart ferdige med å eta byrja dei å sovna!
+Då det vart mørkt, gjekk dei tilbake til huset for å eta middag. Før dei vart ferdige med å eta byrja dei å falla i søvn!
 
 ##
 Dagen etter køyrde far deira tilbake til byen og lét dei verta igjen hos Nyar-Kanyada.
