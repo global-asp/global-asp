@@ -16,7 +16,7 @@ Den lille sønnen til Anansi hadde stått og sett på ved foten av treet. "Hadde
 Snart var han oppe i toppen av treet. Men så stusset han og tenkte: "Det var jo jeg som skulle ha all denne visdommen, men nå var sønnen min lurere enn meg!" Anansi ble så sint at han kastet krukka ned fra treet.
 
 ##
-Den gikk i tusen knas på bakken. Da ble det fritt for alle å dele visdommen. Og sånn lærte folk å dyrke jorda, veve klær og lage redskaper av jern, og alle de andre tingene folk vet hvordan de skal lage.
+Den gikk i tusen knas på bakken. Da ble det fritt for alle å dele visdommen. Og slik lærte folk å dyrke jorda, veve klær og lage redskaper av jern, og alle de andre tingene folk vet hvordan de skal lage.
 
 ##
 * License: [CC-BY]
