@@ -34,7 +34,7 @@ Neste morgen sang Simbegwire sangen igjen. Da kvinnene kom for å vaske klærne 
 Denne kvinnen så opp i treet. Da hun så jenta og bitene av det fargerike teppet, ropte hun: "Simbegwire, min brors datter!" De andre kvinnene stoppet å vaske og hjalp Simbegwire med å klatre ned fra treet. Tanta hennes ga den lille jenta en klem og prøvde å trøste henne.
 
 ##
-Simbegwires tante tok med seg barnet til sitt eget hus. Hun ga Simbegwire varm mat, og la henne til å sove med teppet til moren sin. Den natten gråt Simbegwire i det hun sovnet. Men det var fordi hun var så lettet. Hun visste at tanta hennes ville ta seg av henne.
+Simbegwires tante tok med seg barnet til sitt eget hus. Hun ga Simbegwire varm mat, og la henne til å sove med teppet til moren sin. Den natten gråt Simbegwire idet hun sovnet. Men det var fordi hun var så lettet. Hun visste at tanta hennes ville ta seg av henne.
 
 ##
 Da Simbegwires far kom hjem, så han at rommet hennes var tomt. "Hva har skjedd, Anita?" spurte han bekymret. Kvinnen svarte at Simbegwire hadde stukket av. "Jeg ville at hun skulle respektere meg", sa hun. "Men kanskje jeg var for streng." Simbegwires far forlot huset og gikk i retning av bekken. Han fortsatte til landsbyen til søstera si for å finne ut om hun hadde sett Simbegwire.
