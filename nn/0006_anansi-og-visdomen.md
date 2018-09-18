@@ -16,7 +16,7 @@ Den vesle sonen til Anansi hadde stått og sett på ved foten av treet. "Hadde d
 Snart var han oppe i toppen av treet. Men så stussa han og tenkte: "Det var jo eg som skulle ha all denne visdomen, men no var sonen min lurare enn meg!" Anansi vart så sinna at han kasta krukka ned frå treet.
 
 ##
-Ho gjekk i tusen knas på bakken. Då vart det fritt for alle å dela visdomen. Og sånn lærte folk å dyrka jorda, veva klede og laga reiskapar av jarn, og alle dei andre tinga folk veit korleis dei skal laga.
+Ho gjekk i tusen knas på bakken. Då vart det fritt for alle å dela visdomen. Og slik lærte folk å dyrka jorda, veva klede og laga reiskapar av jarn, og alle dei andre tinga folk veit korleis dei skal laga.
 
 ##
 * License: [CC-BY]
