@@ -7,7 +7,7 @@ Hjartet mitt føler mange ting.
 Eg vert glad når bestemor fortel oss historier om kvelden.
 
 ##
-Eg føler meg tullete når eg leikar med venene mine.
+Eg føler meg tøysete når eg leikar med venene mine.
 
 ##
 Eg vert trist når pappa seier at han ikkje har pengar.
