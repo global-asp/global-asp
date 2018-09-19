@@ -43,7 +43,7 @@ Men tankene mine vandret hjem. Kommer moren min til å bli trygg? Kommer kaninen
 På veien lærte jeg meg utenat navnet på stedet i den store byen der onkelen min bodde. Jeg mumlet fortsatt da jeg falt i søvn.
 
 ##
-Ni timer senere våknet jeg med høylytt banking og roping etter passasjerer som skulle tilbake til landsbyen min. Jeg grep fatt i den lille veska mi og hoppet ut av bussen.
+Ni timer senere våknet jeg av høylytt banking og roping etter passasjerer som skulle tilbake til landsbyen min. Jeg grep fatt i den lille veska mi og hoppet ut av bussen.
 
 ##
 Bussen som skulle tilbake ble fylt opp fort. Det viktigste for meg nå var å begynne å lete etter huset til onkelen min.
