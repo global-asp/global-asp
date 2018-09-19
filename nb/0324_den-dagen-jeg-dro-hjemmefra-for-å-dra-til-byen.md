@@ -22,7 +22,7 @@ Jeg så ut av bussen og innså at jeg var i ferd med å forlate landsbyen min, s
 Lastingen av bagasjen var ferdig og alle passasjerene hadde satt seg. Gateselgere presset seg fortsatt inn i bussen for å selge varene sine til passasjerene. Alle ropte navnene på det de hadde til salgs. Jeg syntes ordene hørtes merkelige ut.
 
 ##
-Noen få passasjerer kjøpte noe å drikke, andre kjøpte små snacks som de begynte å tygge på. De som ikke hadde noe penger, som jeg, bare så på.
+Noen få passasjerer kjøpte noe å drikke, andre kjøpte små snacks som de begynte å tygge på. De som ikke hadde noen penger, som jeg, bare så på.
 
 ##
 Disse aktivitetene ble avbrutt av tutingen til bussen, et tegn på at vi var klare til å dra. En medhjelper ropte at gateselgerne måtte komme seg ut.
