@@ -1,7 +1,7 @@
 # Den dagen jeg dro hjemmefra for å dra til byen
 
 ##
-Den lille busstasjonen i landsbyen min var travel og stappfull av busser. På bakken var det flere ting som skulle lastes. Medhjelpere ropte navnene på stedene dit hvor bussene gikk.
+Den lille busstasjonen i landsbyen min var travel og stappfull av busser. På bakken var det flere ting som skulle lastes. Medhjelpere ropte navnene på stedene dit bussene gikk.
 
 ##
 "Byen! Byen! Vestover!" hørte jeg en medhjelper rope. Det var bussen jeg måtte ta.
