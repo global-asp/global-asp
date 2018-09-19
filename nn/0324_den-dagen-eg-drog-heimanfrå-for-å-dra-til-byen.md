@@ -43,7 +43,7 @@ Men tankane mine vandra heim. Kjem mor mi til å verta trygg? Kjem kaninane mine
 På vegen lærte eg meg utanåt namnet på staden i den store byen der onkel min budde. Eg mumla enno då eg fall i søvn.
 
 ##
-Ni timar seinare vakna eg med høglydt banking og roping etter passasjerar som skulle tilbake til landsbyen min. Eg greip fatt i den vesle veska mi og hoppa ut av bussen.
+Ni timar seinare vakna eg av høglydt banking og roping etter passasjerar som skulle tilbake til landsbyen min. Eg greip fatt i den vesle veska mi og hoppa ut av bussen.
 
 ##
 Bussen som skulle tilbake vart fylt opp fort. Det viktigaste for meg no var å byrja å leita etter huset til onkel min.
