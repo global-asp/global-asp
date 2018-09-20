@@ -13,7 +13,7 @@ Men dei fekk ikkje lov til å gå nær elden.
 Dei måtte gjera alt arbeid om natta. Fordi dei var laga av voks!
 
 ##
-Men ein av gutane lengta etter å gå ut i sollyset.
+Men éin av gutane lengta etter å gå ut i sollyset.
 
 ##
 Ein dag vart lengsla for sterk. Brørne hans åtvara han.
