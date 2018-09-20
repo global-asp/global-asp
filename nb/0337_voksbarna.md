@@ -31,7 +31,7 @@ Men de la en plan. De formet en fugl av den smeltede voksklumpen.
 De tok med seg fuglebroren sin opp på et høyt fjell.
 
 ##
-Og da solen steg, fløy han syngende inn i morgenlyset.
+Og da sola steg, fløy han syngende inn i morgenlyset.
 
 ##
 * License: [CC-BY]
