@@ -13,7 +13,7 @@ Men de fikk ikke lov til å gå nær ilden.
 De måtte gjøre alt arbeid om natten. Fordi de var lagd av voks!
 
 ##
-Men en av guttene lengtet etter å gå ut i sollyset.
+Men én av guttene lengtet etter å gå ut i sollyset.
 
 ##
 En dag ble lengselen for sterk. Brødrene hans advarte ham.
