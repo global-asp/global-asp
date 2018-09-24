@@ -1,7 +1,7 @@
 # Fiilinz
 
 ##
-Mi aat fiil evi.
+Mi aat ful wid aal kaina fiilinz.
 
 ##
 Mi fiil api wen mi grani tel wi stuori inna di iivlin.
