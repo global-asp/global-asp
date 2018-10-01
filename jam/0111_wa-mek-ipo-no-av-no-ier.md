@@ -13,7 +13,7 @@ Ipo neva si se Rabit di de-de an step pan Rabit fut bai aksident. Rabit staat ba
 Ipo se sari tu Rabit, "Mi riili sari. Mi neva si yu. Du beg yu paadn!" Bot Rabit udn lisn an im baal aafa Ipo, "Yu dwiit fi spait! Wan die, yu wi si! Yu gwain pie!"
 
 ##
-Rabit go luk fi Faiya an tel im se, "Gwaan, bon op Ipo wen shi kom outta di waata fi nyam graas. Shi did step pan mi! Faiya ansa se, "No prablem, Rabit, mi fren. Mi wi du we yu aks."
+Rabit go luk fi Faiya an tel im se, "Gwaan, bon op Ipo wen shi kom outa di waata fi nyam graas. Shi did step pan mi! Faiya ansa se, "No prablem, Rabit, mi fren. Mi wi du we yu aks."
 
 ##
 Lieta, Ipo did a nyam graas faar fram di riva wen, "Wush! Faiya ton inna wan big faiyabaal. Di faiya staat bon aaf Ipo ier.
