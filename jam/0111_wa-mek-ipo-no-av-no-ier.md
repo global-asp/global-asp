@@ -7,7 +7,7 @@ Wan die, Rabit did a waak nier di riva.
 Ipo did de-de tu, a tek taim waak an a nyam som griin graas.
 
 ##
-Ipo neva si se Rabit di de-de an step pan Rabit fut bai aksident. Rabit staat baal aaf Ipo an se, "Yu Ipo! yu no si se yu a step pan mi fut?"
+Ipo neva si se Rabit di de-de an step pan Rabit fut bai aksident. Rabit staat baal aaf Ipo an se, "Yu Ipo! Yu no si se yu a step pan mi fut?"
 
 ##
 Ipo se sari tu Rabit, "Mi riili sari. Mi neva si yu. Du beg yu paadn!" Bot Rabit udn lisn an im baal aafa Ipo, "Yu dwiit fi spait! Wan die, yu wi si! Yu gwain pie!"
