@@ -7,7 +7,7 @@ Wie bak inna di diez piipl neva nuo notn. Dem neva nuo ou fi plaant fuud, ar ou 
 Wan die, Nyaame mek op im main se im wuda gi di pat a wizdom to Anansi. Evritaim Anansi luk inna di klie pat, im lorn sopm nyuu. A pyuur eksaitment!
 
 ##
-Anansi get krievn an staat tingk tu imself se, "Mi ago kip di pat sief op a di tap a wahn ai chrii. Den mi wi av it aal tu miself!" Im spin wanhn lang chred, wain it roun di klie pat, an tai it op pan im ches. Im staat fi klaim di chrii. Bot it did aad fi klaim wid di pat a lik op pan im nii dem evritaim.
+Anansi get krievn an staat tingk tu imself se, "Mi ago kip di pat sief op a di tap a wahn ai chrii. Den mi wi av it aal tu miself!" Im spin wahn lang chred, wain it roun di klie pat, an tai it op pan im ches. Im staat fi klaim di chrii. Bot it did aad fi klaim wid di pat a lik op pan im nii dem evritaim.
 
 ##
 Aal dis taim Anansi likl bwaai pikni did a stan op a di fut a di chrii a wach im. Im se tu im se, "It no wuda iiziya fi klaim ef yu tai di pat baka yu insted?" Anansi chrai fi tai di klie pat ful a wizdom baka im, an it di riili iiziya.
