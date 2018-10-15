@@ -1,4 +1,4 @@
-# Nuozibele an di chrii straan a ier
+# Nuozibele an di chrii schraan a ier
 
 ##
 Bak inna di diez, chrii gyal pikni go kalek faiyastik.
@@ -31,10 +31,10 @@ Den di daag se, "Spred di bed fi mi!" Nuozibele ansa se, "Mi neva spred no bed f
 Evridie shi afi kuk an swiip an wash fi di daag. Den wan die di daag se, "Nuozibele, tide mi a go luk fi som a mi fren dem. Swiip out di ous kuk di fuud an wash mi tingz dem bifuor mi kom bak."
 
 ##
-Az suuhn as di daag go we, Nuozibele tek chrii straan a ier fram outta ar ed. Shi put wan ier anda di bed, wan biyain a di duor, an wan inna di animal pen. Den shi ron go a ar yaad az faas az shi kyan.
+Az suuhn as di daag go we, Nuozibele tek chrii schraan a ier fram outta ar ed. Shi put wan ier anda di bed, wan biyain a di duor, an wan inna di animal pen. Den shi ron go a ar yaad az faas az shi kyan.
 
 ##
-Wen di daag kom bak, im luk fi Nuozibele. "Nuozibele, we yu de?" im baal out. "Mi de ya, anda di bed," di fos ier straan se. "Mi de ya, biyain a di duor," di sekan ier straan se. "Mi de ya, inna di animal pen," di tord ier straan se.
+Wen di daag kom bak, im luk fi Nuozibele. "Nuozibele, we yu de?" im baal out. "Mi de ya, anda di bed," di fos ier schraan se. "Mi de ya, biyain a di duor," di sekan ier schraan se. "Mi de ya, inna di animal pen," di tord ier schraan se.
 
 ##
 A da taim de, di daag riyalaiz se Nuozibele trik im op. So im ron an ron aal di wie go a di vilij. Bot Nuozibele bredda dem did a wiet de pan di daag wid som big stik. Di daag ton bak an ron we an nobadi no siim sins.
