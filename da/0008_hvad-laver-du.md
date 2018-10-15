@@ -1,4 +1,4 @@
-# Hvad gør du?
+# Hvad laver du?
 
 ##
 Jeg synger.
@@ -22,7 +22,7 @@ Jeg svarer.
 Hun lytter.
 
 ##
-Hvad gør du?
+Hvad laver du?
 
 ##
 * License: [CC-BY]
