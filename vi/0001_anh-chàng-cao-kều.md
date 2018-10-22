@@ -1,4 +1,4 @@
-# Anh chàng cao kều.
+# Anh chàng cao kều
 
 ##
 Có cái cuốc quá ngắn.
