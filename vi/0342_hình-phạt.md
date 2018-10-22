@@ -1,16 +1,16 @@
-# Hình phạt.
+# Hình phạt
 
 ##
 Ngày nọ, mẹ mang về rất nhiều trái cây.
 
 ##
-"Khi nào tụi con có thể ăn chúng?", chúng tôi hỏi. "Chúng ta sẽ ăn vào tối nay.", mẹ bảo.
+"Khi nào tụi con có thể ăn chúng?", chúng tôi hỏi. "Chúng ta sẽ ăn vào tối nay", mẹ bảo.
 
 ##
 Nhưng anh tôi, Rahim, đã tham lam nếm và ăn thử rất nhiều trong chỗ trái cây ấy.
 
 ##
-"Nhìn Rahim kìa!", em trai tôi la lên. "Rahim thật hư và ích kỉ.", tôi bảo.
+"Nhìn Rahim kìa!", em trai tôi la lên. "Rahim thật hư và ích kỉ", tôi bảo.
 
 ##
 Mẹ rất giận Rahim.
