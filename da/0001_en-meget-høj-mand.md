@@ -19,7 +19,7 @@ Denne mand var for høj!
 Han lavede et meget langt hakkeskaft.
 
 ##
-Han lavede meget høje dørkarme.
+Han lavede en meget høj dørkarm.
 
 ##
 Han lavede en meget lang seng.
