@@ -4,7 +4,7 @@
 I en landsby ved foten av Mount Kenya i Øst-Afrika arbeidet en liten jente sammen med moren sin på åkeren. Wangari het hun.
 
 ##
-Wangari var glad i å være ute. Familien hadde en kjøkkenhage. Der vendte hun grønnsaksbedet med den store kniven sin. Hun stakk små frø ned i den varme jorda.
+Wangari var glad i å være ute. Familien hadde en kjøkkenhage. Der vendte hun grønnsaksbedet med macheten sin. Hun stakk små frø ned i den varme jorda.
 
 ##
 Hun syntes den beste tiden på dagen var rett etter solnedgang. Når det ble for mørkt til å se plantene, visste hun at det var på tide å gå hjem. Hun gikk langs smale stier på markene og over bekker på sin vei.
