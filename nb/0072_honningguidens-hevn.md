@@ -13,7 +13,7 @@ Så Gingile la spydet sitt ned under treet og samlet noen tørre kvister og tent
 Snart kunne han høre summingen til de travle biene. De kom inn og ut av et hulrom i trestammen – bolet deres. Da Gingile nådde bolet, dyttet han den rykende enden inn i hulrommet. Biene for ut, sinte og klare til angrep. De fløy bort siden de ikke likte røyken – men ikke før de hadde gitt Gingile noen smertefulle stikk!
 
 ##
-Da biene var ute, dyttet Gingile hånden sin inn i bolet. Han tok ut håndfuller med tunge vokskaker som dryppet av deilig honning og var fulle av feite, hvite larver. Han la vokskakene forsiktig i veska han bar på skulderen og begynte å klatre ned fra treet.
+Da biene var ute, stakk Gingile hånden sin inn i bolet. Han tok ut håndfuller med tunge vokskaker som dryppet av deilig honning og var fulle av feite, hvite larver. Han la vokskakene forsiktig i veska han bar på skulderen og begynte å klatre ned fra treet.
 
 ##
 Ngede så ivrig på alt Gingile gjorde. Han ventet på at han skulle legge igjen en tjukk vokskake som en takkegave til honningguiden. Ngede svinset fra gren til gren, nærmere og nærmere bakken. Til slutt nådde Gingile foten av treet. Ngede satt på en stein nær gutten og ventet på belønningen sin.
