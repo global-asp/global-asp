@@ -25,10 +25,10 @@ Men Gingile sløkte bålet, plukka opp spydet, byrja å gå heim og oversåg fug
 Ein dag fleire veker seinare høyrde Gingile igjen kallet frå Ngede. Han hugsa den herlege honningen og følgde ivrig etter fuglen nok ein gong. Etter at han hadde leidd Gingile langs skogkanten, stoppa han for å kvila i eit stort akasietre. "Å", tenkte Gingile. "Bolet må vera i dette treet." Han tende raskt det vesle bålet sitt og byrja å klatra med den rykande greina mellom tennene. Ngede sat og venta.
 
 ##
-Gingile klatra, men lurte på kvifor han ikkje høyrde den sedvanlege summinga. "Kanskje bola er djupt inne i treet", tenkte han for seg sjølv. Han drog seg opp etter ei anna grein. Men i staden for bola, stira han inn i auga til ein leopard! Leopard var veldig sint fordi søvnen hennar vart så brått avbrote. Ho kneip att auga og opna munnen for å visa dei veldig lange og skarpe tennene sine.
+Gingile klatra, men lurte på kvifor han ikkje høyrde den sedvanlege summinga. "Kanskje bolet er djupt inne i treet", tenkte han for seg sjølv. Han drog seg opp etter ei anna grein. Men i staden for bolet, stira han inn i auga til ein leopard! Leopard var veldig sint fordi søvnen hennar vart så brått avbrote. Ho kneip att auga og opna munnen for å visa dei veldig lange og skarpe tennene sine.
 
 ##
-Før Leopard kunne svinga labben etter Gingile, skunda han seg ned fra treet. I hastverket bomma han på ei grein og landa med eit høgt brak på bakken og forstua ankelen. Han hinka vidare så fort han kunne. Heldigvis for han var Leopard enno for søvnig til å jaga han. Ngede, honningguiden, hadde fått hemnen sin. Og Gingile hadde fått seg ein lærepenge.
+Før Leopard kunne svinga labben etter Gingile, skunda han seg ned frå treet. I hastverket bomma han på ei grein og landa med eit høgt brak på bakken og forstua ankelen. Han hinka vidare så fort han kunne. Heldigvis for han var Leopard enno for søvnig til å jaga han. Ngede, honningguiden, hadde fått hemnen sin. Og Gingile hadde fått seg ein lærepenge.
 
 ##
 Og på den måten, når borna til Gingile høyrer forteljinga om Ngede, respekterer dei den vesle fuglen. Kvar gong dei sankar honning sørger dei for å gje den største delen av vokskaka til honningguiden!
