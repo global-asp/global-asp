@@ -1,10 +1,10 @@
 # På ferie hos bestemor
 
 ##
-Odongo og Apiyo budde i byen med far sin. Dei såg fram til ferien. Ikkje berre fordi skulen var slutt, men fordi dei skulle vitja bestemor si. Ho budde i ein fiskerlandsby nær ein stor innsjø.
+Odongo og Apiyo budde i byen med far sin. Dei såg fram til ferien. Ikkje berre fordi skulen var slutt, men fordi dei skulle vitja bestemor si. Ho budde i ein fiskarlandsby nær ein stor innsjø.
 
 ##
-Odongo og Apiyo var begeistra fordi dei var på tide å vitja bestemor igjen. Kvelden før pakka dei veskene sine og gjorde seg klare for den lange reisa til landsbyen hennar. Dei fekk ikkje sova og dei snakka heile natta om ferien.
+Odongo og Apiyo var begeistra fordi det var på tide å vitja bestemor igjen. Kvelden før pakka dei veskene sine og gjorde seg klare for den lange reisa til landsbyen hennar. Dei fekk ikkje sova og dei snakka heile natta om ferien.
 
 ##
 Tidleg neste morgon drog dei til landsbyen i bilen til far sin. Dei køyrde forbi fjell, ville dyr og teplantasjar. Dei talde bilar og song songar.
@@ -13,7 +13,7 @@ Tidleg neste morgon drog dei til landsbyen i bilen til far sin. Dei køyrde forb
 Etter eit bel vart borna trøytte og sovna.
 
 ##
-Faren vekte Odongo og Apiyo i det dei kom landsbyen. Dei fann Nyar-Kanyada, bestemor si, som kvilte på ei matte under eit tre. På luo tyder Nyar-Kanyada "dottera til Kanyada-folket." Ho var ein sterk og ven kvinne.
+Faren vekte Odongo og Apiyo i det dei kom til landsbyen. Dei fann Nyar-Kanyada, bestemor si, som kvilte på ei matte under eit tre. På luo tyder Nyar-Kanyada "dottera til Kanyada-folket." Ho var ei sterk og ven kvinne.
 
 ##
 Nya-Kanyada ynskte dei velkomen og dansa rundt i rommet medan ho song av glede. Barneborna hennar var begeistra over å overrekka gåvene dei hadde teke med frå byen. "Opne gåva mi først", sa Odongo. "Nei, gåva mi først!" sa Apiyo.
@@ -31,7 +31,7 @@ Dei klatra i tre og plaska i vatnet i innsjøen.
 Då det vart mørkt, gjekk dei tilbake til huset for å eta middag. Før dei vart ferdige med å eta byrja dei å falla i søvn!
 
 ##
-Dagen etter køyrde far deira tilbake til byen og lét dei verta igjen hos Nyar-Kanyada.
+Dagen etter køyrde far deira tilbake til byen og lét dei vera igjen hos Nyar-Kanyada.
 
 ##
 Odongo og Apiyo hjelpte bestemor si med gjeremåla i huset. Dei henta vatn og ved. Dei samla egg frå hønene og plukka grønsaker frå kjøkkenhagen.
@@ -49,7 +49,7 @@ Ein annan dag drog borna til marknadsplassen saman med Nyar-Kanyada. Ho hadde ei
 Då dagen var omme, drakk dei krydra te saman. Dei hjelpte bestemor med å telja pengane ho hadde tent.
 
 ##
-Men snart var ferien over og borna måtte dra tilbake til byen. Nyar-Kanyada gav Odongo ei skyggelue og Apiyo ein genser. Ho pakka mat for reisa deira.
+Men snart var ferien over og borna måtte dra tilbake til byen. Nyar-Kanyada gav Odongo ei skuggelue og Apiyo ein genser. Ho pakka mat for reisa deira.
 
 ##
 Då far deira kom for å henta dei, ville dei ikkje dra. Borna trygla Nyar-Kanyada om å verta med dei til byen. Ho smilte og sa: "Eg er for gammal for byen. Eg skal venta på at de kjem tilbake til landsbyen min."
