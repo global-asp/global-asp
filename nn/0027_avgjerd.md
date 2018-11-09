@@ -10,7 +10,7 @@ Vi venta på mat som andre hadde gjeve oss.
 Vi låste husa våre tidleg på grunn av tjuvar.
 
 ##
-Mange barn droppa ut av skulen.
+Mange born droppa ut av skulen.
 
 ##
 Unge jenter jobba som hushjelper i andre landsbyar.
