@@ -31,7 +31,7 @@ Magozwe sat på fortauet og kika i bildeboka då Thomas kom og sette seg ved sid
 Då dei møttest, byrja Magozwe å fortelja si eiga historie til Thomas. Det var historia om onkel hans og kvifor han rømde heimanfrå. Thomas snakka ikkje mykje, og han sa ikkje til Magozwe kva han skulle gjera, men han lytta alltid oppmerksamt. Nokre gonger snakka dei saman medan dei åt i det gule huset med det blå taket.
 
 ##
-Omkring Magozwes tiande fødselsdag gav Thomas han ei ny barnebok. Det var forteljinga om ein landsbygut som voks opp til å verta ein berømt fotballspelar. Thomas las den forteljinga for Magozwe mange gonger, heilt til han ein dag sa: "Eg synest det er på tide at du går på skulen og lærer å lesa. Kva synest du?" Thomas forklarte at han visste om ein stad der barn kunne bu og gå på skule.
+Omkring Magozwes tiande fødselsdag gav Thomas han ei ny barnebok. Det var forteljinga om ein landsbygut som voks opp til å verta ein berømt fotballspelar. Thomas las den forteljinga for Magozwe mange gonger, heilt til han ein dag sa: "Eg synest det er på tide at du går på skulen og lærer å lesa. Kva synest du?" Thomas forklarte at han visste om ein stad der born kunne bu og gå på skule.
 
 ##
 Magozwe tenkte på denne nye staden og på å gå på skulen. Kva om onkel hans hadde rett og han var for dum til å læra noko? Kva om dei slo han på denne nye staden? Han var redd. "Kanskje det er betre å bu på gata", tenkte han.
@@ -40,7 +40,7 @@ Magozwe tenkte på denne nye staden og på å gå på skulen. Kva om onkel hans 
 Han snakka om det han var redd for med Thomas. Med tida forsikra mannen guten om at livet kunne verta betre på den nye staden.
 
 ##
-Dermed flytta Magozwe inn i eit rom i eit hus med grønt tak. Han delte rommet med to andre gutar. Til saman var det ti barn som budde i det huset. Saman med tanta Cissy og mannen hennar, tre hundar, ein katt og ei gammal geit.
+Dermed flytta Magozwe inn i eit rom i eit hus med grønt tak. Han delte rommet med to andre gutar. Til saman var det ti born som budde i det huset. Saman med tanta Cissy og mannen hennar, tre hundar, ein katt og ei gammal geit.
 
 ##
 Magozwe byrja på skulen, og det var vanskeleg. Han hadde mykje å ta att. Av og til ville han gje opp. Men han tenkte på piloten og fotballspelaren i barnebøkene. Som dei gav han ikkje opp.
