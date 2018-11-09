@@ -28,7 +28,7 @@ Simbegwire var veldig opprørt. Ho bestemte seg for å rømma. Ho tok bitane fr�
 Då kvelden kom, klatra ho opp i eit høgt tre ved ein bekk og reidde seg ei seng i greinene. Då ho gjekk og la seg, song ho: "Mamma, mamma, mamma, du forlét meg. Du forlét meg og kom aldri tilbake. Pappa er ikkje glad i meg lenger. Mamma, når kjem du tilbake? Du forlét meg."
 
 ##
-Neste morgon song Simbegwire songen igjen. Då kvinnene kom for å vaska kleda sine i bekken, høyrde dei den triste songen frå høgt oppa i treet. Dei trudde det berre var vinden som rasla med blada og heldt fram med arbeidet sitt. Men éin av kvinnene høyrde veldig nøye på songen.
+Neste morgon song Simbegwire songen igjen. Då kvinnene kom for å vaska kleda sine i bekken, høyrde dei den triste songen frå høgt oppe i treet. Dei trudde det berre var vinden som rasla med blada og heldt fram med arbeidet sitt. Men éin av kvinnene høyrde veldig nøye på songen.
 
 ##
 Denne kvinna såg opp i treet. Då ho såg jenta og bitane av det fargerike teppet, ropte ho: "Simbegwire, dottera til bror min!" Dei andre kvinnene stoppa å vaska og hjelpte Simbegwire med å klatra ned frå treet. Tanta hennar gav den vesle jenta ein klem og prøvde å trøysta henne.
@@ -37,7 +37,7 @@ Denne kvinna såg opp i treet. Då ho såg jenta og bitane av det fargerike tepp
 Tanta til Simbegwire tok med seg barnet til sitt eige hus. Ho gav Simbegwire varm mat, og la henne til å sova med teppet til mor si. Den natta gret Simbegwire idet ho sovna. Men det var fordi ho var så letta. Ho visste at tanta hennar ville ta seg av henne.
 
 ##
-Då Simbegwire sin far kom heim, såg han at rommet hennar var tomt. "Kva har skjett, Anita?" spurde han bekymra. Kvinna svara at Simbegwire hadde stukke av. "Eg ville at ho skulle respektera meg", sa ho. "Men kanskje eg var for streng." Simbegwire sin far forlét huset og gjekk i retning av bekken. Han heldt fram til landsbyen til syster si for å finna ut om ho hadde sett Simbegwire.
+Då Simbegwire sin far kom heim, såg han at rommet hennar var tomt. "Kva har skjedd, Anita?" spurde han bekymra. Kvinna svara at Simbegwire hadde stukke av. "Eg ville at ho skulle respektera meg", sa ho. "Men kanskje eg var for streng." Simbegwire sin far forlét huset og gjekk i retning av bekken. Han heldt fram til landsbyen til syster si for å finna ut om ho hadde sett Simbegwire.
 
 ##
 Simbegwire leikte med fetrane og kusinene sine då ho såg far sin på lang avstand. Ho var redd han skulle verta sint, så ho sprang inn i huset og gøymde seg. Men far hennar gjekk til henne og sa: "Simbegwire, du har funne den beste mora i verda. Ei som er glad i deg og forstår deg. Eg er stolt av deg og glad i deg." Dei vart samde om at Simbegwire skulle verta buande hos tanta si så lenge ho ville.
