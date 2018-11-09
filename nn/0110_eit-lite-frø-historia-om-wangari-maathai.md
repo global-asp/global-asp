@@ -4,7 +4,7 @@
 I ein landsby ved foten av Mount Kenya i Aust-Afrika arbeidde ei lita jente saman med mor si på åkeren. Wangari heitte ho.
 
 ##
-Wangari var glad i å vera ute. Familien hadde ein kjøkkenhage. Der vende ho grønsakshagen med den store kniven sin. Ho stakk små frø ned i den varme jorda.
+Wangari var glad i å vera ute. Familien hadde ein kjøkkenhage. Der vende ho grønsakshagen med macheten sin. Ho stakk små frø ned i den varme jorda.
 
 ##
 Ho syntest den beste tida på dagen var rett etter solnedgang. Når det vart for mørkt til å sjå plantene, visste ho at det var på tide å gå heim. Ho gjekk langs smale stiar på markene og over bekkar på vegen sin.
