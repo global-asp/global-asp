@@ -37,7 +37,7 @@ Så snart hunden var dregen, tok Nozibele tre hårstrå frå hovudet sitt. Ho la
 Då hunden kom tilbake, leitte han etter Nozibele. "Nozibele, kor er du?" ropte han. "Eg er her, under senga", sa det første hårstrået. "Eg er her, bak døra", sa det andre hårstrået. "Eg er her, i innhegninga", sa det tredje hårstrået.
 
 ##
-Då skjønte hunden at Nozibele hadde lura han. Så han sprang og sprang heile vegen til landsbyen. Men der venta brørne til Nozibele med store kjeppar. Hunden snudde seg og sprang bort, og han har ikkje vorte sett sidan.
+Då skjønte hunden at Nozibele hadde lurt han. Så han sprang og sprang heile vegen til landsbyen. Men der venta brørne til Nozibele med store kjeppar. Hunden snudde seg og sprang bort, og han har ikkje vorte sett sidan.
 
 ##
 * License: [CC-BY]
