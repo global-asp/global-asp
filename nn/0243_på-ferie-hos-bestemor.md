@@ -58,7 +58,7 @@ Då far deira kom for å henta dei, ville dei ikkje dra. Borna trygla Nyar-Kanya
 Odongo og Apiyo klemde henne hardt og tok farvel.
 
 ##
-Då Odongo og Apiyo drog tilbake til skulen, fortalde dei venene sine om livet på landet. Nokre barn syntest at livet i byen var godt. Andre syntest at landet var betre. Men viktigast av alt var at alle var samde i at Odongo og Apiyo hadde ei fantastisk bestemor!
+Då Odongo og Apiyo drog tilbake til skulen, fortalde dei venene sine om livet på landet. Nokre born syntest at livet i byen var godt. Andre syntest at landet var betre. Men viktigast av alt var at alle var samde i at Odongo og Apiyo hadde ei fantastisk bestemor!
 
 ##
 * License: [CC-BY]
