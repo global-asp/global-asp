@@ -19,10 +19,10 @@ Eg kuttar opp graskaret.
 Eg hakkar spinaten.
 
 ##
-Mor mi hakkar løken.
+Mor mi hakkar lauken.
 
 ##
-Hakka løk får meg til å gråta.
+Hakka lauk får meg til å gråta.
 
 ##
 * License: [CC-BY-NC]
