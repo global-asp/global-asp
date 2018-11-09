@@ -31,10 +31,10 @@ Viss berre barnet hadde halde på den vesle storleiken, hadde alt kanskje vore a
 Esel vart fylt av forvirring og sinne. Han kunne ikkje gjera ditt og han kunne ikkje gjera datt. Han kunne ikkje vera på éin måte og han kunne ikkje vera på ein annan måte. Han vart så sint at han ein dag sparka ned huset til mor si.
 
 ##
-Esel skamma seg. Han byrja å springe vekk så fort han kunne.
+Esel skamma seg. Han byrja å springa vekk så fort han kunne.
 
 ##
-Når han hadde slutta å springe, var det vorte kveld, og Esel hadde gått seg vill. "Hi ha", kviskra han inn i mørket. "Hi ha?" lydde ekkoet. Han var åleine. Han krøkte seg saman til ein liten ball og fall i ein djup og forstyrra søvn.
+Når han hadde slutta å springa, var det vorte kveld, og Esel hadde gått seg vill. "Hi ha", kviskra han inn i mørket. "Hi ha?" lydde ekkoet. Han var åleine. Han krøkte seg saman til ein liten ball og fall i ein djup og forstyrra søvn.
 
 ##
 Esel vakna opp til ein merkeleg gammal mann som stira ned på han. Han såg inn i auga til den gamle mannen og byrja å kjenna ein snev av håp.
@@ -58,7 +58,7 @@ Esel visste endeleg kva han skulle gjera.
 Esel fann mor si som var åleine, og sørgde over tapet av barnet sitt. Dei stira på kvarandre lengje. Og så klemde dei kvarandre veldig hardt.
 
 ##
-Eselbarnet og mor hans har utvikla seg i fellesskap og funne mange måtar å leva side ved side. Sakte men sikkert har andre familiar begynt å slå seg ned rundt dei.
+Eselbarnet og mor hans har utvikla seg i fellesskap og funne mange måtar å leva side ved side. Sakte men sikkert har andre familiar byrja å slå seg ned rundt dei.
 
 ##
 * License: [CC-BY]
