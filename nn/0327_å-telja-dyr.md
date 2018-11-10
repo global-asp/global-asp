@@ -19,7 +19,7 @@ Sju sebraer spring mot vatnet.
 Åtte froskar og ni fiskar sym i vatnet.
 
 ##
-Éin løve brølar. Han vil òg drikka. Kven er redd for løva?
+Éi løve brølar. Ho vil òg drikka. Kven er redd for løva?
 
 ##
 Éin elefant drikk vatn med løva.
