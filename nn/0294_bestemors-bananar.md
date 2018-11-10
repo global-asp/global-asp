@@ -13,7 +13,7 @@ Det var så interessant å sjå på bestemor, bananane, bananblada og den store 
 Då eg kom tilbake, sat bestemor utanfor, men med verken korga eller bananane. "Bestemor, kor er korga, kor er bananane, og kor ..." Men det einaste svaret eg fekk, var: "Dei er på den magiske staden min." Det var så skuffande!
 
 ##
-To dagar seinare bad bestemor meg om å henta stokken hennar frå soverommet. Så snart eg opna døra, vart eg møtt av den sterke lukta av modne bananar. I det inste rommet var den store magiske stråkorga til bestemor. Han var godt gøymd av eit gammalt teppe. Eg løfta det og lukta på den vedunderlege dufta.
+To dagar seinare bad bestemor meg om å henta stokken hennar frå soverommet. Så snart eg opna døra, vart eg møtt av den sterke lukta av modne bananar. I det inste rommet var den store magiske stråkorga til bestemor. Han var godt gøymd av eit gammalt teppe. Eg løfta det og lukta på den vedunderlege angen.
 
 ##
 Stemma til bestemor skremde meg då ho ropte: "Kva held du på med?" "Skund deg og ta med stokken." Eg skunda meg ut med stokken hennar. "Kva er det du smiler for?" spurde bestemor. Spørsmålet hennar fekk meg til å innsjå at eg enno smilte over oppdaginga av den magiske staden hennar.
