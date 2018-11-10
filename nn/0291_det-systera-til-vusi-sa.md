@@ -13,7 +13,7 @@ På veg til foreldra sine møtte Vusi to gutar som plukka frukt. Éin gut snappa
 Gutane var lei seg for at dei erta Vusi. "Vi kan ikkje hjelpa deg med kaka, men her er ein kjepp til syster di", sa han eine. Vusi heldt fram på reisa.
 
 ##
-På vegen møtte han to menn som bygde eit hus. "Kan vi bruka den sterke kjeppen?" spurde den eine. Men kjeppen var ikkje sterk nok for bygningen, så han knakk.
+På vegen møtte han to menn som bygde eit hus. "Kan vi bruka den sterke kjeppen?" spurde han eine. Men kjeppen var ikkje sterk nok for bygningen, så han knakk.
 
 ##
 "Kva har du gjort?" ropte Vusi. "Den kjeppen var ei gåve til syster mi. Fruktplukkarane gav meg den kjeppen fordi dei knuste egget som var meint for kaka. Kaka var meint for bryllaupet til syster mi. No er det ikkje noko egg, ikkje noka kake, og ikkje noka gåve. Kva kjem syster mi til å seia?"
