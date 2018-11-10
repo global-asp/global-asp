@@ -31,7 +31,7 @@ Flere folk kommer til salgsboden. De kjøper Toms bananer og spiser dem.
 Kassen blir fort tom. Tom teller pengene han har tjent.
 
 ##
-Deretter kjøper Tom såpe, sukker og brød. Han putter varene i boksen.
+Deretter kjøper Tom såpe, sukker og brød. Han putter varene i kassen.
 
 ##
 Tom balanserer kassen på hodet og går hjem.
