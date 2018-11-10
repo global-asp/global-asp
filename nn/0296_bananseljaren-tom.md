@@ -28,10 +28,10 @@ Kvinna kjøper bananane.
 Fleire folk kjem til salsbua. Dei kjøper Tom sine bananar og et dei.
 
 ##
-Kassen vert fort tom. Tom tel pengane han har tent.
+Kassa vert fort tom. Tom tel pengane han har tent.
 
 ##
-Deretter kjøper Tom såpe, sukker og brød. Han puttar varene i boksen.
+Deretter kjøper Tom såpe, sukker og brød. Han puttar varene i kassa.
 
 ##
 Tom balanserer kassa på hovudet og går heim.
