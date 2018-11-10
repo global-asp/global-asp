@@ -1,7 +1,7 @@
 # Den dagen eg drog heimanfrå for å dra til byen
 
 ##
-Den vesle busstasjonen i landsbyen min var travel og stappfull av busser. På bakken var det fleire ting som skulle lastast. Medhjelparane ropte namna på stadane dit bussane gjekk.
+Den vesle busstasjonen i landsbyen min var travel og stappfull av bussar. På bakken var det fleire ting som skulle lastast. Medhjelparane ropte namna på stadane dit bussane gjekk.
 
 ##
 "Byen! Byen! Vestover!" høyrde eg ein medhjelpar ropa. Det var bussen eg måtte ta.
@@ -31,7 +31,7 @@ Desse aktivitetane vart avbrotne av tutinga til bussen, eit teikn på at vi var 
 Gateseljarar dytta kvarandre for å koma seg ut av bussen. Nokre gav tilbake vekslepengar til dei reisande. Andre freista i siste liten å selja nokre fleire varer.
 
 ##
-Idet bussen forlét busstasjonen, stira eg ut av vindauget. Eg lurte på om eg nokosinne skulle koma tilbake til landsbyen min igjen.
+I det bussen forlét busstasjonen, stira eg ut av vindauget. Eg lurte på om eg nokosinne skulle koma tilbake til landsbyen min igjen.
 
 ##
 Etter kvart som reisa heldt fram vart det veldig varmt i bussen. Eg lukka auga og håpte å få sova.
@@ -40,13 +40,13 @@ Etter kvart som reisa heldt fram vart det veldig varmt i bussen. Eg lukka auga o
 Men tankane mine vandra heim. Kjem mor mi til å verta trygg? Kjem kaninane mine til å innbringe nokre pengar? Kjem bror min til å hugsa å vatna dei nyutsprungne trea mine?
 
 ##
-På vegen lærte eg meg utanåt namnet på staden i den store byen der onkel min budde. Eg mumla enno då eg fall i søvn.
+På vegen lærte eg meg utanåt namnet på staden i den store byen der onkelen min budde. Eg mumla enno då eg fall i søvn.
 
 ##
 Ni timar seinare vakna eg av høglydt banking og roping etter passasjerar som skulle tilbake til landsbyen min. Eg greip fatt i den vesle veska mi og hoppa ut av bussen.
 
 ##
-Bussen som skulle tilbake vart fylt opp fort. Det viktigaste for meg no var å byrja å leita etter huset til onkel min.
+Bussen som skulle tilbake vart fylt opp fort. Det viktigaste for meg no var å byrja å leita etter huset til onkelen min.
 
 ##
 * License: [CC-BY]
