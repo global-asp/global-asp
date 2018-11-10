@@ -1,10 +1,10 @@
 # Sakimas song
 
 ##
-Sakima budde saman med foreldra sine og sn fire år gamle syster. Dei budde på eigedomen til ein rik mann. Hytta deira hadde stråtak og låg ved enden av ei rad med tre.
+Sakima budde saman med foreldra sine og si fire år gamle syster. Dei budde på eigedomen til ein rik mann. Hytta deira hadde stråtak og låg ved enden av ei rad med tre.
 
 ##
-Då Sakima var tre år gammal, vart han sjuk og miste synet. Sakima var ein gut med mange talentar.
+Då Sakima var tre år gammal, vart han sjuk og miste synet. Sakima var ein gut med mange talent.
 
 ##
 Sakima kunne mange ting som andre seksåringar ikkje kunne. Til dømes kunne han sitja med eldre landsbymedlemmar og diskutera viktige saker.
@@ -43,7 +43,7 @@ Neste dag bad Sakima veslesyster si om å leia han til huset til den rike mannen
 Han stod nedanfor eit stort vindauge og byrja å synga favorittsongen sin. Sakte byrja hovudet til den rike mannen å visa seg gjennom det store vindauget.
 
 ##
-Arbeidarane stoppa det dei halde på med. Dei høyrde på den vene songen til Sakima. Men éin mann sa: "Ingen har vore i stand til å trøysta sjefen. Trur denne blinde guten at han kan trøysta han?"
+Arbeidarane stoppa det dei heldt på med. Dei høyrde på den vene songen til Sakima. Men éin mann sa: "Ingen har vore i stand til å trøysta sjefen. Trur denne blinde guten at han kan trøysta han?"
 
 ##
 Sakima var ferdig med å synga songen og snudde seg for å dra. Men den rike mannen skunda seg ut og sa: "Ver så snill og syng igjen."
