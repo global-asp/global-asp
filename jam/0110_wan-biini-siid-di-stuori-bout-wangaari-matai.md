@@ -10,7 +10,7 @@ Wangaari lov fi de outaduo. Inna ar fambili fuud gyaadn shi dig op di dort wid d
 Ar fievaret taim a die a inna di iivlin afta di son gaan dong. Wen it get tuu daak fi si di flouwaz dem, Wangaari nuo se a taim fi go a ar yaad. Shi wuda tek di likl trak dem chuu di fiil dem, an a kraas som riva pan ar wie.
 
 ##
-Wangaari a did wan smaat pikni an kudn wiet fi go a skuul. Bot ar mada an faada did waant ar fi stie uom an elp dem a di yaad. Wen shi ton sevn iez-uol, ar big bredda kanvins ar pierens dem fi mek shi go skuul.
+Wangaari a did wan smaat pikni an kudn wiet fi go a skuul. Bot ar mada an faada did waan ar fi stie uom an elp dem a di yaad. Wen shi ton sevn iez-uol, ar big bredda kanvins ar pierens dem fi mek shi go skuul.
 
 ##
 Shi did laik lorn! Wangaari lorm muor an mour wid evri buk shi riid. Shi du so gud inna skuul so dat dem aks ar fi kom a skuul kom stodi inna Merika. Wangaari di wel api! Shi did waahn nuo muor bout di worl.
