@@ -16,7 +16,7 @@ Wangaari a did wan smaat pikni an kudn wiet fi go a skuul. Bot ar mada an faada 
 Shi did laik lorn! Wangaari lorm muor an mour wid evri buk shi riid. Shi du so gud inna skuul so dat dem aks ar fi kom a skuul kom stodi inna Merika. Wangaari di wel api! Shi did waahn nuo muor bout di worl.
 
 ##
-A di Yuunivosrti inna Merika Wangaari lorn uoliip a nyuu tingz. Shi stodi bout plaant an ou dem gruo. An shi did memba ou shi did gruo op a plie giem wid ar bredda dem and di kuul shied inna di Kenyan faris dem.
+A di yuunivorsti inna Merika Wangaari lorn uoliip a nyuu tingz. Shi stodi bout plaant an ou dem gruo. An shi did memba ou shi did gruo op a plie giem wid ar bredda dem and di kuul shied inna di Kenyan faris dem.
 
 ##
 Di muor shi lorn, di muor shi riyalaiz se shi lov di Kenya piipl dem. Shi di waahn dem fi bi api an frii. Di muor shi lorn, shi muor si memba ar yaad inna Afrika.
