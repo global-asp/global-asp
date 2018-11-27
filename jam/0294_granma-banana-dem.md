@@ -19,7 +19,7 @@ Tuu die afta dat, Granmaa sen mi inna ar bedruum fi ar waakin stik. Az suuhn az 
 Granmaa vais fraitn mi wen shi kaal mi, "We yu a du? Ori op an bring mi stik kom." Mi ori op an kom out wid ar waakin stik. "We yu a smail bout?" Granmaa aks se. A wen shi aks mi riyalaiz se mi stil did a smail bout ou mi fain out ar majik plies.
 
 ##
-Di neks die wen Granmaa kom visit mi mada, mi buolt go a ar yaad fi chek di banana agen. Wahn wel raip bonch did de de. Afta mi kova di baaskit agen, mi go biyain a di ous an it wan kwik-kwik. A did di swiitis banana mi eva ties.
+Di neks die wen Granmaa kom vizit mi mada, mi buolt go a ar yaad fi chek di banana agen. Wahn wel raip bonch did de de. Afta mi kova di baaskit agen, mi go biyain a di ous an it wan kwik-kwik. A did di swiitis banana mi eva ties.
 
 ##
 Di neks die, wen Granmaa did inna di gyaadn a pik vegitebl, mi sniik go iihn an luk pan di banana dem. Nieli aal a dem raip. Mi kudn elp bot fi tek a bonch a fuor a dem. Az mi a tiptuo go a di duor, mi ier Granmaa a kaaf outsaid. Mi bieli manij fi aid di banana dem anda mi frak an waak paas ar.
