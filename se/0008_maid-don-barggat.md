@@ -1,25 +1,25 @@
 # Maid don barggat?
 
 ##
-Mun lávllun
+Mun lávllun.
 
 ##
-Son seavva
+Son seavva.
 
 ##
-Mun speažžun gieđaid
+Mun speažžun gieđaid.
 
 ##
-Son fanaha gieđaid
+Son fanaha gieđaid.
 
 ##
-Son huika
+Son huika.
 
 ##
-Mun vástidan
+Mun vástidan.
 
 ##
-Son guldala
+Son guldala.
 
 ##
 Maid don barggat?
