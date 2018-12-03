@@ -7,7 +7,7 @@ Mun lávllun.
 Son seavva.
 
 ##
-Mun speažžun gieđaid.
+Mun speaččun gieđaid.
 
 ##
 Son fanaha gieđaid.
