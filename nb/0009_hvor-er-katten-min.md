@@ -7,7 +7,7 @@ Hvor er katten min?
 Er den under sengen?
 
 ##
-Er den på toppen av skapet?
+Er den oppå skapet?
 
 ##
 Er den bak sofaen?
