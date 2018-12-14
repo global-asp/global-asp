@@ -26,7 +26,7 @@ De andra barnen sprang till sina hyddor, men när Akatope sprang till sin, börj
 De andra barnen berättade sina föräldrar vad som hade hänt med Akapope. De var upprörda och chockade.
 
 ##
-När den gamla damen hörde vad som hade drabbat hennes barn, grät hon i flera dagar. Byborna  beslutade att ta med en annan liten flicka som hade blivit föräldralös för att ta Akatopes plats.
+När den gamla damen hörde vad som hade drabbat hennes barn, grät hon i flera dagar. Byborna beslutade att ta med en annan liten flicka som hade blivit föräldralös för att ta Akatopes plats.
 
 ##
 Men det var inte nödvändigt. En stor överraskning väntade den gamla damen!
