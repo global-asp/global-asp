@@ -37,7 +37,7 @@ Mọi người tụ tập dưới bóng cây lớn và lắng nghe.
 Bố tôi đứng dậy và nói "Chúng ta cần chung sức giải quyết những vấn đề này."
 
 ##
-Cậu bé tám tuổi tên Juma rõng rạc " Con sẽ giúp dọn rác."
+Cậu bé tám tuổi tên Juma rõng rạc "Con sẽ giúp dọn rác."
 
 ##
 Một người phụ nữ bảo "Chúng tôi sẽ góp sức trồng trọt."
@@ -46,7 +46,7 @@ Một người phụ nữ bảo "Chúng tôi sẽ góp sức trồng trọt."
 Một người đàn ông khác bảo "Những người đàn ông có thể đào một cái giếng."
 
 ##
-Mọi người đều đồng thanh " Chúng ta phải thay đổi cuộc sống này". Từ hôm đó, chúng tôi cùng chung tay giải quyết những khó khăn trong làng.
+Mọi người đều đồng thanh "Chúng ta phải thay đổi cuộc sống này". Từ hôm đó, chúng tôi cùng chung tay giải quyết những khó khăn trong làng.
 
 ##
 * License: [CC-BY]
