@@ -7,7 +7,7 @@ Pinanood ni Andiswa ang mga batang lalaking naglalaro ng soccer. Gustong-gusto n
 "Dito sa iskul, lalaki lang pwedeng maglaro," sabi ng coach nang nakapamewang.
 
 ##
-KInantiyawan si Andiswa ng mga batang lalaki at sinabing mas bagay siya sa netball na pambabaeng laro. Nainis si Andiswa.
+Kinantiyawan si Andiswa ng mga batang lalaki at sinabing mas bagay siya sa netball na pambabaeng laro. Nainis si Andiswa.
 
 ##
 Sa sumunod na araw, may malaking laban sa iskul. Nag-alala ang coach kasi maysakit ang pinakamagaling niyang manlalaro.
