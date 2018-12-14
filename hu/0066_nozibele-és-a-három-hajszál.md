@@ -25,7 +25,7 @@ Meglepetésére egy kutya nyitott ajtót. "Mit akarsz itt?" "Eltévedtem és sz�
 Aztán így szólt a kutya: "Főzz nekem!" "De én még sohasem főztem kutyának." - válaszolta a lány. "Főzz nekem vagy megharaplak!" - mondta a kutya. Így Nozibele ételt főzött a kutyának.
 
 ##
-Aztán így szólt a kutya: "Ágyazz meg nekem!" "De én még sohasem ágyaztam meg kutyának." - válaszolt Nozibele. " Ágyazz meg nekem vagy megharaplak!" - mondta a kutya. Így Nozibele megágyazott.
+Aztán így szólt a kutya: "Ágyazz meg nekem!" "De én még sohasem ágyaztam meg kutyának." - válaszolt Nozibele. "Ágyazz meg nekem vagy megharaplak!" - mondta a kutya. Így Nozibele megágyazott.
 
 ##
 Nozibele minden nap főzött, takarított és mosott a kutyára. Egy nap a kutya így szólt: "Nozibele ma meglátogatom a barátaimat. Söpörd fel a padlót, főzz ételt és mosd ki a dolgaimat mielőtt visszajövök!"
