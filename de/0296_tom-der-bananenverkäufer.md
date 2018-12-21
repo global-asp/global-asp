@@ -13,7 +13,7 @@ Die Leute auf dem Markt kaufen Obst.
 Aber niemand kauft Toms Bananen. Sie kaufen lieber Obst von Frauen.
 
 ##
-“In unserer Gemeinschaft verkaufen nur Frauen Obst“, sagen die Leute. „Was ist denn das für ein Mann?“, fragen die Leute.
+„In unserer Gemeinschaft verkaufen nur Frauen Obst“, sagen die Leute. „Was ist denn das für ein Mann?“, fragen die Leute.
 
 ##
 Aber Tom gibt nicht auf. Er ruft: „Kauft meine Bananen! Kauft meine süßen, reifen Bananen!“
