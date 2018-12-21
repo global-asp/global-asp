@@ -28,7 +28,7 @@ Sakima sang gern für seine kleine Schwester, besonders, wenn sie Hunger hatte. 
 Eines Abends als seine Eltern nach Hause kamen, waren sie sehr still. Sakima wusste, dass etwas nicht in Ordnung war.
 
 ##
-“Was ist los, Mutter, Vater?“, fragte Sakima. Sakima erfuhr, dass der Sohn des reichen Mannes vermisst wurde. Der Mann war sehr traurig und einsam.
+„Was ist los, Mutter, Vater?“, fragte Sakima. Sakima erfuhr, dass der Sohn des reichen Mannes vermisst wurde. Der Mann war sehr traurig und einsam.
 
 ##
 „Ich kann für ihn singen. Vielleicht stimmt ihn das wieder glücklich“, erzählte Sakima seinen Eltern. Aber seine Eltern lehnten ab: „Er ist sehr reich. Du bist nur ein blinder Junge. Glaubst du ein Lied hilft ihm?“
