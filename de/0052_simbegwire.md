@@ -7,7 +7,7 @@ Als ihre Mutter starb, war Simbegwire sehr traurig. Simbewires Vater kümmerte s
 Eines Tages kam Simbegwires Vater später als üblich nach Hause. „Wo bist du, mein Kind?“, rief er. Simbegwire lief zu ihm. Sie blieb stehen, als sie sah, dass er die Hand einer Frau hielt. „Ich möchte dir jemand besonderen vorstellen, mein Kind. Das ist Anita“, sagte er lächelnd.
 
 ##
-“Hallo Simbegwire, dein Vater hat mir viel von dir erzählt“, sagte Anita. Aber weder lächelte sie, noch nahm sie die Hand des Mädchens. Simbegwires Vater war glücklich und erfreut. Er sprach davon, dass die drei zusammenleben und wie schön ihr Leben dann wäre. „Mein Kind, ich hoffe, du akzeptierst Anita als deine Mutter“, sagte er.
+„Hallo Simbegwire, dein Vater hat mir viel von dir erzählt“, sagte Anita. Aber weder lächelte sie, noch nahm sie die Hand des Mädchens. Simbegwires Vater war glücklich und erfreut. Er sprach davon, dass die drei zusammenleben und wie schön ihr Leben dann wäre. „Mein Kind, ich hoffe, du akzeptierst Anita als deine Mutter“, sagte er.
 
 ##
 Simbegwires Leben veränderte sich. Sie hatte keine Zeit mehr, um morgens mit ihrem Vater zu sitzen. Anita gab ihr viel Hausarbeit und abends war sie zu müde von der Schule. Sie ging nach dem Abendessen direkt ins Bett. Der einzige Trost war die bunte Decke, die sie von ihrer Mutter hatte. Simbegwires Vater schien nicht zu bemerken, dass seine Tochter unglücklich war.
