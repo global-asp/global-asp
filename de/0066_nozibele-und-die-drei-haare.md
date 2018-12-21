@@ -20,8 +20,8 @@ In der Ferne erblickte sie Licht in einer Hütte. Sie lief schnell hinüber und 
 
 ##
 Zu ihrer Überraschung öffnete ein Hund die Tür und sagte: „Was willst du?“
-“Ich habe mich verlaufen und brauche einen Schlafplatz“, antwortete Nozibele.
-“Komm herein oder ich beiße dich!“, drohte der Hund. Also trat Nozibele ein.
+„Ich habe mich verlaufen und brauche einen Schlafplatz“, antwortete Nozibele.
+„Komm herein oder ich beiße dich!“, drohte der Hund. Also trat Nozibele ein.
 
 ##
 Dann verlangte der Hund: „Koch für mich!“
