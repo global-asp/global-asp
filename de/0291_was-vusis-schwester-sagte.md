@@ -25,7 +25,7 @@ Den Bauarbeitern tat es leid, dass sie den Stock durchgebrochen hatten. „Wir k
 Unterwegs traf Vusi eine Kuh. „Was für leckeres Stroh, kann ich ein bisschen davon?“ fragte die Kuh. Aber das Stroh war so lecker, dass die Kuh es ganz auffraß!
 
 ##
-“Was hast du getan?“ rief Vusi. „Dieses Stroh war ein Geschenk für meine Schwester. Die Bauarbeiter gaben es mir, weil sie den Stock von den Obstpflückern kaputt gemacht haben. Die Obstpflücker gaben mir den Stock, weil sie das Ei für die Torte meiner Schwester kaputt gemacht haben. Die Torte war für die Hochzeit meiner Schwester. Jetzt habe ich kein Ei, keine Torte und kein Geschenk. „Was wird meine Schwester sagen?“
+„Was hast du getan?“ rief Vusi. „Dieses Stroh war ein Geschenk für meine Schwester. Die Bauarbeiter gaben es mir, weil sie den Stock von den Obstpflückern kaputt gemacht haben. Die Obstpflücker gaben mir den Stock, weil sie das Ei für die Torte meiner Schwester kaputt gemacht haben. Die Torte war für die Hochzeit meiner Schwester. Jetzt habe ich kein Ei, keine Torte und kein Geschenk. „Was wird meine Schwester sagen?“
 
 ##
 Der Kuh tat es leid, dass sie gierig gewesen war. Der Bauer ließ die Kuh als Geschenk für seine Schwester mit Vusi gehen. Und so lief Vusi weiter.
@@ -34,7 +34,7 @@ Der Kuh tat es leid, dass sie gierig gewesen war. Der Bauer ließ die Kuh als Ge
 Aber die Kuh lief zur Abendessenszeit zurück zum Bauern. Und Vusi verlief sich auf seiner Reise. Er kam erst sehr spät zur Hochzeit seiner Schwester. Die Gäste waren schon beim Essen.
 
 ##
-“Was soll ich nur tun?“ rief Vusi. „Die entlaufene Kuh war ein Geschenk als Gegenleistung für das Stroh, dass die Bauarbeiter mir gegeben haben, weil sie den Stock von den Obstpflückern kaputt gemacht haben. Die Obstpflücker gaben mir den Stock, weil sie das Ei für die Torte kaputt gemacht haben. Die Torte war für die Hochzeit. Jetzt gibt es kein Ei, keine Torte, und kein Geschenk.“
+„Was soll ich nur tun?“ rief Vusi. „Die entlaufene Kuh war ein Geschenk als Gegenleistung für das Stroh, dass die Bauarbeiter mir gegeben haben, weil sie den Stock von den Obstpflückern kaputt gemacht haben. Die Obstpflücker gaben mir den Stock, weil sie das Ei für die Torte kaputt gemacht haben. Die Torte war für die Hochzeit. Jetzt gibt es kein Ei, keine Torte, und kein Geschenk.“
 
 ##
 Vusis Schwester dachte eine Weile nach und sagte dann: „Vusi, mein Bruder, ich mache mir nichts aus Geschenken. Noch nicht einmal aus der Torte! Wir sind hier alle zusammen, ich bin glücklich. Jetzt zieh deine schicken Sachen an und lass uns diesen Tag feiern!“ Und das tat Vusi!
