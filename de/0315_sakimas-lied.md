@@ -22,7 +22,7 @@ Sakima antwortete: „Sie kommen mir einfach, Mutter. Ich höre sie in meinem Ko
 Sakima sang gern für seine kleine Schwester, besonders, wenn sie Hunger hatte. Seine Schwester hörte ihm beim Singen seines Lieblingsliedes zu. Sie wiegte im Takt zu der beruhigenden Melodie.
 
 ##
-“Kannst du es wieder und wieder singen, Sakima?“, bat ihn seine Schwester. Sakima stimmte zu und sang immer wieder.
+„Kannst du es wieder und wieder singen, Sakima?“, bat ihn seine Schwester. Sakima stimmte zu und sang immer wieder.
 
 ##
 Eines Abends als seine Eltern nach Hause kamen, waren sie sehr still. Sakima wusste, dass etwas nicht in Ordnung war.
@@ -31,7 +31,7 @@ Eines Abends als seine Eltern nach Hause kamen, waren sie sehr still. Sakima wus
 “Was ist los, Mutter, Vater?“, fragte Sakima. Sakima erfuhr, dass der Sohn des reichen Mannes vermisst wurde. Der Mann war sehr traurig und einsam.
 
 ##
-“Ich kann für ihn singen. Vielleicht stimmt ihn das wieder glücklich“, erzählte Sakima seinen Eltern. Aber seine Eltern lehnten ab: „Er ist sehr reich. Du bist nur ein blinder Junge. Glaubst du ein Lied hilft ihm?“
+„Ich kann für ihn singen. Vielleicht stimmt ihn das wieder glücklich“, erzählte Sakima seinen Eltern. Aber seine Eltern lehnten ab: „Er ist sehr reich. Du bist nur ein blinder Junge. Glaubst du ein Lied hilft ihm?“
 
 ##
 Trotzdem gab Sakima nicht auf. Seine kleine Schwester unterstützte ihn. Sie meinte: „Sakimas Lieder trösten mich, wenn ich Hunger habe. Sie werden auch den reichen Mann trösten.“
