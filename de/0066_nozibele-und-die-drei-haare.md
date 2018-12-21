@@ -25,13 +25,13 @@ Zu ihrer Überraschung öffnete ein Hund die Tür und sagte: „Was willst du?�
 
 ##
 Dann verlangte der Hund: „Koch für mich!“
-“Aber ich habe noch nie für einen Hund gekocht“, antwortete Nozibele.
-“Koch oder ich beiße dich!“, kläffte der Hund. Also kochte Nozibele dem Hund etwas.
+„Aber ich habe noch nie für einen Hund gekocht“, antwortete Nozibele.
+„Koch oder ich beiße dich!“, kläffte der Hund. Also kochte Nozibele dem Hund etwas.
 
 ##
 Dann meinte der Hund: „Mach mein Bett für mich!“
 Nozibele antwortete: „Ich habe noch nie einem Hund das Bett gemacht.“
-“Mach das Bett oder ich beiße dich!“, kläffte der Hund. Also machte Nozibele das Bett.
+„Mach das Bett oder ich beiße dich!“, kläffte der Hund. Also machte Nozibele das Bett.
 
 ##
 Jeden Tag musste sie für den Hund kochen und kehren und waschen. Dann sagte der Hund eines Tages: „Nozibele, heute kommen einige Freunde zu Besuch. Kehre das Haus, koch das Essen und wasch meine Sachen, bevor ich zurück bin.“
