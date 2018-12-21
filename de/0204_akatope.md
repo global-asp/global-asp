@@ -34,7 +34,7 @@ Aber das war nicht nötig. Eine große Überraschung erwartete die ältere Frau!
 Einige Tage nachdem das Waisenmädchen von der älteren Frau aufgenommen wurde, erklang ein leises Klopfen an der Türe.
 
 ##
-"Wer könnte das sein?", fragte sich die ältere Frau. Als sie die Türe öffnete, konnte sie ihre Freude nicht zurückhalten.
+„Wer könnte das sein?“, fragte sich die ältere Frau. Als sie die Türe öffnete, konnte sie ihre Freude nicht zurückhalten.
 
 ##
 Akatope war zurück nach Hause gekommen. Aber sie war müde und krank.
