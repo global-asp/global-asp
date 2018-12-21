@@ -22,7 +22,7 @@ Als der letzte Vogel die geliehene Nadel zurückbrachte, war Henne nicht da. Als
 Später am Nachmittag kam Adler zurück. Sie fragte nach der Nadel, um einige Federn, die sich beim Flug gelockert hatten, zu reparieren. Henne sah auf dem Schrank nach. Sie sah in der Küche nach. Sie sah im Garten nach. Aber die Nadel war nirgends zu finden.
 
 ##
-“Gib mir bloß einen Tag“, bat Henne Adler. „Dann kannst du deinen Flügel reparieren und davonfliegen, um Essen zu holen.“ „Nur ein Tag“, sagte Adler, „Wenn du die Nadel bis dann nicht findest, musst du mir eins deiner Küken zur Wiedergutmachung geben.“
+„Gib mir bloß einen Tag“, bat Henne Adler. „Dann kannst du deinen Flügel reparieren und davonfliegen, um Essen zu holen.“ „Nur ein Tag“, sagte Adler, „Wenn du die Nadel bis dann nicht findest, musst du mir eins deiner Küken zur Wiedergutmachung geben.“
 
 ##
 Als Adler am nächsten Tag vorbeikam, fand sie Henne im Sand scharren, aber ohne Nadel. Daher ging Adler in den Sturzflug und schnappte sich eins der Küken. Sie trug es davon. Seitdem, immer wenn Adler auftaucht, sieht sie Henne im Sand auf der Suche nach der Nadel scharren.
