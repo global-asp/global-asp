@@ -7,7 +7,7 @@ Eines frühen Morgens rief Omi Vusi: „Vusi, bitte bring deinen Eltern dieses E
 Auf dem Weg zu seinen Eltern traf Vusi zwei Jungen die Obst pflückten. Ein Junge griff nach Vusis Ei und schoss es gegen einen Baum. Das Ei zerbrach.
 
 ##
-“Was hast du getan?“, rief Vusi. „Dieses Ei war für eine Torte. Die Torte war für die Hochzeit meiner Schwester. Was wird meine Schwester sagen, wenn es keine Hochzeitstorte gibt?“
+„Was hast du getan?“, rief Vusi. „Dieses Ei war für eine Torte. Die Torte war für die Hochzeit meiner Schwester. Was wird meine Schwester sagen, wenn es keine Hochzeitstorte gibt?“
 
 ##
 Den Jungen tat es leid, dass sie Vusi geärgert hatten. „Wir können nicht mit der Torte helfen, aber hier ist ein Gehstock für deine Schwester“, sagte einer. Vusi setzte seine Reise fort.
@@ -16,7 +16,7 @@ Den Jungen tat es leid, dass sie Vusi geärgert hatten. „Wir können nicht mit
 Unterwegs traf er zwei Männer, die ein Haus bauten. „Können wir den stabilen Stock benutzen?“, fragte einer. Aber der Stock war nicht hart genug für das Haus und brach.
 
 ##
-“Was hast du getan?“, rief Vusi. „Dieser Stock war ein Geschenk für meine Schwester. Die Obstpflücker gaben mir den Stock, weil sie mein Ei für die Torte zerbrochen haben. Die Torte war für die Hochzeit meiner Schwester. Jetzt habe ich kein Ei, keine Torte und kein Geschenk. Was wird meine Schwester bloß sagen?“
+„Was hast du getan?“, rief Vusi. „Dieser Stock war ein Geschenk für meine Schwester. Die Obstpflücker gaben mir den Stock, weil sie mein Ei für die Torte zerbrochen haben. Die Torte war für die Hochzeit meiner Schwester. Jetzt habe ich kein Ei, keine Torte und kein Geschenk. Was wird meine Schwester bloß sagen?“
 
 ##
 Den Bauarbeitern tat es leid, dass sie den Stock durchgebrochen hatten. „Wir können dir mit der Torte nicht helfen, aber hier ist etwas Stroh für deine Schwester“, meinte einer von ihnen. Und so setzte Vusi seine Reise fort.
