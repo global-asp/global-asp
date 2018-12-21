@@ -7,7 +7,7 @@ Mein kleiner Bruder schläft lange. Ich wache früh auf weil ich toll bin.
 Ich bin diejenige, die die Sonne herein lässt.
 
 ##
-“Du bist mein Morgenstern“, sagt Ma.
+„Du bist mein Morgenstern“, sagt Ma.
 
 ##
 Ich wasche mich. Ich brauche keine Hilfe.
