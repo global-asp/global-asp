@@ -4,7 +4,7 @@
 Der kleine Busbahnhof in meinem Dorf war voll mit Leuten und überladenen Bussen und auf dem Boden lag noch mehr Gepäck, das verladen werden musste. Händler riefen die Namen der Städte, wo ihre Busse hinfuhren.
 
 ##
-“Stadt! Stadt! Richtung Westen!“ hörte ich einen Händler rufen. Diesen Bus musste ich nehmen.
+„Stadt! Stadt! Richtung Westen!“ hörte ich einen Händler rufen. Diesen Bus musste ich nehmen.
 
 ##
 Der Bus in die Stadt war fast voll, aber mehr Menschen versuchten, noch einen Platz zu ergattern. Manche verstauten ihr Gepäck unter dem Bus, andere auf den Ablagen drinnen.
