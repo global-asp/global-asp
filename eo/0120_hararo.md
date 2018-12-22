@@ -10,19 +10,19 @@ Anna havas longan hararon.
 Cathy havas la plej longan hararon.
 
 ##
-Zama plektis la hararon.
+Zama plektis sian hararon.
 
 ##
 Baba havas barbon.
 
 ##
-Zanele kombis la hararon.
+Zanele kombis sian hararon.
 
 ##
-Thabo tondis la hararon.
+Thabo tondis sian hararon.
 
 ##
-Themba razis la hararon.
+Themba razis sian hararon.
 
 ##
 * License: [CC-BY-NC]
