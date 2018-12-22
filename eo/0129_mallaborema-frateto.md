@@ -19,7 +19,7 @@ Mi balaas la plankon.
 Mi lavas la manĝilaron.
 
 ##
-Kial mi tiel pene laboras... ... tiam mi frateto nur okupiĝis pri ludado?
+Kial mi tiel pene laboras... ... kiam mia frateto nur okupiĝas pri ludado?
 
 ##
 * License: [CC-BY-NC]
