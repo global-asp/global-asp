@@ -28,7 +28,7 @@ Avinjo kaŝis Tingi-on sub la folioj.
 Unu el la soldatoj paŝis ĝuste sur li, sed li restis silenta.
 
 ##
-Tiam ĉio sendanĝeris denove, Tingi kaj sia avino elvenis.
+Kiam ĉio sendanĝeris denove, Tingi kaj lia avino elvenis.
 
 ##
 Ili alproksimiĝis hejmon tre silente.
