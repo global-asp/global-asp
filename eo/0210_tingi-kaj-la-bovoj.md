@@ -13,7 +13,7 @@ Iun tagon, la soldatoj venis.
 Ili forprenis la bovojn.
 
 ##
-Tingi kaj sia avino forkuris kaj kaŝis ilin.
+Tingi kaj lia avino forkuris kaj kaŝis ilin.
 
 ##
 Ili kaŝis ilin en la arbaro.
