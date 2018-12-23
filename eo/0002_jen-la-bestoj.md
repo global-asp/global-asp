@@ -1,7 +1,7 @@
-# Jen la animaloj
+# Jen la bestoj
 
 ##
-Jen la animaloj.
+Jen la bestoj.
 
 ##
 La bovo diras "muu".
