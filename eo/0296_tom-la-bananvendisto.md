@@ -1,4 +1,4 @@
-# Tom la bananovendisto
+# Tom la bananvendisto
 
 ##
 Tom portas pleton da maturaj bananoj.
