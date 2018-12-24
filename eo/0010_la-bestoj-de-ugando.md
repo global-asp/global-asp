@@ -7,10 +7,10 @@
 Ĉi tio estas elefanto. Virelefantoj havas blankajn dentegojn. Ili havas grandajn orelojn. Elefantaj havas longajn rostrojn, per kiuj ili deŝiras la foliojn de la arboj. Elefantaj manĝas herbojn kaj foliojn. Kiu koloro estas la elephant?
 
 ##
-Ĉi-tio estas krokodilo. Ĝi vivas en la riveroj kaj la lagoj. Ĝi havas longan voston. Ĝi povas malfermi sian buŝegon por manĝi fiŝojn kaj aliajn bestojn. Kiu koloro estas la krokodilo?
+Ĉi tio estas krokodilo. Ĝi vivas en la riveroj kaj la lagoj. Ĝi havas longan voston. Ĝi povas malfermi sian buŝegon por manĝi fiŝojn kaj aliajn bestojn. Kiu koloro estas la krokodilo?
 
 ##
-Ĉi tio estas leono. Ĝi havas grandajn dentojn por kapti manĝaĵojn. Virleonoj havas kolhararon. Kie estas la kolhararo de ĉi-tiu leono?
+Ĉi tio estas leono. Ĝi havas grandajn dentojn por kapti manĝaĵojn. Virleonoj havas kolhararon. Kie estas la kolhararo de ĉi tiu leono?
 
 ##
 Ĉi tio estas griza kronogruo. Ĝi estas la simbolo de la Ugando. Ĝi havas longajn krurojn kaj sur la kapo kronon. Kiu koloro estas la griza kronogruo?
