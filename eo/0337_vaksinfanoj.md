@@ -1,4 +1,4 @@
-# Vaksidoj
+# Vaksinfanoj
 
 ##
 Iam estis feliĉa familio.
@@ -22,7 +22,7 @@ Iun tagon, la sopiro estis tro forta. Liaj fratoj avertis lin...
 Sed jam estis tro malfrue! Li fluidiĝis per la varmega suno.
 
 ##
-La vaksidoj tiel malĝojis vidi la forfluidiĝon de ilia frato.
+La vaksinfanoj tiel malĝojis vidi la forfluidiĝon de ilia frato.
 
 ##
 Sed ili faris planon. Ili formis la fluidiĝitan vakson kaj kreis birdon.
