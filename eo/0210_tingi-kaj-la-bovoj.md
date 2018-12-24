@@ -22,7 +22,7 @@ Ili kaŝis ilin en la arbaro.
 Tiam la soldatoj revenis.
 
 ##
-Avinjo kaŝis Tingi-on sub la folioj.
+Avino kaŝis Tingi-on sub la folioj.
 
 ##
 Unu el la soldatoj paŝis ĝuste sur li, sed li restis silenta.
