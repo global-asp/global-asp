@@ -23,7 +23,7 @@ Nhưng nhà chòi của Nandahabi chúng tôi là đẹp nhất!
 
 ##
 * License: [CC-BY]
-* Text: Yusuf, Yvonne, Desire, Arafat, Judith, , Susan
+* Text: Yusuf, Yvonne, Desire, Arafat, Judith, Susan
 * Illustration: Magriet Brink, Rob Owen, Danica Strydom, Wiehan de Jager, Kathy Arbuckle
 * Translation: Nana Trang
 * Language: vi
