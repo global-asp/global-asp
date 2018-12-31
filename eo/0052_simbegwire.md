@@ -1,7 +1,7 @@
 # Simbegwire
 
 ##
-Kiam la patrino de Simbegwire mortis, ŝi ege malĝojis. La patro de Simbegwire faris laŭeble plej bone por varti sian filinon. Malrapide, ili eklernis kiel resenti sin feliĉaj, sen la patrino de Simbegwire. Ĉiumatene ili sidiĝis kaj parolis pri la venonta tago. Ĉiuvespere ili kune preparis vespermanĝon. Post kiam ili lavis la manĝilaron, la patro de Simbegwire helpis ŝin fari ŝian hejmtaskon.
+Kiam la patrino de Simbegwire mortis, ŝi ege malĝojis. La patro de Simbegwire faris laŭeble plej bone por varti sian filinon. Malrapide ili eklernis kiel denove senti sin feliĉaj, sen la patrino de Simbegwire. Ĉiumatene ili sidiĝis kaj parolis pri la venonta tago. Ĉiuvespere ili kune preparis vespermanĝon. Post kiam ili lavis la manĝilaron, la patro de Simbegwire helpis ŝin fari ŝian hejmtaskon.
 
 ##
 Iun tagon, la patro de Simbegwire malfrue revenis hejmen. "Kie vi estas, mia infano?" li vokis. Simbegwire kuris al sia patro. Ŝi haltis senmove kiam ŝi vidis ke li tenis la manon de iu virino. "Mi volas, ke vi renkontu iun specialan, mia infano. Jen Anita," li diris ridete.
