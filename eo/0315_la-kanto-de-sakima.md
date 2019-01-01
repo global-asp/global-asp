@@ -7,7 +7,7 @@ Sakima vivis kun sia gepatroj kaj sia kvarjara fratino. Ili vivis sur la tero de
 Kiam Sakima havis tri jarojn, li malsanis kaj perdis sian vidon. Sakima estis talentplena knabo.
 
 ##
-Sakima faris multajn aferojn, kiujn aliaj sesjara knaboj ne faris. Ekzemple, li povis sidi kun la pli aĝaj vilaĝanoj kaj diskuti gravajn aferojn.
+Sakima faris multajn aferojn, kiujn aliaj sesjaraj knaboj ne faris. Ekzemple, li povis sidi kun la pli aĝaj vilaĝanoj kaj diskuti gravajn aferojn.
 
 ##
 La geptraoj de Sakima laboris ĉe la domo de la riĉulo. Ili eliris la hejmon frue matene kaj revenis malfrue vespere. Sakima estis lasita kun sia fratineto.
