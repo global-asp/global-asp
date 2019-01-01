@@ -7,10 +7,10 @@ Sakima vivis kun sia gepatroj kaj sia kvarjara fratino. Ili vivis sur la tero de
 Kiam Sakima havis tri jarojn, li malsanis kaj perdis sian vidon. Sakima estis talentplena knabo.
 
 ##
-Sakima faris multajn aferojn, kiujn aliaj sesjara knaboj ne fareblis. Ekzemple, li povis sidi kun la pli aĝaj vilaĝanoj kaj diskuti gravajn aferojn.
+Sakima faris multajn aferojn, kiujn aliaj sesjara knaboj ne faris. Ekzemple, li povis sidi kun la pli aĝaj vilaĝanoj kaj diskuti gravajn aferojn.
 
 ##
-La geptraoj de Sakima laboris ĉe la domo de la riĉulo. Ili eliris la hejmon frue matene kaj revenis malfrue vespere. Sakima lasiĝis kun sia fratineto.
+La geptraoj de Sakima laboris ĉe la domo de la riĉulo. Ili eliris la hejmon frue matene kaj revenis malfrue vespere. Sakima estis lasita kun sia fratineto.
 
 ##
 Sakima ŝategis kanti kantojn. Iun tagon, lia patrino demandis lin, "De tie eklernis vi tiujn ĉi kantojn, Sakima?"
@@ -19,10 +19,10 @@ Sakima ŝategis kanti kantojn. Iun tagon, lia patrino demandis lin, "De tie ekle
 Sakima ripondis, "Ili simple venas, patrino. Mi aŭdas ilin en mia kapo kaj tiam mi kantas."
 
 ##
-Sakima ŝatis kanti por sia fratineto, precipe se ŝi malsatis. Lia fratino aŭskultus lin kantante lian plej ŝatatan kanton. Ŝi svingiĝus je la trankviliga melodio.
+Sakima ŝatis kanti por sia fratineto, precipe se ŝi malsatis. Lia fratino aŭskultus lin kanti sian plej ŝatatan kanton. Ŝi svingiĝus je la trankviliga melodio.
 
 ##
-"Ĉu vi povas kanti ĝin ree kaj ree, Sakima," lia fratino petus lin. Sakima do akceptus kaj kantus ĝin ree kaj ree.
+"Ĉu vi povas kanti ĝin ree kaj ree, Sakima," lia fratino petis lin. Sakima do akceptis kaj kantis ĝin ree kaj ree.
 
 ##
 Iun vesperon, kiam lia gepatroj revenis hejmen, ili tre silentis. Sakima sciis ke io ne ĝustis.
@@ -43,16 +43,16 @@ La sekvan tagon, Sakima demandis sian fratineton gvidi sin al la domo de la riĉ
 Li staris sub granda fenestro kaj ekkantis sian plej ŝatatan kanton. Malrapide, la kapo de la riĉulo ekaperis tra la granda fenestro.
 
 ##
-La laboristoj haltigis sian laboron. Ili aŭskultis la belan kanton de Sakima. Sed unu el la viroj diris, "Neniu konsoleblis la ĉefon. Ĉu tiu blinda knabo kredas ke li konsoleblas lin?"
+La laboristoj haltigis sian laboron. Ili aŭskultis la belan kanton de Sakima. Sed unu el la viroj diris, "Neniu povis konsoli la ĉefon. Ĉu tiu blinda knabo kredas ke li povas konsoli lin?"
 
 ##
 Sakima finis la kantadon kaj turniĝis por foriri. Sed la riĉulo rapidis ekstere kaj diris, "Mi petas, kantu denove."
 
 ##
-Ĝuste tiumomente, du viroj venis portante iun sur homportilo. Ili trovis la filon de la riĉulo batita kaj forlasita sur la flanko de la vojo.
+Ĝuste tiumomente, du viroj venis portante iun sur homportilo. Ili trovis la filon de la riĉulo batitan kaj forlasitan sur la flanko de la vojo.
 
 ##
-La riĉulo tiel ĝojis revidi sian filon. Li rekompencis Sakima-on por konsili sin. Li kunprenis sian filon kaj Sakima-on al la malsanulejo por regajnigi la vidon de Sakima.
+La riĉulo tiel ĝojis revidi sian filon. Li rekompencis Sakima-on por konsili lin. Li kunprenis sian filon kaj Sakima-on al la malsanulejo por regajnigi la vidon de Sakima.
 
 ##
 * License: [CC-BY]
