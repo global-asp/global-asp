@@ -25,7 +25,7 @@ Sed jam estis tro malfrue! Li fluidiĝis pro la varmega suno.
 La vaksinfanoj tiel malĝojis vidi sian fraton forfluidiĝi.
 
 ##
-Sed ili faris planon. Ili formis la fluidiĝitan vakson kaj kreis birdon.
+Sed ili faris planon. Ili formis la fluidiĝintan vakson kaj kreis birdon.
 
 ##
 Ili transportis sian birdo-fraton supren al alta monto.
