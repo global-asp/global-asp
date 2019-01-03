@@ -1,7 +1,7 @@
 # La kanto de Sakima
 
 ##
-Sakima vivis kun sia gepatroj kaj sia kvarjara fratino. Ili vivis sur la tero de riĉulo. Ilia pajlo-tegmenta kabano staris je la fino de arbovico.
+Sakima vivis kun sia gepatroj kaj sia kvarjara fratino. Ili vivis sur la tereno de riĉulo. Ilia pajlo-tegmenta kabano staris je la fino de arbovico.
 
 ##
 Kiam Sakima havis tri jarojn, li malsanis kaj perdis sian vidon. Sakima estis talentplena knabo.
