@@ -4,7 +4,7 @@
 Ĉi tio estas ĝirafo. Ĝi havas tre longan kolon. Ĝi manĝas foliojn de altaj arboj. Kiu koloro estas la ĝirafo?
 
 ##
-Ĉi tio estas elefanto. Virelefantoj havas blankajn dentegojn. Ili havas grandajn orelojn. Elefantaj havas longajn rostrojn, per kiuj ili deŝiras la foliojn de la arboj. Elefantaj manĝas herbojn kaj foliojn. Kiu koloro estas la elephant?
+Ĉi tio estas elefanto. Virelefantoj havas blankajn dentegojn. Ili havas grandajn orelojn. Elefantoj havas longajn rostrojn, per kiuj ili deŝiras la foliojn de la arboj. Elefantoj manĝas herbojn kaj foliojn. Kiu koloro estas la elefanto?
 
 ##
 Ĉi tio estas krokodilo. Ĝi vivas en la riveroj kaj la lagoj. Ĝi havas longan voston. Ĝi povas malfermi sian buŝegon por manĝi fiŝojn kaj aliajn bestojn. Kiu koloro estas la krokodilo?
