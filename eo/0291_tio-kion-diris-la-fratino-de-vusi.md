@@ -4,10 +4,10 @@
 Frue iun matenon, la avino de Vusi vokis lin, "Vusi, bonvolu porti tiun ĉi ovon al viaj gepatroj. Ili volas fari grandan kukon por la geedziĝo de via fratino.
 
 ##
-Survoje al siaj geptroj, Vusi renkontis du knabojn kiuj kolektis fruktojn. Unu el la knaboj ekprenis la ovon de Vusi kaj pafis ĝin al arbo. La ovo rompiĝis.
+Survoje al siaj gepatroj, Vusi renkontis du knabojn kiuj kolektis fruktojn. Unu el la knaboj ekprenis la ovon de Vusi kaj pafis ĝin al arbo. La ovo rompiĝis.
 
 ##
-"Kion vi faris?" ekkriis Vusi. "Tiu ovo estsi por kuko. La kuko estis por la edziniĝo de mia fratino. Kion diros mia fratino, se ne estos geedziĝa kuko?"
+"Kion vi faris?" ekkriis Vusi. "Tiu ovo estis por kuko. La kuko estis por la edziniĝo de mia fratino. Kion diros mia fratino, se ne estos geedziĝa kuko?"
 
 ##
 La knaboj tre bedaŭris ke ili mokis Vusi-on. "Ni ne povas helpi pri la kuko, sed jen bastono por via fratino," unu el ili diris. Vusi daŭrigis sian vojaĝon.
