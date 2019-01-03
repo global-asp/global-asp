@@ -25,7 +25,7 @@ Kaj tiel la virino trovis sin sola denove. Ŝi demandis sin, kion ŝi faru kun t
 Sed finfine ŝi devis akcepti ke li estis ŝia infano kaj ŝi estis lia patrino.
 
 ##
-Nu, se la infano restis de la sama malgranda grandeco, ĉio eble malsamus. Sed la azeninfano grandiĝis kaj grandiĝis ĝis li ne plu konvenis portiĝi sur la dorso de sia patrino. Kaj kiom ajn li klopodis, li ne povis konduti sin kiel homo. Lia patrino estis ofte laca kaj frustrita. Iufoje, ŝi devigis lin fari bestan laboron.
+Nu, se la infano restis de la sama malgranda grandeco, ĉio eble malsamus. Sed la azeninfano grandiĝis kaj grandiĝis ĝis li ne plu konvenis portiĝi sur la dorso de sia patrino. Kaj kiom ajn li klopodis, li ne povis konduti sin kiel homo. Lia patrino estis ofte laca kaj ĉagrenita. Iufoje, ŝi devigis lin fari bestan laboron.
 
 ##
 Konfuzo kaj kolero kreskiĝis en Azeno. Li ne faru ĉi tion kaj li ne faru tion ĉi. Li ne kondutu sin tiel kaj li ne kondutu sin tiel. Li tiel koleriĝis ke iutage li piedbatis sian patrinon al la tero.
