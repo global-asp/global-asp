@@ -37,16 +37,16 @@ Kiam la buso forlasis la bushaltejon, mi fiksrigardis tra la fenestro. Mi miris 
 Dum la vojaĝo progresis, la interno de la buso tre varmiĝis. Mi fermis miajn okulojn esperante dormi.
 
 ##
-Sed mia menso vagis hejmen. Ĉu mia patrino estos sekura? Ĉu miaj kunikloj havigos monon? Ĉu mia frato memoras akvumi miajn ĝermitajn arbetojn?
+Sed mia menso vagis hejmen. Ĉu mia patrino estos sekura? Ĉu miaj kunikloj havigos monon? Ĉu mia frato memoras akvumi miajn ĝermintajn arbetojn?
 
 ##
-Survoje mi enmemorigis la nomon de la loko kie mia onklo loĝis en la granda urbo. Mi ankoraŭ mumblis ĝin kiam mi ekdormis.
+Survoje mi enmemorigis la nomon de la loko kie mia onklo loĝis en la granda urbo. Mi ankoraŭ murmuris ĝin kiam mi ekdormis.
 
 ##
 Naŭ horoj poste mi vekiĝis pro laŭta ekbruo kaj voko al pasaĝeroj kiuj reirus al mia vilaĝo. Mi ekprenis mian saketon kaj saltis el la buso.
 
 ##
-La reenveturanta buso estis rapide plenigita. Baldaŭ ĝi reirus oriente. La plej grava afero por mi nun estis serĉi la domon de mia onklo.
+La buso veturanta reen estis rapide plenigita. Baldaŭ ĝi reirus oriente. La plej grava afero por mi nun estis serĉi la domon de mia onklo.
 
 ##
 * License: [CC-BY]
