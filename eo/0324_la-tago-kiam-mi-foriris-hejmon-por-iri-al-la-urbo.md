@@ -28,7 +28,7 @@ Kelkaj pasaĝeroj aĉetis trinkaĵojn, aliaj aĉetis malgrandajn manĝetojn kaj 
 Ĉi tiuj agadoj estis interrompitaj de la hupado de la buso, signo ke ni pretis foriri. La helpanto kriis ke la kolportistoj eliru.
 
 ##
-Kolportistoj puŝis unu la alian por elbusiĝi. Kelkaj redonis monŝanĝon al la vojaĝantoj. Aliaj faris lasta-tempajn klopodojn vendi pli da aĵoj.
+Kolportistoj puŝis unu la alian por elbusiĝi. Kelkaj redonis monŝanĝon al la vojaĝantoj. Aliaj faris lastatempajn klopodojn vendi pli da aĵoj.
 
 ##
 Kiam la buso forlasis la bushaltejon, mi fiksrigardis tra la fenestro. Mi miris ĉu mi denove revenos al mia vilaĝo.
