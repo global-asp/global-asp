@@ -16,7 +16,7 @@ Ili ĉiam devis nokte fari sian laboron.
 Sed unu el la knaboj sopiris ke li povus eliri en la sunlumo.
 
 ##
-Iun tagon, la sopiro estis tro forta. Liaj fratoj avertis lin ...
+Iun tagon, la sopiro estis tro forta. Liaj fratoj avertis lin...
 
 ##
 Sed jam estis tro malfrue! Li fluidiĝis pro la varmega suno.
