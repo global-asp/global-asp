@@ -19,7 +19,7 @@ Kuniklo iris trovi Fajron, kaj diris, "Iru, brulu Hipon kiam ŝi elvenis de la a
 Poste, Hipo estis manĝante herbon malproksime de la rivero, kiam, "Vus!" Fajro ekflamiĝis. La flamoj ekbrulis la hararon de Hipo.
 
 ##
-Hipo ekploris kaj kuris al la akvo. Ŝia hararon tute forbrulis per la fajro. Hipo sencese kriis, "Mia hararo forbrulis en la fajro! Mia hararo estas forbrulita! MIa bela hararo!"
+Hipo ekploris kaj kuris al la akvo. Ŝia hararon tute forbrulis per la fajro. Hipo senĉese kriis, "Mia hararo forbrulis en la fajro! Mia hararo estas forbrulita! Mia bela hararo!"
 
 ##
 Kuniklo ĝojis ke la hararo de Hipo estis forbrulita. Kaj ĝis nun, pro timo de fajro, la hipopotamoj neniam iras malproksime de la akvo.
