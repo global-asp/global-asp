@@ -25,7 +25,7 @@ Surprize al ŝi, hundo malfermis la pordon kaj diris, "Kion vi volas?" "Mi perdi
 Tiam la hundo diris, "Kuiru por mi!" "Sed mi neniam kuiris por hundo antaŭe," ŝi respondis. "Kuiru, alie mi mordos vin!" diris la hundo. Do Nozibele kuiris iom da manĝaĵo por la hundo.
 
 ##
-Tiam la hundo diris, "Ordigu la liton por mi!" Nozibele rispondis, "Mi neniam ordigis la liton por hundo." "Ordigu la liton, alie mi mordos vin!" diris la hundo. Do Nozibele ordigis la liton.
+Tiam la hundo diris, "Ordigu la liton por mi!" Nozibele respondis, "Mi neniam ordigis la liton por hundo." "Ordigu la liton, alie mi mordos vin!" diris la hundo. Do Nozibele ordigis la liton.
 
 ##
 Ĉiutage ŝi devis kuiri kaj balai kaj lavi por la hundo. Tiam, iun tagon, la hundo diris, "Nozibele, hodiaŭ mi devas viziti iujn amikojn. Balau la domon, kuiru la manĝaĵon, kaj lavu miajn vestaĵojn antaŭ ol mi reiras."
