@@ -4,7 +4,7 @@
 Andiswa spektis la knabojn ludi futbalon. Ŝi deziris aliĝi al ili. Ŝi demandis al la trejnisto, ĉu ŝi povus ekzerci sin kun ili.
 
 ##
-La trejnisto metis la manojn sur la koksoj. "En ĉi-tiu lernejo, nur la knaboj permesas ludi futbalon," li diris.
+La trejnisto metis la manojn sur la koksoj. "En ĉi tiu lernejo, nur la knaboj permesas ludi futbalon," li diris.
 
 ##
 La knaboj diris al ŝi, ke ŝi ludu retpilkon. Ili diris ke la retpilko estas por knabinoj, kaj futbalo estas por knaboj. Andiswa tre malĝojis.
