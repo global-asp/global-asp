@@ -10,7 +10,7 @@ Kiam Sakima havis tri jarojn, li malsanis kaj perdis sian vidon. Sakima estis ta
 Sakima faris multajn aferojn, kiujn aliaj sesjaraj knaboj ne faris. Ekzemple, li povis sidi kun la pli aĝaj vilaĝanoj kaj diskuti gravajn aferojn.
 
 ##
-La geptraoj de Sakima laboris ĉe la domo de la riĉulo. Ili eliris la hejmon frue matene kaj revenis malfrue vespere. Sakima estis lasita kun sia fratineto.
+La gepatroj de Sakima laboris ĉe la domo de la riĉulo. Ili eliris la hejmon frue matene kaj revenis malfrue vespere. Sakima estis lasita kun sia fratineto.
 
 ##
 Sakima ŝategis kanti kantojn. Iun tagon, lia patrino demandis lin, "De tie eklernis vi tiujn ĉi kantojn, Sakima?"
