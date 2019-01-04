@@ -31,7 +31,7 @@ Sed ili faris planon. Ili formis la fluidiĝintan vakson kaj kreis birdon.
 Ili transportis sian birdo-fraton supren al alta monto.
 
 ##
-Kaj kiam la suno leviĝis, li forflugis kantanta en la matenlumo.
+Kaj kiam la suno leviĝis, li forflugis kantante en la matenlumo.
 
 ##
 * License: [CC-BY]
