@@ -25,7 +25,7 @@ Dem did don luod di bos an aal a di pasinja dem did siddong. Di venda dem stil p
 Kopl pasinja did bai jrinks, di res a dem did bai likl snak an staat chuu. Aal uu neva av no moni, laik mi, jos did a wach.
 
 ##
-Dem sopm de stap wen di bos aan bluo, dat miin se wi redi fi lef. Di dokta dem baal aafa di venda dem fi kom aaf.
+Dem sopm de stap wen di bos aan bluo, dat miin se wi redi fi lef. Di dokta baal aafa di venda dem fi kom aaf.
 
 ##
 Di venda dem push wananeda fi kom aaf a di bos. Som a dem gi bak chienj tu di pasinja dem. An som a dem did a chrai sel muor tingz.
@@ -37,16 +37,16 @@ Az di bos lef di bos stap, mi did luk chuu di winda. Mi did a wanda ef mi wuda e
 Wail wi a chravl, inna di bos staat get wel at. Mi shet mi yai dem an a uop se mi jrap a sliip.
 
 ##
-Bot mi main staat ron bak pan mi yaad. Ef mi mada ago sief? Ef mi rabit dem win no moni? Ef mi bredda memba fi waata mi chrii soka dem?
+Bot mi main staat ron bak pan mi yaad. Ef mi mada ago sief? Ef mi rabit dem win no moni? Ef mi breda memba fi waata mi chrii soka dem?
 
 ##
-Pan di wie, mi se uova an uova di niem a di plies we mi onggkl liv inna di big siti. Mi stil did a wispa tu miself wen mi jrap asliip.
+Pan di wie, mi se uova an uova di niem a di plies we mi ongkl liv inna di big siti. Mi stil did a wispa tu miself wen mi jrap asliip.
 
 ##
 Nain owa lieta, pier naiz wiek mi op an dem a kaal fi di pasinja dem fi go bak a mi vilij. Mi grab mi likl bag an jomp outa di bos.
 
 ##
-Di bos fi go bak di a luod kwik-kwik. It did suuhn go bak a Iis. Di muos impuotant ting fi mi nou, a did fi staat luk fi mi onggkl yaad.
+Di bos fi go bak did a luod kwik-kwik. It did suuhn go bak a Iis. Di muos impuotant ting fi mi nou, a did fi staat luk fi mi ongkl yaad.
 
 ##
 * License: [CC-BY]

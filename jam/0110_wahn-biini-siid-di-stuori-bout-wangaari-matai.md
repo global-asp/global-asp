@@ -1,4 +1,4 @@
-# Wan Biini Siid: Di Stuori Bout Wangaari Matai
+# Wahn Biini Siid: Di Stuori Bout Wangaari Matai
 
 ##
 Inna wahn vilij slaant wie pan Mount Kenya inna Iist Afrika, wa likl gyal pikni did wok inna di fiil wid ar mada. Shi did niem Wangaari.
@@ -34,7 +34,7 @@ Az di taim go bai, di nyuu chrii dem ton inna wahn faris, an di riva dem staat r
 Wangaari did wok aad. Piipl aal uova di wol tek nuotis a ar, an gi ar wahn fiemos praiz. Dem kaal it di Nuobl Piis Praiz, an shi a did di fos uman fram Afrika fi eva get it.
 
 ##
-Wangaari ded inna 2011, bot wi kyan tingk bout ar evritaim wi si wan priti chrii.
+Wangaari ded inna 2011, bot wi kyan tingk bout ar evritaim wi si wahn priti chrii.
 
 ##
 * License: [CC-BY]

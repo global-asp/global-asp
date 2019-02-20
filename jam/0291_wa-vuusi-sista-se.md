@@ -37,7 +37,7 @@ Bot di kou ron go bak tu di faama wen a dina taim. An Vuusi get laas pan im wie.
 "A we mi a go du?" Vuusi baal out se. "Di kou we ron we a did wahn prezent, fi di schraa we di bilda dem gi mi. Di bilda dem gi mi di schraa bikaaz dem brok di stik we di fruut-pika dem gi mi. Di fruut-pika gi mi di stik bikaaz dem brok di eg fi di kiek. Di kiek a did fi di wedn. Nou no eg, no kiek, an no prezent."
 
 ##
-Vuusi sista tingk fi a wail, den shi se, "Vuusi mi bredda, mi no riili bizniz bout no prezent. Mi no iivn kier bout no kiek! Aal a wi de ya tugeda, an mi api. Nou, go put aan yu gud kluoz an mek wi selibriet tude!" An so, a dat Vuusi did du.
+Vuusi sista tingk fi a wail, den shi se, "Vuusi mi breda, mi no riili bizniz bout no prezent. Mi no iivn kier bout no kiek! Aal a wi de ya tugeda, an mi api. Nou, go put aan yu gud kluoz an mek wi selibriet tide!" An so, a dat Vuusi did du.
 
 ##
 * License: [CC-BY]

@@ -10,16 +10,16 @@ Di die did at, so dem go dong a di riva fi swim. Dem ramp an splash op an swim i
 Aal af a sodn, dem riyalaiz se di taim liet. Dem ori op an go bak a di vilij.
 
 ##
-Wen dem nieli rich uom, Nuozibele put ar an a ar nek. Shi figet ar chien! "Du, kom bak wid me!" shi beg ar fren dem. Bot ar fren dem se it did tuu liet.
+Wen dem nieli riich uom, Nuozibele put ar an a ar nek. Shi figet ar chien! "Du, kom bak wid me!" shi beg ar fren dem. Bot ar fren dem se it did tuu liet.
 
 ##
 So Nuozibele go bak a di riva bai arself. Shi fain di chien an did a ori op go uom. Bot shi get laas inna di daaknis.
 
 ##
-Wie out shi si lait a kom fram wan ot. Shi ori op an go tuwaadz it an nak pan di duor.
+Wie out shi si lait a kom fram wahn ot. Shi ori op an go tuwaadz it an nak pan di duor.
 
 ##
-Shi did fraitn so tel, wan daag uopm di duor an se, "Wa yu waahn?" "Mi laas an mi niid somwe fi slip," Nuozibele se. "Kom iihn, ar mi ago bait yu!" di daag se. So Nuozibele go iihn.
+Shi did fraitn so tel, wahn daag uopm di duor an se, "Wa yu waahn?" "Mi laas an mi niid somwe fi slip," Nuozibele se. "Kom iihn, ar mi ago bait yu!" di daag se. So Nuozibele go iihn.
 
 ##
 Den di daag se, "Kuk fi mi!" "Bot mi neva kuk fi no daag bifuor," shi ansa se. "Kuk, ar mi ago bait yu!" di daag se. So Nuozibele kuk som fuud fi di daag.
@@ -37,7 +37,7 @@ Az suuhn as di daag go we, Nuozibele tek chrii schraan a ier fram outta ar ed. S
 Wen di daag kom bak, im luk fi Nuozibele. "Nuozibele, we yu de?" im baal out. "Mi de ya, anda di bed," di fos ier schraan se. "Mi de ya, biyain a di duor," di sekan ier schraan se. "Mi de ya, inna di animal pen," di tord ier schraan se.
 
 ##
-A da taim de, di daag riyalaiz se Nuozibele trik im op. So im ron an ron aal di wie go a di vilij. Bot Nuozibele bredda dem did a wiet de pan di daag wid som big stik. Di daag ton bak an ron we an nobadi no siim sins.
+A da taim de, di daag riyalaiz se Nuozibele trik im op. So im ron an ron aal di wie go a di vilij. Bot Nuozibele breda dem did a wiet de pan di daag wid som big stik. Di daag ton bak an ron we an nobadi no siim sins.
 
 ##
 * License: [CC-BY]

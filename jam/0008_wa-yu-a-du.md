@@ -7,7 +7,7 @@ Mi a sing.
 Shi a wiev.
 
 ##
-Mi a clap.
+Mi a klap.
 
 ##
 Shi a chrech.

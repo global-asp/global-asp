@@ -1,7 +1,7 @@
 # Di Onggri Krokodail
 
 ##
-Wan taim yu did av wan wel onggri krokodail.
+Wan taim yu did av wahn wel onggri krokodail.
 
 ##
 Im tek taim an kwaiyat wen im sorch fi fuud. An den...

@@ -22,7 +22,7 @@ A did wahn aad giem. Nobadi no skuor no guol aal wen a aaf taim.
 Ina di sekan aaf a di mach wan a di bwaai pikni paas di baal gi Andiswa. Shi ron faas-faas tuwaadz di guol. Shi kik di baal aad an skuor a guol.
 
 ##
-Di kroud chier loud-loud wid eksaitment. Fram da die de, dem mek gyal pikni staat plie futbaal a di skuul.
+Di kroud baal out loud-loud wid eksaitment. Fram da die de, dem mek gyal pikni staat plie futbaal a di skuul.
 
 ##
 * License: [CC-BY-NC]

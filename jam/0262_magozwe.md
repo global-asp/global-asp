@@ -1,7 +1,7 @@
 # Magozwe
 
 ##
-Inna di bizi siti a Nairuobi, faar fram a laif a uom kier, yu did av wan gruup a bwaai pikini we no liv no we. Dem tek everidie jos az it kom. Pan wan a di maanin dem di bwaai pikni dem did a pak op dem mat dem fram aafa di kuol kangkriit we dem did a sliip. Fi fait aaf di kuol dem kech op faiya wid gyaabij. Mongs di gruup a bwaai pikni dem a did Magozwe. Im a did di liklis.
+Inna di bizi siti a Nairuobi, faar fram a laif a uom kier, yu did av wahn gruup a bwaai pikni we no liv no we. Dem tek evridie jos az it kom. Pan wan a di maanin dem di bwaai pikni dem did a pak op dem mat dem fram aafa di kuol kangkriit we dem did a sliip. Fi fait aaf di kuol dem kech op faiya wid gyaabij. Mongs di gruup a bwaai pikni dem a did Magozwe. Im a did di liklis.
 
 ##
 Wen Magozwe pierens dem did ded, im a did onggl faiv iez-uol. Im did go liv wid im ongkl. Di man neva bizniz bout di pikni. Im neva gi Magozwe inof fuud. Im mek di bwaai pikni du uol iip a aad wok.
@@ -13,13 +13,13 @@ Ef Magozwe komplien ar aks no kwestiyan, im ongkl biit im. Wen Magozwe aks ef im
 Schriit laif did aad an nof a di bwaai pikni dem did fain it aad evridie jos fi get fuud. Somtaim dem get lak op bai poliis, somtaim dem get biitn. Wen dem get sik, nobadi no de fi elp dem. Di gruup a bwaai pikni dipen pan di likl moni we dem get fram wen dem beg, an fram wen dem sel plaskit an ada tingz we yuuz agen. Laif di iivn muor aada kaaz a faitin wid kantenshos piipl uu waahn kantruol a som paat a di siti.
 
 ##
-Wan die wen Magozwe did a luk chuu di gyaabij pan dem, im fain wahn uol tier op stuoribuk. Im kliin di dort aaf a it an put it inna im bag. Evridie afta dat im wuda tek out di buk an luk pan di picha dem. Im neva nuo ou fi riid di word dem.
+Wan die wen Magozwe did a luk chuu di gyaabij pan dem, im fain wahn uol tier op stuoribuk. Im kliin di dort aaf a it an put it inna im bag. Evridie afta dat im wuda tek out di buk an luk pan di picha dem. Im neva nuo ou fi riid di wod dem.
 
 ##
-Di picha dem did a tel di stuori bout wan bwaai pikni we gruo op an ton wahn pilot. Magozwe wuda diejriim bout se im a wahn pailat. Somtaim, im imajin se im a did di bwaai pikni inna di stuori.
+Di picha dem did a tel di stuori bout wahn bwaai pikni we gruo op an ton wahn pailat. Magozwe wuda diejriim bout se im a wahn pailat. Somtaim, im imajin se im a did di bwaai pikni inna di stuori.
 
 ##
-It did kuol an Magozwe did a stan op pan di ruod a beg. Wahn man waak op tu im. "Eluo, mi a Tamas. Mi wok nier ya so, a wahn plies we yu kyahn get sopm fi nyam," di man se. Im paint pan wahn yelo ous wid wahn bluu oustop. "Mi uop se yu wi go de go get som fuud?" im aks se. Magozwe luk pan di man, an den pan di ous. "Miebi," im se, an waak we.
+It did kuol an Magozwe did a stan op pan di ruod a beg. Wahn man waak op tu im. "Eluo, mi a Tamas. Mi wok nier ya so, a wahn plies we yu kyahn get sopm fi nyam," di man se. Im paint pan wahn yelo ous wid wahn bluu oustap. "Mi uop se yu wi go de go get som fuud?" im aks se. Magozwe luk pan di man, an den pan di ous. "Miebi," im se, an waak we.
 
 ##
 Uova di neks kopl a monts dem, di bwaai pikni dem we no liv no we get yuuz tu si Tamas roun di plies. Tamas did laik taak tu piipl, espeshali piipl we liv pan di schriit. Tamas wuda lisn tu di stuori dem bout ou piipl liv. Im did siiros, an pieshent, neva ruud ar shuo no disrispek. Som a di bwaai pikni dem did staat go a di yelo an bluu ous inna di migl a di die fi get fuud.
@@ -34,7 +34,7 @@ Wen dem di miit, Magozwe did staat tel Tamas di stuori bout imself. A did di stu
 Roun wen Magozwe a go bi ten iez-uol, Tamas gi'im wahn nyuu stuori buk. A did wahn stuori bout wahn bwaai pikni fram di vilij we gruo op fi bi wahn fiemos futbaala. Tamas riid di stuori tu Magozwe uol iip a taim, so til wan die im se, "Mi tingk a taim nou yu go a skuul an lorn fi riid. We yu tingk?" Tamas tel im se im nuo bout wahn plies we pikni kuda stie, an go a skuul.
 
 ##
-Magozwe did tingk bout di nyuu plies, an bout fi go a skuul. Wa'apm ef im ongkl di rait an im did tuu fuul-fuul fi lorn notn. Wa'apm ef dem giim biitn a di nyuu plies? Im di fried. "Miebi a did beta fi stie an liv pan di schriit," im tingk tu imself.
+Magozwe did tingk bout di nyuu plies, an bout fi go a skuul. Wa'apm ef im ongkl did rait an im did tuu fuul-fuul fi lorn notn. Wa'apm ef dem giim biitn a di nyuu plies? Im di fried. "Miebi a did beta fi stie an liv pan di schriit," im tingk tu imself.
 
 ##
 Im tel Tamas di tingz dem we im di fried a. Likl bai likl di man kanvins di bwaai pikni se laif kuda beta a di nyuu plies.

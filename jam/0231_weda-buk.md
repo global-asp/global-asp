@@ -22,7 +22,7 @@ Rien a faal.
 Tonda a ruol.
 
 ##
-Mi si wan rienbuo.
+Mi si wahn rienbuo.
 
 ##
 * License: [CC-BY-NC]

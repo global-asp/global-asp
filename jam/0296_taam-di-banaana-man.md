@@ -10,13 +10,13 @@ Taam go a maakit fi sel banaana.
 Piipl a maakit a bai fruut.
 
 ##
-Bot nobadi naa bai Taam Banaana dem. Dem prifa fi bai fruut fram di uman dem.
+Bot nobadi naa bai Taam banaana dem. Dem prifa fi bai fruut fram di uman dem.
 
 ##
 "Ina fiwi komyuuniti, onggl uman sel fruut," piipl se. "Wa kaina man dis?" piipl aks.
 
 ##
-Bot Taam no gi op. Im kaal out, "bai mi swiit raip banaana dem!"
+Bot Taam no gi op. Im kaal out, "Bai mi swiit raip banaana dem!"
 
 ##
 Wahn uman pik op a bonch a banaana fram outa di baaskit. Shi luk pan it gud-gud.
@@ -28,7 +28,7 @@ Di uman bai di banaana dem.
 Muor piipl kom a di staal. Dem bai Taam banaana dem an nyam dem.
 
 ##
-Suuhn, di baaskit empti. Taam kount op di moni we im mek.
+Suuhn, di baaskit emti. Taam kount op di moni we im mek.
 
 ##
 Den Taam go bai suop, shuga an bred. Im put di tingz dem ina im baaskit.

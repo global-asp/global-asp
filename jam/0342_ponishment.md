@@ -7,10 +7,10 @@ Wan die mama get a uol iip a fruut.
 "Wen wi kyan get som fruut?" we aks ar se. "Wi a go iit di fruut tunait," mama se.
 
 ##
-Mi bredda Rayiim krievn. Im tek piis a aal a di fruut dem. Im iit out uol iip a it.
+Mi breda Rayiim krievn. Im tek piis a aal a di fruut dem. Im iit out uol iip a it.
 
 ##
-"Luk pon we Rayiim du!" mi likl bredda baal out. "Rayiim naav no biyieva an im selfish," mi se.
+"Luk pon we Rayiim du!" mi likl breda baal out. "Rayiim naav no biyievya an im selfish," mi se.
 
 ##
 Mama beks wid Rayiim.
@@ -19,7 +19,7 @@ Mama beks wid Rayiim.
 Aal a wi beks wid Rayiim. Bot Rayiim no sari.
 
 ##
-"Yu naa go ponish Rayiim?" mi likl bredda aks.
+"Yu naa go ponish Rayiim?" mi likl breda aks.
 
 ##
 "Rayiim, yu suuhn sari," mama waan im se.

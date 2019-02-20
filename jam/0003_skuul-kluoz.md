@@ -4,13 +4,13 @@
 Da frak ya lang.
 
 ##
-Da blouz ya big.
+Da sweta ya big.
 
 ##
 Da bag ya big.
 
 ##
-Da belt ya ...
+Da belt ya...
 
 ##
 Da at ya likl.
@@ -22,7 +22,7 @@ Dem saks ya shaat.
 Bot dem shuuz ya nyuu.
 
 ##
-...dem fit gud.
+... dem fit gud.
 
 ##
 * License: [CC-BY-NC]

@@ -25,13 +25,13 @@ Wen di briiz bluo, gyaabij eng aaf a di chrii dem an fens dem.
 Piipl wuda get kot fram brok glaas we dash we kielis.
 
 ##
-Den wan die, di paip jrai op an wi kantiena dem did empti.
+Den wan die, di paip jrai op an wi kantiena dem did emti.
 
 ##
 Mi faada go fram yaad tu yaad an aks piipl fi kom a wahn vilij miitn.
 
 ##
-Piipl gyada tugeda anda wan big chrii an lisn.
+Piipl gyada tugeda anda wahn big chrii an lisn.
 
 ##
 Mi faada git op an se, "wi afi wok tugeda fi fiks wi prablem dem."
@@ -43,7 +43,7 @@ Iet-iez-uol Juuma, siddong pan wahn stomp an baal out se, "Mi kyan elp fi kliin 
 Wan uman se, "Di uman dem kyan kom tugeda wid mi fi plaant fuud."
 
 ##
-Wan neks man git op an se, "Di man dem wi dig wan wel."
+Wan neks man git op an se, "Di man dem wi dig wahn wel."
 
 ##
 Aal a wi baal out tugeda, "Wi afi chienj ou wi liv." Fram dat die, wi wok tugeda fi fiks wi prablem dem.

@@ -1,7 +1,7 @@
 # Zama a di bes!
 
 ##
-Mi likl bredda sliip liet-liet. Mi get op orli kaaz mi a di bes!
+Mi likl breda sliip liet-liet. Mi get op orli kaaz mi a di bes!
 
 ##
 A mi mek di son kom iihn.
@@ -10,7 +10,7 @@ A mi mek di son kom iihn.
 "Yu a fi mi maanin star," mama se.
 
 ##
-Mi bied miself, mi no waa no elp.
+Mi bied miself, mi no waahn no elp.
 
 ##
 Mi kyan stan di kuol waata an di smel bad suop.
@@ -25,10 +25,10 @@ Afta mi bied, mi tel granpaa an anti maanin, an fi av a nais die.
 Den mi put aan mi kluoz bai miself, "mi big nou mama," mi se.
 
 ##
-Mi kyan botn mi klouz an bokl mi shuuz dem.
+Mi kyan botn mi kluoz an bokl mi shuuz dem.
 
 ##
-An mi mek shuor se likl bredda nuo aal di nyuuz fram skuul.
+An mi mek shuor se likl breda nuo aal di nyuuz fram skuul.
 
 ##
 Ina klaas mi du mi bes ina evriting.

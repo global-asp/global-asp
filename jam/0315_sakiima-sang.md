@@ -1,7 +1,7 @@
 # Sakiima Sang
 
 ##
-Sakiima did liv wid im pierens dem an im fuor iez uol sista. Dem did liv pan wan rich man lan. Dem tach ous did de a di en a wahn lain a chrii.
+Sakiima did liv wid im pierens dem an im fuor iez uol sista. Dem did liv pan wahn rich man lan. Dem tach ous did de a di en a wahn lain a chrii.
 
 ##
 Wen Sakiima a did chrii iez uol, im get sik an im get blain. Sakiima a did wahn talentid bwaai pikni.
@@ -40,16 +40,16 @@ Bot Sakiima neva stap. Im likl sista bak im. Shi se, "Sakiima sang dem mek mi fi
 Di neks die, Sakiima aks im likl sista fi kyari im go a di rich man yaad.
 
 ##
-Im stan op anda wan big winda an staat fi sing im fievarit sang. Likl bai likl yu kuda si di rich man ed staat shuo chuu di big winda.
+Im stan op anda wahn big winda an staat fi sing im fievarit sang. Likl bai likl yu kuda si di rich man ed staat shuo chuu di big winda.
 
 ##
-Di worka dem stap we dem a du. Dem lisn tu Sakiima nais sang. Bot wan man se, "Nobadi kudn komfat di baas. Da blain bwaai pikni ya tingk se im kyan komfat im?"
+Di woka dem stap we dem a du. Dem lisn tu Sakiima nais sang. Bot wan man se, "Nobadi kudn komfat di baas. Da blain bwaai pikni ya tingk se im kyan komfat im?"
 
 ##
 Sakiima di don sing im sang an ton roun fi lef. Bot di rich man ori op an se, "Du sing agen."
 
 ##
-Siem taim, tuu man kom a kyari sumadi pan wan schrecha. Dem di fain di rich man son biit op an lef a ruod said.
+Siem taim, tuu man kom a kyari sumadi pan wahn schrecha. Dem di fain di rich man son biit op an lef a ruod said.
 
 ##
 Di rich man did api so til fi siim son agen. Im gi Sakiima a prezent kaaz im did komfat im. Im kyari im son an Sakiima go a aaspital so Sakiima kuda get bak im sait.
