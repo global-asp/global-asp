@@ -27,6 +27,6 @@ Las cebollas me hacen llorar cuando las cortan.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Kathy Arbuckle
+* Illustration: Kathy Arbuckle, Ingrid Schechter
 * Translation: Karina Vásquez
 * Language: es

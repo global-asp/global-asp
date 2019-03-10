@@ -27,6 +27,6 @@ E Mucca non si preoccupa quando passa una macchina. Mucca si prende il suo tempo
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Laura Pighini
 * Language: it

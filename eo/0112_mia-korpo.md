@@ -27,6 +27,6 @@ Sed mi neniam povas flugi per ĝi.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Espen Stranger-Johannessen
 * Language: eo

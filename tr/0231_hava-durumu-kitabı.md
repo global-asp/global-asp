@@ -27,6 +27,6 @@ Bir gökkuşağı gördüm.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Sandra McDougall
+* Illustration: Sandra McDougall, Ingrid Schechter
 * Translation: Nahide Büşra Ertekin
 * Language: tr

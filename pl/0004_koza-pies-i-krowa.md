@@ -27,6 +27,6 @@ Za to Krowie nie przeszkadzają nadjeżdżające samochody. Krowa nie spieszy si
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Aleksandra Migorska
 * Language: pl

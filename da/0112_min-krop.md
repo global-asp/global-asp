@@ -27,6 +27,6 @@ Men jeg kan aldrig flyve med den.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Kim Sandvad West
 * Language: da

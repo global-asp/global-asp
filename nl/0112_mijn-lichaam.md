@@ -27,6 +27,6 @@ Maar ik kan er nooit mee vliegen.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Sacha Kalseth
 * Language: nl

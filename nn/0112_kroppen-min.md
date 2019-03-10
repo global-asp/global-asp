@@ -27,6 +27,6 @@ Men eg kan aldri flyga med han.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

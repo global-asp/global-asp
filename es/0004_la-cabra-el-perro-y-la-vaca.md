@@ -27,6 +27,6 @@ Y la vaca no se molesta cuando un carro se acerca, incluso se toma su tiempo par
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Karina Vásquez
 * Language: es

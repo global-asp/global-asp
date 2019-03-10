@@ -27,6 +27,6 @@ Ama onunla asla uçamam.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Nahide Büşra Ertekin
 * Language: tr

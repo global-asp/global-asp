@@ -27,6 +27,6 @@ Kasi naluluha talaga ako sa sibuyas.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Kathy Arbuckle
+* Illustration: Kathy Arbuckle, Ingrid Schechter
 * Translation: Arlene Avila
 * Language: tl

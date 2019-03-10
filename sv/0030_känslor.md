@@ -18,6 +18,6 @@ Jag känner mig älskad när min mamma ger mig en kram.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Kathy Arbuckle
+* Illustration: Kathy Arbuckle, Ingrid Schechter
 * Translation: Lena Normén-Younger
 * Language: sv

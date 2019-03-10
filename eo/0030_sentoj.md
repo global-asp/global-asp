@@ -18,6 +18,6 @@ Mi sentas min amata, kiam mia patrino brakumas min.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Kathy Arbuckle
+* Illustration: Kathy Arbuckle, Ingrid Schechter
 * Translation: dohliam
 * Language: eo

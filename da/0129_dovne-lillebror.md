@@ -24,6 +24,6 @@ Hvorfor arbejder jeg så hårdt ... ... når min bror har travlt med at lege?
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Kim Sandvad West
 * Language: da

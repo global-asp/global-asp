@@ -18,6 +18,6 @@ Eg føler at mamma er glad i meg når ho gjev meg ein klem.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Kathy Arbuckle
+* Illustration: Kathy Arbuckle, Ingrid Schechter
 * Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

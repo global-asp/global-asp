@@ -27,6 +27,6 @@ Van gehakte uien moet ik huilen.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Kathy Arbuckle
+* Illustration: Kathy Arbuckle, Ingrid Schechter
 * Translation: Sacha Kalseth
 * Language: nl

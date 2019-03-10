@@ -27,6 +27,6 @@ Her er han!
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Bronwen Heath, Anonymous
+* Illustration: Bronwen Heath, Anonymous, Ingrid Schechter
 * Translation: Espen Stranger-Johannessen, Martine Rørstad Sand
 * Language: nn

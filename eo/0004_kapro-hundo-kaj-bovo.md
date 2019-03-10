@@ -27,6 +27,6 @@ Kaj bovo ne ĝenas kiam aŭto venos. Bovo prenas sian tempon transirante la vojo
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Espen Stranger-Johannessen
 * Language: eo

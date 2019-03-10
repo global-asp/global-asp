@@ -24,6 +24,6 @@ Varför jobbar jag så hårt ... ... när min bror bara leker?
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Emma Zarrat
 * Language: sv

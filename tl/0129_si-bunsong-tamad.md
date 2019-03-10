@@ -24,6 +24,6 @@ Bakit ako nagtatrabaho ng husto... samantalang abala lamang sa paglalaro ang kap
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Karla Comanda
 * Language: tl

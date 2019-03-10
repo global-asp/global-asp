@@ -27,6 +27,6 @@ Og Ku bryr seg ikke når det kommer en bil. Ku bruker god tid når hun krysser v
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Olav Sigmond
 * Language: nb

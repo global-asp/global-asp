@@ -24,6 +24,6 @@ Hvorfor jobber jeg så hardt ... ... når broren min bare leker?
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Espen Stranger-Johannessen
 * Language: nb

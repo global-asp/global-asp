@@ -27,6 +27,6 @@ Buti na lang bago ang sapatos ko.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Arlene Avila
 * Language: tl

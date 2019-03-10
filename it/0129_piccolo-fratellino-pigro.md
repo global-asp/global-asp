@@ -24,6 +24,6 @@ Perché lavoro così duramente... Quando il mio fratellino è impegnato a giocar
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Laura Pighini
 * Language: it

@@ -27,6 +27,6 @@ Ve İnek arabanın geldiğini görünce hiç rahatsız olmaz. Karşıdan karşı
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Nahide Büşra Ertekin
 * Language: tr

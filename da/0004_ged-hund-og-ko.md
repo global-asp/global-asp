@@ -27,6 +27,6 @@ Og Ko er ligeglad, når der kommer en bil. Ko giver sig tid til at gå over veje
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Kim Sandvad West
 * Language: da

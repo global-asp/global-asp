@@ -27,6 +27,6 @@ Hier is poes!
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Bronwen Heath
+* Illustration: Bronwen Heath, Ingrid Schechter
 * Translation: Sacha Kalseth
 * Language: nl

@@ -27,6 +27,6 @@ Hakket løk får meg til å gråte.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Kathy Arbuckle
+* Illustration: Kathy Arbuckle, Ingrid Schechter
 * Translation: Espen Stranger-Johannessen
 * Language: nb

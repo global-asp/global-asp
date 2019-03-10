@@ -27,6 +27,6 @@ Her er den!
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Bronwen Heath, Anonymous
+* Illustration: Bronwen Heath, Anonymous, Ingrid Schechter
 * Translation: dohliam
 * Language: nb

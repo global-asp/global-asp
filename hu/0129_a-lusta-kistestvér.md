@@ -24,6 +24,6 @@ Miért dolgozok én ennyit, amikor a kistesóm csak a játékkal van elfoglalva.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Boglárka Vermeki
 * Language: hu

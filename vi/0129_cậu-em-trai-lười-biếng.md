@@ -24,6 +24,6 @@ Vì sao tôi phải làm việc chăm chỉ như thế này… trong khi em trai
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Phuong Nguyen
 * Language: vi

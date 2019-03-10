@@ -27,6 +27,6 @@ Und Kuh stört es nicht, wenn ein Auto kommt. Kuh lässt sich Zeit, wenn sie die
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Anna Westpfahl
 * Language: de

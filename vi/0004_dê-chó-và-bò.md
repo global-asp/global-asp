@@ -27,6 +27,6 @@ Còn Bò thì chẳng bận tâm gì khi xe chạy đến. Bò cứ thủng th�
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Phuong Nguyen
 * Language: vi

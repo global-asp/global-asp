@@ -24,6 +24,6 @@ Waarom werk ik zo hard...als mijn broer bezig is met spelen?
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Sacha Kalseth
 * Language: nl

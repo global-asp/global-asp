@@ -24,6 +24,6 @@ Wa mek mi a wok so aad... wen mi breda bizi jos a ramp?
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Georgette McGlashen
 * Language: jam

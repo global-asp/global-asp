@@ -27,6 +27,6 @@ A! Nó đây rồi.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Bronwen Heath
+* Illustration: Bronwen Heath, Ingrid Schechter
 * Translation: Nana Trang
 * Language: vi

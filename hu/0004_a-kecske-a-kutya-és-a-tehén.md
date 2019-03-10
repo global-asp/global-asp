@@ -27,6 +27,6 @@ A tehenet viszont egyáltalán nem érdekli, hogy jön az autó. Szépen lassan 
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Boglárka Vermeki
 * Language: hu

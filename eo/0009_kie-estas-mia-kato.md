@@ -27,6 +27,6 @@ Jen, ŝi estas tie!
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Bronwen Heath, Anonymous
+* Illustration: Bronwen Heath, Anonymous, Ingrid Schechter
 * Translation: dohliam
 * Language: eo

@@ -27,6 +27,6 @@ At si Baka ay hindi naaabala kapag may sasakyang dumarating. Hindi siya nagmamad
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Karla Comanda
 * Language: tl
