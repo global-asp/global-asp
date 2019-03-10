@@ -4,15 +4,15 @@
 Det var en gång en mycket hungrig krokodil.
 
 ##
-Han sökte efter mat långsamt och tyst.
+Han letade efter mat långsamt och tyst.
 
-Och så ...
+Och sedan ...
 
 ##
 Pang! Krokodilen slår till!
 
 ##
-Efteråt är han inte längre hungrig, och han är nöjd.
+Efteråt är han inte hungrig längre, och han är nöjd.
 
 ##
 Tills han blir hungrig igen.
