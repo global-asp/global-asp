@@ -34,7 +34,7 @@ Gateseljarar dytta kvarandre for å koma seg ut av bussen. Nokre gav tilbake vek
 I det bussen forlét busstasjonen, stira eg ut av vindauget. Eg lurte på om eg nokosinne skulle koma tilbake til landsbyen min igjen.
 
 ##
-Etter kvart som reisa heldt fram vart det veldig varmt i bussen. Eg lukka auga og håpte å få sova.
+Etter kvart som reisa heldt fram, vart det veldig varmt i bussen. Eg lukka auga og håpte å få sova.
 
 ##
 Men tankane mine vandra heim. Kjem mor mi til å verta trygg? Kjem kaninane mine til å innbringe nokre pengar? Kjem bror min til å hugsa å vatna dei nyutsprungne trea mine?
