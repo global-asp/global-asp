@@ -1,4 +1,4 @@
-# Khali pratar med växter
+# Khalai pratar med växter
 
 ##
 Det här är Khalai. Hon är sju år gammal. Hennes namn betyder ”den goda” på hennes språk lubukusu.
