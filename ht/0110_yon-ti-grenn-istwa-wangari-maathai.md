@@ -34,6 +34,7 @@ Piti piti pyebwa yo grandi yo tounen rakbwa enpi dlo rivyè an kòmanse koule an
 Wangari te travay di. Tout moun lòt bò dlo tande pale de Wangari. Li resevwa yon pri entènasyonal ke yo rele pri Nobèl pou lapè. Wangari se pwemye fanm Afriken ki te resevwa yon pri konsa.
 
 ##
+Wangari mouri nan lane 2011 men nou sonje li chak fwa nou wè yon bèl pyebwa.
 
 ##
 * License: [CC-BY]
