@@ -1,32 +1,32 @@
-# Îmi place sa citesc!
+# Imi place să citesc!
 
 ##
-Îmi place sa citesc.
+Imi place să citesc!
 
 ##
-Cui pot citi?
+Cui aș putea citi?
 
 ##
 Sora mea doarme.
 
 ##
-Cui pot citi?
+Cui aș putea citi?
 
 ##
 Mama și bunica mea sunt ocupate.
 
 ##
-Cui pot citi?
+Cui aș putea citi?
 
 ##
-Tata și bunicul meu sunt ocupați.
+Tatăl și bunicul meu sunt ocupați.
 
 ##
-Cui pot citi? Pot să îmi citesc mie însămi!
+Cui aș putea citi? Mi-aș putea citi mie însumi!
 
 ##
 * License: [CC-BY]
 * Text: Letta Machoga
 * Illustration: Wiehan de Jager
-* Translation: Hannah Litman
+* Translation: Carmen Onuorah
 * Language: ro
