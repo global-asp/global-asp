@@ -1,34 +1,34 @@
 # Decizie
 
 ##
-Satul meu avea multe probleme. Făceam o coadă lungă să luăm apă de la o cișmea.
+Satul meu avea multe probleme. Făceam coadă lungă să luăm apă de la o cișmea.
 
 ##
 Așteptam pentru mâncare donată de alții.
 
 ##
-Ne încuiam devreme casele din cauza hoților.
+Ne încuiam casele devreme din cauza hoților.
 
 ##
-Multi copii întrerupeau școala.
+Mulți copii se lăsau de școală.
 
 ##
-Fete tinere lucrau ca servitoare în alte sate.
+Fete tinere lucrau ca ajutoare în alte sate.
 
 ##
-Băieți tineri pierdeau timpul prin sat în timp ce alții lucrau la fermele oamenilor.
+Băieți tineri hoinăreau prin sat în timp ce alții lucrau la fermele oamenilor.
 
 ##
-Când bătea vântul, hârtii aruncate se agățau pe copaci și pe ziduri.
+Când bătea vântul, deșeuri de hârtie se agățau pe copaci și pe ziduri.
 
 ##
-Oamenii se tăiau in sticle sparte care fuseseră aruncate fără grijă.
+Oamenii se tăiau in sticle sparte care fuseseră aruncate neglijent.
 
 ##
-Apoi într-o zi, apa la cișmeaua n-a mai curs și vasele noastre erau goale.
+Apoi într-o zi, apa la cișmea n-a mai curs și vasele noastre erau goale.
 
 ##
-Tatăl meu a mers din casă in casă cerând oamenilor sa ia parte la o adunare a satului.
+Tatăl meu a mers din casă în casă cerând oamenilor să ia parte la o adunare a satului.
 
 ##
 Oamenii s-au adunat sub un copac mare și au ascultat.
