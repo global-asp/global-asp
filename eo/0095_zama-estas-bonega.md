@@ -1,7 +1,7 @@
 # Zama estas bonega!
 
 ##
-Mi frateto dormas ĝis malfrue. Mi vekiĝas frue, ĉar mi estas bonega!
+Mia frateto dormas ĝis malfrue. Mi vekiĝas frue, ĉar mi estas bonega!
 
 ##
 Estas mi, kiu enlasas la sunon.
