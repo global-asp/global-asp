@@ -13,7 +13,7 @@ Khalai går til skulen. På vegen snakkar ho med graset. "Ver så snill, gras, v
 Khalai går forbi ville blomar. "Ver så snill, blomar, hald fram å blomstra så eg kan setja blomar i håret."
 
 ##
-På skulen snakkar Khalai med treet midt i skulegarden. "Ver så snill, tre, voks ut store greiner såg vi kan lesa under skuggen din."
+På skulen snakkar Khalai med treet midt i skulegarden. "Ver så snill, tre, voks ut store greiner så vi kan lesa under skuggen din."
 
 ##
 Khalai snakkar med hekken rundt skulen sin. "Ver så snill, veks deg stor og stopp uvedkomande frå å koma inn."
