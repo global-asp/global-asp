@@ -28,7 +28,7 @@ Simbegwire var veldig opprørt. Ho bestemte seg for å rømma. Ho tok bitane fr�
 Då kvelden kom, klatra ho opp i eit høgt tre ved ein bekk og reidde seg ei seng i greinene. Då ho gjekk og la seg, song ho: "Mamma, mamma, mamma, du forlét meg. Du forlét meg og kom aldri tilbake. Pappa er ikkje glad i meg lenger. Mamma, når kjem du tilbake? Du forlét meg."
 
 ##
-Neste morgon song Simbegwire songen igjen. Då kvinnene kom for å vaska kleda sine i bekken, høyrde dei den triste songen frå høgt oppe i treet. Dei trudde det berre var vinden som rasla med blada og heldt fram med arbeidet sitt. Men éin av kvinnene høyrde veldig nøye på songen.
+Neste morgon song Simbegwire songen igjen. Då kvinnene kom for å vaska kleda sine i bekken, høyrde dei den triste songen frå høgt oppe i treet. Dei trudde det berre var vinden som rasla med blada og heldt fram med arbeidet sitt. Men éi av kvinnene høyrde veldig nøye på songen.
 
 ##
 Denne kvinna såg opp i treet. Då ho såg jenta og bitane av det fargerike teppet, ropte ho: "Simbegwire, dottera til bror min!" Dei andre kvinnene stoppa å vaska og hjelpte Simbegwire med å klatra ned frå treet. Tanta hennar gav den vesle jenta ein klem og prøvde å trøysta henne.
