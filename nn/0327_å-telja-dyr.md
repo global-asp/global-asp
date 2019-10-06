@@ -7,7 +7,7 @@
 To sjiraffar går for å drikka vatn.
 
 ##
-Tre bøflar og fire fuglar går òg for å drikke vatn.
+Tre bøflar og fire fuglar går òg for å drikka vatn.
 
 ##
 Fem impalaer og seks villsvin går mot vatnet.
