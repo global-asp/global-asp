@@ -22,7 +22,7 @@ Sakima svara: "Dei kjem berre, mamma. Eg høyrer dei i hovudet mitt og så syng 
 Sakima likte å synga for veslesyster si, særleg viss ho var svolten. Syster hans brukte å høyra på at han song yndlingssongen sin. Ho rørde seg til den lindrande låten.
 
 ##
-"Kan du synga han igjen og igjen, Sakima?" brukte syster hans å be han. Sakima aksepterte og song han igjen og igjen.
+"Kan du synga han igjen og igjen, Sakima?" brukte syster hans å be han. Sakima gjorde som hun sa og song han igjen og igjen.
 
 ##
 Ein kveld då foreldra hans kom heim, var dei veldig stille. Sakima visste at noko var gale.
