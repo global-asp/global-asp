@@ -19,7 +19,7 @@ På vegen møtte han to menn som bygde eit hus. "Kan vi bruka den sterke kjeppen
 "Kva har du gjort?" ropte Vusi. "Den kjeppen var ei gåve til syster mi. Fruktplukkarane gav meg den kjeppen fordi dei knuste egget som var meint for kaka. Kaka var meint for bryllaupet til syster mi. No er det ikkje noko egg, ikkje noka kake, og ikkje noka gåve. Kva kjem syster mi til å seia?"
 
 ##
-Bygningsarbeidarane var leie seg for at dei knakk kjeppen. "Vi kan ikkje hjelpa deg med kaka, men her er litt halmtekke for huset til syster di", sa den eine. Og slik heldt Vusi fram på reisa.
+Bygningsarbeidarane var lei seg for at dei knakk kjeppen. "Vi kan ikkje hjelpa deg med kaka, men her er litt halmtekke for huset til syster di", sa den eine. Og slik heldt Vusi fram på reisa.
 
 ##
 På vegen møtte Vusi ein bonde og ei ku. "For noko herleg halm, kan eg få ein smakebit?" spurde kua. Men halmen smakte så godt at kua åt opp alt!
