@@ -22,7 +22,7 @@ Då den siste fuglen leverte tilbake nåla dei hadde lånt, var ikkje Høne der.
 Seinare den ettermiddagen kom Ørn tilbake. Ho bad om nåla for å festa nokre fjør som hadde losna på turen. Høne leitte i skapet. Ho leitte på kjøkkenet. Ho leitte i gardsplassen. Men nåla var ikkje å sjå nokon stad.
 
 ##
-"Gje meg berre ein dag", bønnfall Høne Ørn. "Så kan du reparera venga di og finna mat igjen." "Berre éin dag til", sa Ørn. "Finn du ikkje nåla må du gje meg ein av kyllingane dine som betaling."
+"Gje meg berre éin dag", bønnfall Høne Ørn. "Så kan du reparera venga di og finna mat igjen." "Berre éin dag til", sa Ørn. "Finn du ikkje nåla må du gje meg ein av kyllingane dine som betaling."
 
 ##
 Då Ørn kom att dagen etter, såg ho Høne som rota i sanden, men ingen nål. Så Ørn stupte lynraskt ned, fanga ein av kyllingane og drog av garde med han. Sidan den gongen ser Ørn alltid at Høne rotar i sanden etter nåla når ho dukkar opp.
