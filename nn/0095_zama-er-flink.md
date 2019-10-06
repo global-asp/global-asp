@@ -22,7 +22,7 @@ Mamma minner meg på tannpussen: "Gløym ikkje tennene." Eg svarar: "Aldri, ikkj
 Etter kroppsvasken helsar eg på bestefar og tante og ynskjer dei ein god dag.
 
 ##
-Så kler eg meg sjølv. "Eg er stor no, mamma", seier eg.
+Så kler eg på meg sjølv. "Eg er stor no, mamma", seier eg.
 
 ##
 Eg kan kneppa knappar og spenna skorne mine.
