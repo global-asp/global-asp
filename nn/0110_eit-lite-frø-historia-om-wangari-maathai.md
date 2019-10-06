@@ -25,7 +25,7 @@ Ho skjønte ho var glad i folk frå Kenya jo meir ho lærde. Ho ville dei skulle
 Då ho var ferdig med å studera, drog ho tilbake til Kenya. Men landet hennar var forandra. Kjempestore bondegardar strekte seg utover i landet. Kvinnene hadde ikkje ved til å tenna bål for å laga mat. Folk var fattige og born svalt.
 
 ##
-Wangari visste råd. Ho lærde kvinnene å planta tre ved å så frø i jorda. Kvinnene selde trea og brukte pengane til beste for familien sin. Dei vart veldig glade. Wangari hadde fått dei til å føla seg sterke og mektige.
+Wangari visste råd. Ho lærde kvinnene å planta tre ved å så frø i jorda. Kvinnene selde trea og brukte pengane til det beste for familien sin. Dei vart veldig glade. Wangari hadde fått dei til å føla seg sterke og mektige.
 
 ##
 Tida gjekk og dei nye trea voks og vart til skog, og det kom vatn i elvene igjen. Historia om Wangari spreidde seg over heile Afrika. I dag er det millionar av tre som har vakse opp frå Wangaris frø.
