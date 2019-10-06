@@ -10,10 +10,10 @@ Ein gong var det hungersnød i landet. Ørn måtte gå veldig langt for å finna
 Etter ei god natts søvn fekk Høne ein lys idé. Ho byrja å samla saman fjør som hadde falle frå alle fuglevenene deira. "La oss sy dei fast utanpå fjørene våre", sa ho. Kanskje det vert lettare å reisa då.
 
 ##
-Det var berre Ørn i landsbyen som hadde ei synål, så ho byrja først å sy. Ho laga seg eit par nydelege vengar og flaug høgt i sky. Høne lånte nåla, men vart fort trøytt av å sy. Ho la nåla i skapet og gjekk for å laga mat til borna sine.
+Det var berre Ørn i landsbyen som hadde ei synål, så ho byrja først å sy. Ho laga seg eit par nydelege venger og flaug høgt i sky. Høne lånte nåla, men vart fort trøytt av å sy. Ho la nåla i skapet og gjekk for å laga mat til borna sine.
 
 ##
-Men dei andre fuglane hadde sett Ørn som flaug av garde. Dei bad Høne om å få låna nåla for å sy vengar til seg sjølve òg. Snart flaug det fuglar overalt under himmelen.
+Men dei andre fuglane hadde sett Ørn som flaug av garde. Dei bad Høne om å få låna nåla for å sy venger til seg sjølve òg. Snart flaug det fuglar overalt under himmelen.
 
 ##
 Då den siste fuglen leverte tilbake nåla dei hadde lånt, var ikkje Høne der. Så borna hennar tok nåla og byrja å leika med ho. Då dei vart lei av å leika, lét dei nåla liggja att i sanden.
