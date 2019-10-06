@@ -28,7 +28,7 @@ Så kler eg på meg sjølv. "Eg er stor no, mamma", seier eg.
 Eg kan kneppa knappar og spenna skorne mine.
 
 ##
-Og eg sørgjer for at for veslebror får vita alt nytt frå skulen.
+Og eg sørgjer for at veslebror får vita alt nytt frå skulen.
 
 ##
 I timane gjer eg mitt beste på alle måtar.
