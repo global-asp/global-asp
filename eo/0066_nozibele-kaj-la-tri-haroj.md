@@ -31,7 +31,7 @@ Tiam la hundo diris, "Ordigu la liton por mi!" Nozibele respondis, "Mi neniam or
 Ĉiutage ŝi devis kuiri kaj balai kaj lavi por la hundo. Tiam, iun tagon, la hundo diris, "Nozibele, hodiaŭ mi devas viziti iujn amikojn. Balau la domon, kuiru la manĝaĵon, kaj lavu miajn vestaĵojn antaŭ ol mi reiras."
 
 ##
-Tuj kiam la hundo foriris, Nozibele prenis tri harojn de sia kapo. Ŝi metis unu haro sub la lito, unu malantaŭ la pordo, kaj unu en la ĉirkaŭbarejo. Tiam ŝi kuris hejmen laŭeble plej rapide.
+Tuj kiam la hundo foriris, Nozibele prenis tri harojn de sia kapo. Ŝi metis unu haron sub la liton, unu malantaŭ la pordon, kaj unu en la ĉirkaŭbarejon. Tiam ŝi kuris hejmen laŭeble plej rapide.
 
 ##
 Kiam la hundo revenis, li serĉis Nozibele-on. "Nozibele, kie vi estas?" li kriis. "Mi estas ĉi tie, sub la lito," diris la unua haro. "Mi estas ĉi tie, malantaŭ la pordo," diris la dua haro. "Mi estas ĉi tie, en la ĉirkaŭbarejo," diris la tria haro.
