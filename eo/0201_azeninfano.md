@@ -34,10 +34,10 @@ Konfuzo kaj kolero kreskiĝis en Azeno. Li ne faru ĉi tion kaj li ne faru tion 
 Azeno pleniĝis de honto. Li forkuris laŭeble plej malproksime kaj rapide.
 
 ##
-Kiam li ĉesis kuri, estis jam nokto, kaj Azeno perdiĝis. "Iaa?" li flustris al la mallumo. "Iaa?" ĝi resonis al li. Li estis sola. Li buklis sin strikte en pilkoformo, kaj eniris profundan kaj maltrankvilan dormadon.
+Kiam li ĉesis kuri, estis jam nokto, kaj Azeno perdiĝis. "I-a?" li flustris al la mallumo. "I-a?" ĝi resonis al li. Li estis sola. Li buklis sin strikte en pilkoformo, kaj eniris profundan kaj maltrankvilan dormadon.
 
 ##
-Azeno vekiĝis kaj vidis strangan maljunulon, kiu fikse rigardis lin malsupren. Li rigardis en la okuloj de la maljunulo kaj eksentis iom da espero.
+Azeno vekiĝis kaj vidis strangan maljunulon, kiu fikse rigardis lin malsupren. Li rigardis en la okulojn de la maljunulo kaj eksentis iom da espero.
 
 ##
 Azeno restis kun la maljunulo, kiu instruis lin pri multaj diversaj vivteno-manieroj. Azeno aŭskultis kaj lernis, samkiel la maljunulo. Ili helpis unu la alian, kaj ili kune ridis.
@@ -49,7 +49,7 @@ Iun matenon la maljunulo petis Azeno-n porti lin al montopinto.
 Alte inter la nuboj ili dormiĝis. Azeno sonĝis, ke lia patrino malsanis kaj vokis lin. Kaj tiam li vekiĝis...
 
 ##
-... la nuboj estis malaperitaj, kune kun lia amiko, la maljunulo.
+... la nuboj estis malaperintaj, kune kun lia amiko, la maljunulo.
 
 ##
 Azeno finfine sciis kion fari.
