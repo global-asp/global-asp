@@ -13,7 +13,7 @@ Homoj ĉe la merkato aĉetas fruktojn.
 Sed neniu aĉetas la bananojn de Tom. Ili preferas aĉeti fruktojn de virinoj.
 
 ##
-"En nia komunumo, nur virinoj vendas fruktojn", diras homoj. "Kia homo estas ĉi tiu?" homoj demandas.
+"En nia komunumo, nur virinoj vendas fruktojn," diras homoj. "Kia homo estas ĉi tiu?" homoj demandas.
 
 ##
 Sed Tom ne rezignas. Li vokas: "Aĉetu miajn bananojn! Aĉetu miajn dolĉajn maturajn bananojn!"
