@@ -19,7 +19,7 @@ La ŝoforo tre ĝenis. Li forkuris sen doni al Hundo lian monŝanĝon.
 Tial, eĉ hodiaŭ, Hundo kuras al aŭto por rigardi enen kaj trovi la ŝoforon, kiu ŝuldas al li lian monŝanĝon.
 
 ##
-Kapro forkuras de la sono de aŭto. Ŝi timas, ke ŝi estos arestita pro ne esti paginta sian tarifon.
+Kapro forkuras de la sono de aŭto. Ŝi timas ke ŝi estos arestita ĉar ŝi ne pagis sian tarifon.
 
 ##
 Kaj bovo ne ĝenas kiam aŭto venos. Bovo prenas sian tempon transirante la vojon ĉar ŝi scias, ke ŝi pagis tutan sian tarifon.
