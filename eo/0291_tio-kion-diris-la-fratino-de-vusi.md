@@ -13,7 +13,7 @@ Survoje al siaj gepatroj, Vusi renkontis du knabojn kiuj kolektis fruktojn. Unu 
 La knaboj tre bedaŭris ke ili mokis Vusi-on. "Ni ne povas helpi pri la kuko, sed jen bastono por via fratino," unu el ili diris. Vusi daŭrigis sian vojaĝon.
 
 ##
-Survoje, li renkontis du viroj kiuj konstruis domon. "Ĉu ni povas uzi tiun fortan bastonon?" demandis unu el ili. Sed la bastono ne estis sufiĉe forta, kaj ĝi rompiĝis.
+Survoje, li renkontis du virojn kiuj konstruis domon. "Ĉu ni povas uzi tiun fortan bastonon?" demandis unu el ili. Sed la bastono ne estis sufiĉe forta, kaj ĝi rompiĝis.
 
 ##
 "Kion vi faris?" ekkriis Vusi. "Tiu bastono estis donaco por mia fratino. La fruktokolektistoj donis la bastonon al mi ĉar ili rompis la ovon por la kuko. La kuko estis por la geedziĝo de mia fratino. Nun estas neniu ovo, neniu kuko, kaj neniu donaco. Kion diros mia fratino?"
