@@ -19,7 +19,7 @@ Mi alpremiĝis apud fenestro. Tiu, kiu sidis apud mi tenis firme verdan plastan 
 Mi rigardis ekstere de la buso kaj rimarkis ke mi forlasis mian vilaĝon, la lokon kie mi kreskis. Mi estis survoje al la granda urbo.
 
 ##
-La ŝarĝado estis kompletigita kaj ĉiuj pasaĝeroj sidis. Kolportistoj ankoraŭ enŝoviĝis en la buson por vendi siajn varojn al la pasaĝeroj. Ĉiuj kriis la nomojn de la haveblajn varojn. La vortoj sonis al mi amuzaj.
+La ŝarĝado estis kompletigita kaj ĉiuj pasaĝeroj sidis. Kolportistoj ankoraŭ enŝoviĝis en la buson por vendi siajn varojn al la pasaĝeroj. Ĉiuj kriis la nomojn de la haveblaj varoj. La vortoj sonis al mi amuzaj.
 
 ##
 Kelkaj pasaĝeroj aĉetis trinkaĵojn, aliaj aĉetis malgrandajn manĝetojn kaj komencis maĉi. Tiuj, kiuj ne havis monon, kiel mi, nur rigardis.
