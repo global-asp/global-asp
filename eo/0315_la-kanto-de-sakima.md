@@ -22,7 +22,7 @@ Sakima ripondis, "Ili simple venas, patrino. Mi aŭdas ilin en mia kapo kaj tiam
 Sakima ŝatis kanti por sia fratineto, precipe se ŝi malsatis. Lia fratino aŭskultus lin kanti sian plej ŝatatan kanton. Ŝi svingiĝus je la trankviliga melodio.
 
 ##
-"Ĉu vi povas kanti ĝin ree kaj ree, Sakima," lia fratino petis lin. Sakima do akceptis kaj kantis ĝin ree kaj ree.
+"Ĉu vi povas kanti ĝin ree kaj ree, Sakima?" lia fratino petis lin. Sakima do akceptis kaj kantis ĝin ree kaj ree.
 
 ##
 Iun vesperon, kiam liaj gepatroj revenis hejmen, ili tre silentis. Sakima sciis ke io ne ĝustis.
