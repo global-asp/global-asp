@@ -10,7 +10,7 @@ Varmegis, do ili iris malsupren al la rivero por naĝi. Ili ludis kaj ŝprucis k
 Subite, ili ekkonsciis ke estis jam malfrue. Ili rapidis hejmen al la vilaĝo.
 
 ##
-Kiam ili preskaŭ alvenis hejmen, Nozibele metis sian manon sur la kolo. Ŝia kolĉeno estis forgesita! "Mi petas, revenu kun mi!" ŝi petis siajn amikojn. Sed ŝiaj amikoj diris ke estis jam tro malfrua.
+Kiam ili preskaŭ alvenis hejmen, Nozibele metis sian manon sur la kolon. Ŝia kolĉeno estis forgesita! "Mi petas, revenu kun mi!" ŝi petis siajn amikojn. Sed ŝiaj amikoj diris ke estis jam tro malfrua.
 
 ##
 Do Nozibele reiris sole al la rivero. Ŝi trovis la kolĉenon kaj rapidis hejmen. Sed ŝi perdiĝis en la mallumo.
