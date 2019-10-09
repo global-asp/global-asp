@@ -1,7 +1,7 @@
 # La kanto de Sakima
 
 ##
-Sakima vivis kun sia gepatroj kaj sia kvarjara fratino. Ili vivis sur la tereno de riĉulo. Ilia pajlo-tegmenta kabano staris je la fino de arbovico.
+Sakima vivis kun siaj gepatroj kaj sia kvarjara fratino. Ili vivis sur la tereno de riĉulo. Ilia pajlo-tegmenta kabano staris je la fino de arbovico.
 
 ##
 Kiam Sakima havis tri jarojn, li malsanis kaj perdis sian vidon. Sakima estis talentplena knabo.
@@ -13,7 +13,7 @@ Sakima faris multajn aferojn, kiujn aliaj sesjaraj knaboj ne faris. Ekzemple, li
 La gepatroj de Sakima laboris ĉe la domo de la riĉulo. Ili eliris la hejmon frue matene kaj revenis malfrue vespere. Sakima estis lasita kun sia fratineto.
 
 ##
-Sakima ŝategis kanti kantojn. Iun tagon, lia patrino demandis lin, "De tie eklernis vi tiujn ĉi kantojn, Sakima?"
+Sakima ŝategis kanti kantojn. Iun tagon, lia patrino demandis lin, "De kie eklernis vi tiujn ĉi kantojn, Sakima?"
 
 ##
 Sakima ripondis, "Ili simple venas, patrino. Mi aŭdas ilin en mia kapo kaj tiam mi kantas."
@@ -25,7 +25,7 @@ Sakima ŝatis kanti por sia fratineto, precipe se ŝi malsatis. Lia fratino aŭs
 "Ĉu vi povas kanti ĝin ree kaj ree, Sakima," lia fratino petis lin. Sakima do akceptis kaj kantis ĝin ree kaj ree.
 
 ##
-Iun vesperon, kiam lia gepatroj revenis hejmen, ili tre silentis. Sakima sciis ke io ne ĝustis.
+Iun vesperon, kiam liaj gepatroj revenis hejmen, ili tre silentis. Sakima sciis ke io ne ĝustis.
 
 ##
 "Kio ne ĝustas, patrino, patro?" Sakima demandis. Sakima eklernis ke la filo de la riĉulo mankis. La viro estis tre malĝoja kaj soleca.
