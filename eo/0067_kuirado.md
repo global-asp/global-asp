@@ -22,7 +22,7 @@ Mi haketas la spinacon.
 Mia patrino haketas la cepojn.
 
 ##
-Cepoj plorigas min kiam ili haketiĝas.
+Cepoj plorigas min, kiam ili haketiĝas.
 
 ##
 * License: [CC-BY-NC]
