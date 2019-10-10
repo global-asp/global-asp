@@ -40,7 +40,7 @@ La onklino de Simbegwire portis la infanon al sia hejmo. Ŝi donis varman manĝa
 Kiam la patro de Simbegwire revenis hejme, li trovis ke ŝia ĉambro estis malplena. "Kio okazis, Anita?" li demandis pezkore. La virino klarigis ke Simbegwire jam forkuris. "Mi nur volis ke ŝi respektu min," ŝi diris. "Sed eble mi tro severis." La patro de Simbegwire foriris el la domo, kaj iris al la direkto de la rivereto. Li daŭre iris al la vilaĝo de sia fratino, por sciiĝi, ĉu ŝi vidis Simbegwire.
 
 ##
-Simbegwire ludis kun siaj kuzoj, kiam ŝi vidis malproksime sian patron. Ŝi timis ke li eble koleris, do ŝi kuris en la domon por kaŝi sin. Sed ŝia patro iris al ŝi kaj diris, "Simbegwire, vi jam trovis perfektan patrinon por vi mem. Iu, kiu amas vin kaj komprenas vin. Mi fieras pri vi kaj mi amas vin." Ili konsentis ke Simbegwire restus kun sia onklino tiom longe kiom ŝi volis.
+Simbegwire ludis kun siaj kuzoj, kiam ŝi vidis malproksime sian patron. Ŝi timis ke li eble koleris, do ŝi kuris en la domon por kaŝi sin. Sed ŝia patro iris al ŝi kaj diris, "Simbegwire, vi jam trovis perfektan patrinon por vi mem. Iu, kiu amas vin kaj komprenas vin. Mi fieras pri vi kaj mi amas vin." Ili konsentis ke Simbegwire restus kun sia onklino tiom longe, kiom ŝi volis.
 
 ##
 Lia patro vizitis ŝin ĉiutage. Fine, li venis kune kun Anita. Ŝi etendis sin kaj prenis la manon de Simbegwire. "Mi tre bedaŭras, mia etulo, mi eraris," ŝi kriis. "Ĉu vi jam permesos min reprovi?" Simbegwire rigardis sian patron kaj lian maltrankvilan vizaĝon. Tiam ŝi paŝis malrapide antaŭen kaj ĉirkaŭbrakis Anita.
