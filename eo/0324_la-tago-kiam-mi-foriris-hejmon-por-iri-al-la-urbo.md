@@ -10,7 +10,7 @@ La malgranda buso en mia vilaĝo estis multemova de homoj kaj superŝarĝitaj bu
 La urba buso estis preskaŭ plena, sed pli da homoj ankoraŭ antaŭenpuŝis. Iuj enmetis sian pakaĵon sub la buso. Aliaj metis la siajn sur la rakojn.
 
 ##
-Novaj pasaĝeroj kroĉis siajn biletojn dum ili serĉis ie sidiĝi en la amasigita buso. Virinoj kun junaj infanoj faris ilin komfortaj por la longa vojaĝo.
+Novaj pasaĝeroj kroĉis siajn biletojn, dum ili serĉis ie sidiĝi en la amasigita buso. Virinoj kun junaj infanoj faris ilin komfortaj por la longa vojaĝo.
 
 ##
 Mi alpremiĝis apud fenestro. Tiu, kiu sidis apud mi tenis firme verdan plastan sakon. Li portis malnovajn sandalojn, eluzitan mantelon, kaj li aspektis nervoza.
