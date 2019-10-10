@@ -10,7 +10,7 @@ La trejnisto metis la manojn sur la koksojn. "En ĉi tiu lernejo, nur la knaboj 
 La knaboj diris al ŝi, ke ŝi ludu retpilkon. Ili diris ke la retpilko estas por knabinoj, kaj futbalo estas por knaboj. Andiswa tre malĝojis.
 
 ##
-La sekvan tagon, estis granda futballudo ĉe la lernejo. La trejnisto maltrankviliĝis ĉar lia plej bona futbalisto estis malsana kaj ne ludeblis.
+La sekvan tagon, estis granda futballudo ĉe la lernejo. La trejnisto maltrankviliĝis, ĉar lia plej bona futbalisto estis malsana kaj ne ludeblis.
 
 ##
 Andiswa kuris al la trejnisto kaj petis lin lasi ŝin ludi. La trejnisto ne certis, kion fari. Tiam li decidis ke Andiswa povus aliĝi al la teamo.
