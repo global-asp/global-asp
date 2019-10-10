@@ -52,7 +52,7 @@ Alte inter la nuboj ili dormiĝis. Azeno sonĝis, ke lia patrino malsanis kaj vo
 ... la nuboj estis malaperintaj, kune kun lia amiko, la maljunulo.
 
 ##
-Azeno finfine sciis kion fari.
+Azeno finfine sciis, kion fari.
 
 ##
 Azeno trovis sian patrinon, solan kaj funebrantan sian perditan infanon. Ili fikse rigardis unu la alian longtempe. Kaj tiam forte brakumis unu la alian.
