@@ -7,7 +7,7 @@ Iam Kokino kaj Aglo estis amikoj. Ili vivis en paco kun ĉiuj aliaj birdoj. Neni
 Iun tagon okazis malsato la lando. Aglo devis paŝi tre malproksime por trovi manĝaĵon. Ŝi revenis tre laca. "Devas esti pli facila maniero vojaĝi!" diris Aglo.
 
 ##
-Post bona dormo, Kokino havis brilan ideon. Ŝi komencis kolekti la falintajn plumojn el ĉiuj siaj birdaj amikoj. "Ni kudru ilin kune super niaj propraj plumoj," ŝi diris. "Eble tio faros vojaĝi pli facila afero."
+Post bona dormo Kokino havis brilan ideon. Ŝi komencis kolekti la falintajn plumojn el ĉiuj siaj birdaj amikoj. "Ni kudru ilin kune super niaj propraj plumoj," ŝi diris. "Eble tio faros vojaĝi pli facila afero."
 
 ##
 Aglo estis la sola en la vilaĝo kun kudrilo, do ŝi komencis kudri unue. Ŝi faris al si paron da belaj flugiloj kaj flugis alta super Kokino. Kokino prunteprenis la kudrilon, sed ŝi baldaŭ laciĝis pri kudrado. Ŝi lasis la kudrilon sur la ŝranko kaj iris en la kuirejon por prepari manĝaĵon por siaj infanoj.
