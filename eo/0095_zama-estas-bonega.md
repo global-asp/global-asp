@@ -19,7 +19,7 @@ Mi povas trakti la malvarmegan akvon kaj la bluan malbonodoran sapon.
 Panjo memorigas min, "Ne forgesu la dentojn!" Mi respondas, "Neniam, mi ne forgesos!"
 
 ##
-Post la lavado, mi salutas avĉjon kaj onjon, kaj deziras al ili agrablan tagon.
+Post la lavado, mi salutas avĉjon kaj onjon kaj deziras al ili agrablan tagon.
 
 ##
 Tiam mi vestas min. "Mi estas granda nun, panjo," mi diras.
