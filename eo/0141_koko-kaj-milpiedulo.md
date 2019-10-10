@@ -1,7 +1,7 @@
 # Koko kaj Milpiedulo
 
 ##
-Koko kaj Milpiedulo estis amikoj. Sed ili ĉiam konkuris unu kontraŭ la alia. Iun tagon, ili decidis ludi futbalon por vidi, kiu estis la plej bona ludanto.
+Koko kaj Milpiedulo estis amikoj. Sed ili ĉiam konkuris unu kontraŭ la alia. Iun tagon ili decidis ludi futbalon por vidi, kiu estis la plej bona ludanto.
 
 ##
 Ili iris al la ludkampo kaj ekludis. Koko estis rapida, sed Milpiedulo estis pli rapida. Koko piedbatis malproksime, sed Milpiedulo piedbatis pli malproksime. Koko eksentis sin malkontentan.
