@@ -1,7 +1,7 @@
 # La malsata krokodilo
 
 ##
-Iam, estis tre malsata krokodilo.
+Iam estis tre malsata krokodilo.
 
 ##
 Li serĉis manĝaĵon, malrapide kaj malbrue. Kaj tiam...
@@ -10,7 +10,7 @@ Li serĉis manĝaĵon, malrapide kaj malbrue. Kaj tiam...
 ŜPRUC!!! La krokodilo atakas!
 
 ##
-Poste, li ne plu malsatas, kaj li feliĉas.
+Poste li ne plu malsatas, kaj li feliĉas.
 
 ##
 Ĝis li malsatas denove.
