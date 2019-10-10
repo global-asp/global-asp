@@ -13,7 +13,7 @@ La knaboj diris al ŝi, ke ŝi ludu retpilkon. Ili diris ke la retpilko estas po
 La sekvan tagon, estis granda futballudo ĉe la lernejo. La trejnisto maltrankviliĝis ĉar lia plej bona futbalisto estis malsana kaj ne ludeblis.
 
 ##
-Andiswa kuris al la trejnisto kaj petis lin lasi ŝin ludi. La trejnisto ne certis kion fari. Tiam li decidis ke Andiswa povus aliĝi al la teamo.
+Andiswa kuris al la trejnisto kaj petis lin lasi ŝin ludi. La trejnisto ne certis, kion fari. Tiam li decidis ke Andiswa povus aliĝi al la teamo.
 
 ##
 La ludo estis malfacila. Neniu gajnis golon ĝis la duontempo.
