@@ -16,7 +16,7 @@ La knaboj tre bedaŭris ke ili mokis Vusi. "Ni ne povas helpi pri la kuko, sed j
 Survoje, li renkontis du virojn kiuj konstruis domon. "Ĉu ni povas uzi tiun fortan bastonon?" demandis unu el ili. Sed la bastono ne estis sufiĉe forta, kaj ĝi rompiĝis.
 
 ##
-"Kion vi faris?" ekkriis Vusi. "Tiu bastono estis donaco por mia fratino. La fruktokolektistoj donis la bastonon al mi ĉar ili rompis la ovon por la kuko. La kuko estis por la geedziĝo de mia fratino. Nun estas neniu ovo, neniu kuko, kaj neniu donaco. Kion diros mia fratino?"
+"Kion vi faris?" ekkriis Vusi. "Tiu bastono estis donaco por mia fratino. La fruktokolektistoj donis la bastonon al mi, ĉar ili rompis la ovon por la kuko. La kuko estis por la geedziĝo de mia fratino. Nun estas neniu ovo, neniu kuko, kaj neniu donaco. Kion diros mia fratino?"
 
 ##
 La konstruistoj tre bedaŭris ke ili rompis la bastonon. "Ni ne povas helpi pri la kuko, sed jen iom da tegmenta pajlo por via fratino," diris unu el ili. Kaj do Vusi daŭrigis sian vojaĝon.
@@ -25,7 +25,7 @@ La konstruistoj tre bedaŭris ke ili rompis la bastonon. "Ni ne povas helpi pri 
 Survoje, Vusi renkontis bieniston kaj bovinon. "Kia bongusta pajlo, ĉu mi rajtas manĝeti iomete?" demandis la bovino. Sed la pajlo estis tiel bongusta, ke la bovino manĝis ĉion!
 
 ##
-"Kion vi faris?" ekkriis Vusi? "Tiu pajlo estis donaco por mia fratino. La konstruistoj donis la pajlon al mi ĉar ili rompis la bastonon de la fruktokolektistoj. La fruktokolektistoj donis la bastonon al mi ĉar ili rompis la ovon por la kuko de mia fratino. La kuko estis por la geedziĝo de mia fratino. Nun estas neniu ovo, neniu kuko, kaj neniu donaco. Kion diros mia fratino?"
+"Kion vi faris?" ekkriis Vusi? "Tiu pajlo estis donaco por mia fratino. La konstruistoj donis la pajlon al mi, ĉar ili rompis la bastonon de la fruktokolektistoj. La fruktokolektistoj donis la bastonon al mi, ĉar ili rompis la ovon por la kuko de mia fratino. La kuko estis por la geedziĝo de mia fratino. Nun estas neniu ovo, neniu kuko, kaj neniu donaco. Kion diros mia fratino?"
 
 ##
 La bovino tre bedaŭras ke ŝi tiel glutemis. La bienisto konsentis ke la bovino iru kun Vusi kiel donaco por lia fratino. Kaj Vusi kontinuis sur la vojo.
