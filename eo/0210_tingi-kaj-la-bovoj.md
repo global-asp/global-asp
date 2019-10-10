@@ -7,7 +7,7 @@ Tingi vivis kun sia avino.
 Li gardis la bovojn kun ŝi.
 
 ##
-Iun tagon, la soldatoj venis.
+Iun tagon la soldatoj venis.
 
 ##
 Ili forprenis la bovojn.
