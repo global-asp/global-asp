@@ -1,4 +1,4 @@
-# La tago kiam mi foriris hejmon por iri al la urbo
+# La tago, kiam mi foriris hejmon por iri al la urbo
 
 ##
 La malgranda buso en mia vilaĝo estis multemova de homoj kaj superŝarĝitaj busoj. Sur la tero estis eĉ pli da ŝarĝoj. Helpantoj kriis la loknomojn kien iliaj busoj iris.
@@ -40,7 +40,7 @@ Dum la vojaĝo progresis, la interno de la buso tre varmiĝis. Mi fermis miajn o
 Sed mia menso vagis hejmen. Ĉu mia patrino estos sekura? Ĉu miaj kunikloj havigos monon? Ĉu mia frato memoras akvumi miajn ĝermintajn arbetojn?
 
 ##
-Survoje mi enmemorigis la nomon de la loko, kie mia onklo loĝis en la granda urbo. Mi ankoraŭ murmuris ĝin kiam mi ekdormis.
+Survoje mi enmemorigis la nomon de la loko, kie mia onklo loĝis en la granda urbo. Mi ankoraŭ murmuris ĝin, kiam mi ekdormis.
 
 ##
 Naŭ horoj poste mi vekiĝis pro laŭta ekbruo kaj voko al pasaĝeroj kiuj reirus al mia vilaĝo. Mi ekprenis mian saketon kaj saltis el la buso.
