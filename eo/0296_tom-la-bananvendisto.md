@@ -28,7 +28,7 @@ La virino aĉetas la bananojn.
 Pli da homoj venas al la stalo. Ili aĉetas la bananojn de Tom kaj manĝas ilin.
 
 ##
-Baldaŭ, la pleto estas malplena. Tom kalkulas la monon, kiun li gajnis.
+Baldaŭ la pleto estas malplena. Tom kalkulas la monon, kiun li gajnis.
 
 ##
 Tiam Tom aĉetas sapon, sukeron kaj panon. Li metas la aĵojn en sian pleton.
