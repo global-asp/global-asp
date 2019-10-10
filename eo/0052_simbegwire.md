@@ -4,7 +4,7 @@
 Kiam la patrino de Simbegwire mortis, ŝi ege malĝojis. La patro de Simbegwire faris laŭeble plej bone por varti sian filinon. Malrapide ili eklernis kiel denove senti sin feliĉaj, sen la patrino de Simbegwire. Ĉiumatene ili sidiĝis kaj parolis pri la venonta tago. Ĉiuvespere ili kune preparis vespermanĝon. Post kiam ili lavis la manĝilaron, la patro de Simbegwire helpis ŝin fari ŝian hejmtaskon.
 
 ##
-Iun tagon, la patro de Simbegwire malfrue revenis hejmen. "Kie vi estas, mia infano?" li vokis. Simbegwire kuris al sia patro. Ŝi haltis senmove kiam ŝi vidis ke li tenis la manon de iu virino. "Mi volas, ke vi renkontu iun specialan, mia infano. Jen Anita," li diris ridete.
+Iun tagon, la patro de Simbegwire malfrue revenis hejmen. "Kie vi estas, mia infano?" li vokis. Simbegwire kuris al sia patro. Ŝi haltis senmove, kiam ŝi vidis ke li tenis la manon de iu virino. "Mi volas, ke vi renkontu iun specialan, mia infano. Jen Anita," li diris ridete.
 
 ##
 "Saluton Simbegwire, via patro diris multe al mi pri vi," diris Anita. Sed ŝi nek ridetis, nek prenis la manon de la knabino. La patro de Simbegwire ĝojis kaj ekscitiĝis. Li parolis pri la estonteco, kiam ili tri kune vivus, kaj kiel bona estus ilia vivo. "Mia infano, mi esperas ke vi akceptos Anita kiel patrinon," li diris.
