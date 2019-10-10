@@ -16,7 +16,7 @@ Sed neniu aĉetas la bananojn de Tom. Ili preferas aĉeti fruktojn de virinoj.
 "En nia komunumo, nur virinoj vendas fruktojn," diras homoj. "Kia homo estas ĉi tiu?" homoj demandas.
 
 ##
-Sed Tom ne rezignas. Li vokas: "Aĉetu miajn bananojn! Aĉetu miajn dolĉajn maturajn bananojn!"
+Sed Tom ne rezignas. Li vokas, "Aĉetu miajn bananojn! Aĉetu miajn dolĉajn maturajn bananojn!"
 
 ##
 Unu virino prenas faskon da bananoj el la pleto. Ŝi rigardas la bananojn zorgeme.
