@@ -16,7 +16,7 @@ Khalai preterpasas sovaĝajn florojn. Floroj, mi petas, daŭre floru, tiel ke mi
 En la lernejo, Khalai parolas al la arbo en la centro de la korto. "Arbo, mi petas, kreskigu grandajn branĉojn, tiel ke ni povas legi sub via ombro.
 
 ##
-Khalai parolas al la arbedo, kiu ĉirkaŭas ŝian lernejon. "Mi petas, kresku forte, kaj haltigu la malbonulojn enveni."
+Khalai parolas al la arbedo, kiu ĉirkaŭas ŝian lernejon. "Mi petas, kresku forte kaj haltigu la malbonulojn enveni."
 
 ##
 Kiam Khalai revenas hejme de la lernejo, ŝi vizitas la oranĝujon. "Ĉu viaj oranĝoj jam estas maturaj?" demandas Khalai.
