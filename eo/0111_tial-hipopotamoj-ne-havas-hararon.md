@@ -13,7 +13,7 @@ Hipo ne vidis ke Kuniklo estis tie kaj ŝi senintence paŝis sur la piedo de Kun
 Hipo pardonpetis al Kuniklo, "Mi tre bedaŭras. Mi ne vidis vin. Mi petas vian pardonon!" Sed Kuniklo ne volis aŭskulti kaj li kriis al Hipo, "Vi faris tion intence! Iutage, vi vidos! Vi pagos!"
 
 ##
-Kuniklo iris trovi Fajron, kaj diris, "Iru, bruligu Hipon kiam ŝi elvenis de la akvo por manĝi herbon. Ŝi paŝis sur mi!" Fajro respondis, "Neniu problemo, Kuniklo, mia amiko. Mi laŭ via demando faros."
+Kuniklo iris trovi Fajron kaj diris, "Iru kaj bruligu Hipon kiam ŝi elvenis de la akvo por manĝi herbon. Ŝi paŝis sur mi!" Fajro respondis, "Neniu problemo, Kuniklo, mia amiko. Mi laŭ via demando faros."
 
 ##
 Poste, Hipo estis manĝante herbon malproksime de la rivero, kiam, "Vus!" Fajro ekflamiĝis. La flamoj ekbruligis la hararon de Hipo.
