@@ -34,7 +34,7 @@ Iun vesperon, kiam liaj gepatroj revenis hejmen, ili tre silentis. Sakima sciis 
 "Mi povas kanti por li. Li eble feliĉos denove," Sakima diris al siaj gepatroj. Sed siaj gepatroj malakceptis lin. "Li estas tre riĉa. Vi nur estas blinda knabo. Ĉu vi kredas ke via kanto povos helpi lin?"
 
 ##
-Tamen Sakima ne rezignis. Lia fratineto subtenis lin. Ŝi diris, "La kantoj de Sakima trankviligas min kiam mi malsatas. Ili trankviligos ankaŭ la riĉulon."
+Tamen Sakima ne rezignis. Lia fratineto subtenis lin. Ŝi diris, "La kantoj de Sakima trankviligas min, kiam mi malsatas. Ili trankviligos ankaŭ la riĉulon."
 
 ##
 La sekvan tagon, Sakima demandis sian fratineton gvidi sin al la domo de la riĉulo.
