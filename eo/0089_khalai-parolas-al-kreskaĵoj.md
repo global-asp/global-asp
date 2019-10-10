@@ -13,7 +13,7 @@ Khalai piediras al la lernejo. Survoje ŝi parolas al la herbo. "Herbo, mi petas
 Khalai preterpasas sovaĝajn florojn. Floroj, mi petas, daŭre floru, tiel ke mi povas meti vin en mia hararo.
 
 ##
-En la lernejo, Khalai parolas al la arbo en la centro de la korto. "Arbo, mi petas, kreskigu grandajn branĉojn, tiel ke ni povas legi sub via ombro.
+En la lernejo Khalai parolas al la arbo en la centro de la korto. "Arbo, mi petas, kreskigu grandajn branĉojn, tiel ke ni povas legi sub via ombro.
 
 ##
 Khalai parolas al la arbedo, kiu ĉirkaŭas ŝian lernejon. "Mi petas, kresku forte kaj haltigu la malbonulojn enveni."
