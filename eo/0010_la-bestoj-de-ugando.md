@@ -16,7 +16,7 @@
 Ĉi tio estas griza kronogruo. Ĝi estas la simbolo de la Ugando. Ĝi havas longajn krurojn kaj sur la kapo kronon. Kiu koloro estas la griza kronogruo?
 
 ##
-Ĉi tio estas akvobubalo. Ĝi manĝas herbojn kaj vivas apud la riveroj kaj la lagoj. Kiel nomiĝas tiuj, kiu kreskas sur la kapo?
+Ĉi tio estas akvobubalo. Ĝi manĝas herbojn kaj vivas apud la riveroj kaj la lagoj. Kiel nomiĝas tio, kio kreskas sur la kapo?
 
 ##
 Ĉi tiuj bestoj nomiĝas zebroj. Ili havas nigrablankajn striojn. Kiu besto aspektas kiel zebro?
