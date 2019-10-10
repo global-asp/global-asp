@@ -19,13 +19,13 @@ Post kelkaj monatoj la patro de Simbegwire diris al ili ke li foriros iom da tem
 La situacio malboniĝis por Simbegwire. Se ŝi ne finfaris siajn taskojn, aŭ ŝi plendis iomete, Anita batis ŝin. Kaj dum la vespermanĝo, la virino manĝis la plejparton de la manĝaĵo, restigante nur kelkajn restaĵojn por Simbegwire. Ĉiuvespere Simbegwire ploris, ĝis ŝi ekdormis, brakumanta la lankovrilon de sia patrino.
 
 ##
-Iun matenon Simbegwire malfrue ellitiĝis. "Vi estas pigrulino!" Anita kriis. Ŝi eltiris Simbegwire el la lito. La valora lankovrilo kroĉiĝis sur najlo, kaj duoniĝis.
+Iun matenon Simbegwire malfrue ellitiĝis. "Vi estas pigrulino!" Anita kriis. Ŝi eltiris Simbegwire el la lito. La valora lankovrilo kroĉiĝis sur najlo kaj duoniĝis.
 
 ##
-Simbegwire malĝojegis. Ŝi decidis forkuri de sia hejmo. Ŝi prenis la pecojn de la lankovrilo de sia patrino, pakis iom da manĝaĵo, kaj foriris el la domo. Ŝi sekvis la vojon, kiun prenis ŝia patro.
+Simbegwire malĝojegis. Ŝi decidis forkuri de sia hejmo. Ŝi prenis la pecojn de la lankovrilo de sia patrino, pakis iom da manĝaĵo kaj foriris el la domo. Ŝi sekvis la vojon, kiun prenis ŝia patro.
 
 ##
-Kiam vesperiĝis, ŝi surgrimpis altan arbon apud rivereto, kaj pretigis liton por si mem en la branĉoj. Dum ŝi ekdormis, ŝi kantis: "Panjo, panjo, panjo, vi forlasis min. Vi forlasis min kaj neniam revenis. Paĉjo ne plu amas min. Panjo, kiam vi revenos? Vi forlasis min."
+Kiam vesperiĝis, ŝi surgrimpis altan arbon apud rivereto kaj pretigis liton por si mem en la branĉoj. Dum ŝi ekdormis, ŝi kantis: "Panjo, panjo, panjo, vi forlasis min. Vi forlasis min kaj neniam revenis. Paĉjo ne plu amas min. Panjo, kiam vi revenos? Vi forlasis min."
 
 ##
 La sekvan tagon Simbegwire kantis la kanton denove. Kiam la virinoj venis por lavi siajn vestaĵojn en la rivereto, ili aŭdis la malfeliĉan kanton, kiu eliras de la alta arbo. Ili kredis, ke tio estis nur la vento, kiu susuris en la folioj, kaj daŭre faris sian laboron. Sed unu el la virinoj aŭskultis atente la kanton.
@@ -34,10 +34,10 @@ La sekvan tagon Simbegwire kantis la kanton denove. Kiam la virinoj venis por la
 Tiu virino suprenrigardis en la arbo. Kiam ŝi vidis la knabinon kaj la pecojn de la kolora lankovrilo, ŝi ekkriis, "Simbegwire, infano de mia frato!" La aliaj virinoj haltigis la lavadon kaj helpis Simbegwire grimpi malsupren el la arbo. Ŝia onklino brakumis la knabineton kaj klopodis konsoli ŝin.
 
 ##
-La onklino de Simbegwire portis la infanon al sia hejmo. Ŝi donis varman manĝaĵon, kaj enlitigis ŝin per la kovrilo de ŝia patrino. Tiu nokto, Simbegwire ploris, ĝis ŝi ekdormis. Sed tiuj estis larmoj de malŝarĝiĝo. Ŝi sciis, ke ŝia onklino vartos ŝin.
+La onklino de Simbegwire portis la infanon al sia hejmo. Ŝi donis varman manĝaĵon kaj enlitigis ŝin per la kovrilo de ŝia patrino. Tiu nokto, Simbegwire ploris, ĝis ŝi ekdormis. Sed tiuj estis larmoj de malŝarĝiĝo. Ŝi sciis, ke ŝia onklino vartos ŝin.
 
 ##
-Kiam la patro de Simbegwire revenis hejme, li trovis ke ŝia ĉambro estis malplena. "Kio okazis, Anita?" li demandis pezkore. La virino klarigis ke Simbegwire jam forkuris. "Mi nur volis ke ŝi respektu min," ŝi diris. "Sed eble mi tro severis." La patro de Simbegwire foriris el la domo, kaj iris al la direkto de la rivereto. Li daŭre iris al la vilaĝo de sia fratino, por sciiĝi, ĉu ŝi vidis Simbegwire.
+Kiam la patro de Simbegwire revenis hejme, li trovis ke ŝia ĉambro estis malplena. "Kio okazis, Anita?" li demandis pezkore. La virino klarigis ke Simbegwire jam forkuris. "Mi nur volis ke ŝi respektu min," ŝi diris. "Sed eble mi tro severis." La patro de Simbegwire foriris el la domo kaj iris al la direkto de la rivereto. Li daŭre iris al la vilaĝo de sia fratino, por sciiĝi, ĉu ŝi vidis Simbegwire.
 
 ##
 Simbegwire ludis kun siaj kuzoj, kiam ŝi vidis malproksime sian patron. Ŝi timis ke li eble koleris, do ŝi kuris en la domon por kaŝi sin. Sed ŝia patro iris al ŝi kaj diris, "Simbegwire, vi jam trovis perfektan patrinon por vi mem. Iu, kiu amas vin kaj komprenas vin. Mi fieras pri vi kaj mi amas vin." Ili konsentis ke Simbegwire restus kun sia onklino tiom longe, kiom ŝi volis.
