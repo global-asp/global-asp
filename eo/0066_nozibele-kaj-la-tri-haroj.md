@@ -1,13 +1,13 @@
 # Nozibele kaj la tri haroj
 
 ##
-Antaŭlonge, tri knabinoj eliris por kolekti brullignon.
+Antaŭ longa tempo tri knabinoj eliris por kolekti brullignon.
 
 ##
 Varmegis, do ili iris malsupren al la rivero por naĝi. Ili ludis kaj ŝprucis kaj naĝis en la akvo.
 
 ##
-Subite, ili ekkonsciis ke estis jam malfrue. Ili rapidis hejmen al la vilaĝo.
+Subite ili ekkonsciis ke estis jam malfrue. Ili rapidis hejmen al la vilaĝo.
 
 ##
 Kiam ili preskaŭ alvenis hejmen, Nozibele metis sian manon sur la kolon. Ŝia kolĉeno estis forgesita! "Mi petas, revenu kun mi!" ŝi petis siajn amikojn. Sed ŝiaj amikoj diris ke estis jam tro malfrua.
