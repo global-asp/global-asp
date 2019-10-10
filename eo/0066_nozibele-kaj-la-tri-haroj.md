@@ -28,16 +28,16 @@ Tiam la hundo diris, "Kuiru por mi!" "Sed mi neniam kuiris por hundo antaŭe," �
 Tiam la hundo diris, "Ordigu la liton por mi!" Nozibele respondis, "Mi neniam ordigis la liton por hundo." "Ordigu la liton, alie mi mordos vin!" diris la hundo. Do Nozibele ordigis la liton.
 
 ##
-Ĉiutage ŝi devis kuiri kaj balai kaj lavi por la hundo. Tiam, iun tagon, la hundo diris, "Nozibele, hodiaŭ mi devas viziti iujn amikojn. Balau la domon, kuiru la manĝaĵon, kaj lavu miajn vestaĵojn antaŭ ol mi reiras."
+Ĉiutage ŝi devis kuiri kaj balai kaj lavi por la hundo. Tiam, iun tagon, la hundo diris, "Nozibele, hodiaŭ mi devas viziti iujn amikojn. Balau la domon, kuiru la manĝaĵon kaj lavu miajn vestaĵojn antaŭ ol mi reiras."
 
 ##
-Tuj kiam la hundo foriris, Nozibele prenis tri harojn de sia kapo. Ŝi metis unu haron sub la liton, unu malantaŭ la pordon, kaj unu en la ĉirkaŭbarejon. Tiam ŝi kuris hejmen laŭeble plej rapide.
+Tuj kiam la hundo foriris, Nozibele prenis tri harojn de sia kapo. Ŝi metis unu haron sub la liton, unu malantaŭ la pordon kaj unu en la ĉirkaŭbarejon. Tiam ŝi kuris hejmen laŭeble plej rapide.
 
 ##
 Kiam la hundo revenis, li serĉis Nozibele. "Nozibele, kie vi estas?" li kriis. "Mi estas ĉi tie, sub la lito," diris la unua haro. "Mi estas ĉi tie, malantaŭ la pordo," diris la dua haro. "Mi estas ĉi tie, en la ĉirkaŭbarejo," diris la tria haro.
 
 ##
-Tiam ekkonsciis la hundo ke Nozibele trompis lin. Do li kuris kaj kuris la tutan vojon al la vilaĝo. Sed la fratoj de Nozibele atendis tie kun grandaj bastonoj. La hundo turnis sin kaj forkuris, kaj poste ne revidiĝis.
+Tiam ekkonsciis la hundo ke Nozibele trompis lin. Do li kuris kaj kuris la tutan vojon al la vilaĝo. Sed la fratoj de Nozibele atendis tie kun grandaj bastonoj. La hundo turnis sin kaj forkuris, kaj poste ĝi ne revidiĝis.
 
 ##
 * License: [CC-BY]
