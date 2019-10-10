@@ -25,7 +25,7 @@ Iun matenon Simbegwire malfrue ellitiĝis. "Vi estas pigrulino!" Anita kriis. Ŝ
 Simbegwire malĝojegis. Ŝi decidis forkuri de sia hejmo. Ŝi prenis la pecojn de la lankovrilo de sia patrino, pakis iom da manĝaĵo kaj foriris el la domo. Ŝi sekvis la vojon, kiun prenis ŝia patro.
 
 ##
-Kiam vesperiĝis, ŝi surgrimpis altan arbon apud rivereto kaj pretigis liton por si mem en la branĉoj. Dum ŝi ekdormis, ŝi kantis: "Panjo, panjo, panjo, vi forlasis min. Vi forlasis min kaj neniam revenis. Paĉjo ne plu amas min. Panjo, kiam vi revenos? Vi forlasis min."
+Kiam vesperiĝis, ŝi surgrimpis altan arbon apud rivereto kaj pretigis liton por si mem en la branĉoj. Dum ŝi ekdormis, ŝi kantis, "Panjo, panjo, panjo, vi forlasis min. Vi forlasis min kaj neniam revenis. Paĉjo ne plu amas min. Panjo, kiam vi revenos? Vi forlasis min."
 
 ##
 La sekvan tagon Simbegwire kantis la kanton denove. Kiam la virinoj venis por lavi siajn vestaĵojn en la rivereto, ili aŭdis la malfeliĉan kanton, kiu eliras de la alta arbo. Ili kredis, ke tio estis nur la vento, kiu susuris en la folioj, kaj daŭre faris sian laboron. Sed unu el la virinoj aŭskultis atente la kanton.
