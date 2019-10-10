@@ -34,7 +34,7 @@ Konfuzo kaj kolero kreskiĝis en Azeno. Li ne faru ĉi tion kaj li ne faru tion 
 Azeno pleniĝis de honto. Li forkuris laŭeble plej malproksime kaj rapide.
 
 ##
-Kiam li ĉesis kuri, estis jam nokto, kaj Azeno perdiĝis. "I-a?" li flustris al la mallumo. "I-a?" ĝi resonis al li. Li estis sola. Li buklis sin strikte en pilkoformo, kaj eniris profundan kaj maltrankvilan dormadon.
+Kiam li ĉesis kuri, estis jam nokto, kaj Azeno perdiĝis. "I-a?" li flustris al la mallumo. "I-a?" ĝi resonis al li. Li estis sola. Li buklis sin strikte en pilkoformo kaj eniris profundan kaj maltrankvilan dormadon.
 
 ##
 Azeno vekiĝis kaj vidis strangan maljunulon, kiu fikse rigardis lin malsupren. Li rigardis en la okulojn de la maljunulo kaj eksentis iom da espero.
