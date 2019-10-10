@@ -16,7 +16,7 @@ Novaj pasaĝeroj kroĉis siajn biletojn dum ili serĉis ie sidiĝi en la amasigi
 Mi alpremiĝis apud fenestro. Tiu, kiu sidis apud mi tenis firme verdan plastan sakon. Li portis malnovajn sandalojn, eluzitan mantelon, kaj li aspektis nervoza.
 
 ##
-Mi rigardis ekstere de la buso kaj rimarkis ke mi forlasis mian vilaĝon, la lokon kie mi kreskis. Mi estis survoje al la granda urbo.
+Mi rigardis ekstere de la buso kaj rimarkis ke mi forlasis mian vilaĝon, la lokon, kie mi kreskis. Mi estis survoje al la granda urbo.
 
 ##
 La ŝarĝado estis kompletigita kaj ĉiuj pasaĝeroj sidis. Kolportistoj ankoraŭ enŝoviĝis en la buson por vendi siajn varojn al la pasaĝeroj. Ĉiuj kriis la nomojn de la haveblaj varoj. La vortoj sonis al mi amuzaj.
