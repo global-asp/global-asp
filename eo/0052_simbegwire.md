@@ -16,7 +16,7 @@ La vivo de Simbegwire ŝanĝiĝis. Ŝi ne plu havis tempon por sidi matene kun s
 Post kelkaj monatoj la patro de Simbegwire diris al ili ke li foriros iom da tempo. "Mi devas vojaĝi por mia laboro," li diris. "Sed mi scias ke vi ambaŭ prizorgos unu la alian." La vizaĝo de Simbegwire malridetis, sed ŝia patro ne rimarkis pri tio. Anita nenion diris. Ankaŭ ŝi ne ĝojis.
 
 ##
-La situacio malboniĝis por Simbegwire. Se ŝi ne finfaris siajn taskojn, aŭ ŝi plendis iomete, Anita batis ŝin. Kaj dum la vespermanĝo la virino manĝis la plejparton de la manĝaĵo, restigante nur kelkajn restaĵojn por Simbegwire. Ĉiuvespere Simbegwire ploris, ĝis ŝi ekdormis, brakumanta la lankovrilon de sia patrino.
+La situacio malboniĝis por Simbegwire. Se ŝi ne finfaris siajn taskojn, aŭ ŝi plendis iomete, Anita batis ŝin. Kaj dum la vespermanĝo, la virino manĝis la plejparton de la manĝaĵo, restigante nur kelkajn restaĵojn por Simbegwire. Ĉiuvespere Simbegwire ploris, ĝis ŝi ekdormis, brakumanta la lankovrilon de sia patrino.
 
 ##
 Iun matenon Simbegwire malfrue ellitiĝis. "Vi estas pigrulino!" Anita kriis. Ŝi eltiris Simbegwire el la lito. La valora lankovrilo kroĉiĝis sur najlo, kaj duoniĝis.
