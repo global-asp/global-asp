@@ -16,7 +16,7 @@ La vivo de Simbegwire ŝanĝiĝis. Ŝi ne plu havis tempon por sidi matene kun s
 Post kelkaj monatoj la patro de Simbegwire diris al ili ke li foriros iom da tempo. "Mi devas vojaĝi por mia laboro," li diris. "Sed mi scias ke vi ambaŭ prizorgos unu la alian." La vizaĝo de Simbegwire malridetis, sed ŝia patro ne rimarkis pri tio. Anita nenion diris. Ankaŭ ŝi ne ĝojis.
 
 ##
-La situacio malboniĝis por Simbegwire. Se ŝi ne finfaris siajn taskojn, aŭ ŝi plendis iomete, Anita batis ŝin. Kaj dum la vespermanĝo la virino manĝis la plejparton de la manĝaĵo, restigante nur kelkajn restaĵojn por Simbegwire. Ĉiuvespere Simbegwire ploris ĝis ŝi ekdormis, brakumanta la lankovrilon de sia patrino.
+La situacio malboniĝis por Simbegwire. Se ŝi ne finfaris siajn taskojn, aŭ ŝi plendis iomete, Anita batis ŝin. Kaj dum la vespermanĝo la virino manĝis la plejparton de la manĝaĵo, restigante nur kelkajn restaĵojn por Simbegwire. Ĉiuvespere Simbegwire ploris, ĝis ŝi ekdormis, brakumanta la lankovrilon de sia patrino.
 
 ##
 Iun matenon Simbegwire malfrue ellitiĝis. "Vi estas pigrulino!" Anita kriis. Ŝi eltiris Simbegwire el la lito. La valora lankovrilo kroĉiĝis sur najlo, kaj duoniĝis.
@@ -34,7 +34,7 @@ La sekvan tagon Simbegwire kantis la kanton denove. Kiam la virinoj venis por la
 Tiu virino suprenrigardis en la arbo. Kiam ŝi vidis la knabinon kaj la pecojn de la kolora lankovrilo, ŝi ekkriis, "Simbegwire, infano de mia frato!" La aliaj virinoj haltigis la lavadon kaj helpis Simbegwire grimpi malsupren el la arbo. Ŝia onklino brakumis la knabineton kaj klopodis konsoli ŝin.
 
 ##
-La onklino de Simbegwire portis la infanon al sia hejmo. Ŝi donis varman manĝaĵon, kaj enlitigis ŝin per la kovrilo de ŝia patrino. Tiu nokto, Simbegwire ploris ĝis ŝi ekdormis. Sed tiuj estis larmoj de malŝarĝiĝo. Ŝi sciis, ke ŝia onklino vartos ŝin.
+La onklino de Simbegwire portis la infanon al sia hejmo. Ŝi donis varman manĝaĵon, kaj enlitigis ŝin per la kovrilo de ŝia patrino. Tiu nokto, Simbegwire ploris, ĝis ŝi ekdormis. Sed tiuj estis larmoj de malŝarĝiĝo. Ŝi sciis, ke ŝia onklino vartos ŝin.
 
 ##
 Kiam la patro de Simbegwire revenis hejme, li trovis ke ŝia ĉambro estis malplena. "Kio okazis, Anita?" li demandis pezkore. La virino klarigis ke Simbegwire jam forkuris. "Mi nur volis ke ŝi respektu min," ŝi diris. "Sed eble mi tro severis." La patro de Simbegwire foriris el la domo, kaj iris al la direkto de la rivereto. Li daŭre iris al la vilaĝo de sia fratino, por sciiĝi, ĉu ŝi vidis Simbegwire.
