@@ -34,7 +34,7 @@ Koko ruktis. Tiam ŝi glutis kaj kraĉis. Tiam ŝi ternis kaj tusis. Kaj tusis. 
 Koko tusis, ĝis ŝi eltusigis la milpiedulon kiu estis en ŝia stomako. Milpiedul-patrino kaj ŝia infano suprenrampis sur arbo kaj kaŝis sin.
 
 ##
-Ekde tiam, la kokoj kaj la milpieduloj estis malamikoj.
+Ekde tiam la kokoj kaj la milpieduloj estis malamikoj.
 
 ##
 * License: [CC-BY]
