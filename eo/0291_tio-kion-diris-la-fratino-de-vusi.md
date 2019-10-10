@@ -10,7 +10,7 @@ Survoje al siaj gepatroj, Vusi renkontis du knabojn kiuj kolektis fruktojn. Unu 
 "Kion vi faris?" ekkriis Vusi. "Tiu ovo estis por kuko. La kuko estis por la edziniĝo de mia fratino. Kion diros mia fratino, se ne estos geedziĝa kuko?"
 
 ##
-La knaboj tre bedaŭris ke ili mokis Vusi-on. "Ni ne povas helpi pri la kuko, sed jen bastono por via fratino," unu el ili diris. Vusi daŭrigis sian vojaĝon.
+La knaboj tre bedaŭris ke ili mokis Vusi. "Ni ne povas helpi pri la kuko, sed jen bastono por via fratino," unu el ili diris. Vusi daŭrigis sian vojaĝon.
 
 ##
 Survoje, li renkontis du virojn kiuj konstruis domon. "Ĉu ni povas uzi tiun fortan bastonon?" demandis unu el ili. Sed la bastono ne estis sufiĉe forta, kaj ĝi rompiĝis.

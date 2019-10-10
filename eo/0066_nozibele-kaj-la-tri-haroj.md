@@ -34,7 +34,7 @@ Tiam la hundo diris, "Ordigu la liton por mi!" Nozibele respondis, "Mi neniam or
 Tuj kiam la hundo foriris, Nozibele prenis tri harojn de sia kapo. Ŝi metis unu haron sub la liton, unu malantaŭ la pordon, kaj unu en la ĉirkaŭbarejon. Tiam ŝi kuris hejmen laŭeble plej rapide.
 
 ##
-Kiam la hundo revenis, li serĉis Nozibele-on. "Nozibele, kie vi estas?" li kriis. "Mi estas ĉi tie, sub la lito," diris la unua haro. "Mi estas ĉi tie, malantaŭ la pordo," diris la dua haro. "Mi estas ĉi tie, en la ĉirkaŭbarejo," diris la tria haro.
+Kiam la hundo revenis, li serĉis Nozibele. "Nozibele, kie vi estas?" li kriis. "Mi estas ĉi tie, sub la lito," diris la unua haro. "Mi estas ĉi tie, malantaŭ la pordo," diris la dua haro. "Mi estas ĉi tie, en la ĉirkaŭbarejo," diris la tria haro.
 
 ##
 Tiam ekkonsciis la hundo ke Nozibele trompis lin. Do li kuris kaj kuris la tutan vojon al la vilaĝo. Sed la fratoj de Nozibele atendis tie kun grandaj bastonoj. La hundo turnis sin kaj forkuris, kaj poste ne revidiĝis.

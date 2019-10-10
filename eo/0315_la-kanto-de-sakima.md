@@ -52,7 +52,7 @@ Sakima finis la kantadon kaj turniĝis por foriri. Sed la riĉulo rapidis ekster
 Ĝuste tiumomente, du viroj venis portante iun sur homportilo. Ili trovis la filon de la riĉulo batitan kaj forlasitan sur la flanko de la vojo.
 
 ##
-La riĉulo tiel ĝojis revidi sian filon. Li rekompencis Sakima-on por konsili lin. Li kunprenis sian filon kaj Sakima-on al la malsanulejo por regajnigi la vidon de Sakima.
+La riĉulo tiel ĝojis revidi sian filon. Li rekompencis Sakima por konsili lin. Li kunprenis sian filon kaj Sakima al la malsanulejo por regajnigi la vidon de Sakima.
 
 ##
 * License: [CC-BY]
