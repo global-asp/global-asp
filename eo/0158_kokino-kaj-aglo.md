@@ -28,7 +28,7 @@ Poste tiun posttagmezon, Aglo revenis. Ŝi petis la kudrilon por ripari iujn plu
 Kiam Aglo venis la venontan tagon, ŝi trovis Kokinon skrapantan en la sablo, sed neniu kudrilo. Do Aglo flugis tre rapide kaj kaptis unu el la idoj. Ŝi forportis ĝin. Ĉiam post tiam, kiam ajn Aglo aperas, ŝi trovas Kokinon skrapantan en la sablo por la kudrilo.
 
 ##
-Kiam la ombro de la flugilo de Aglo falas sur la kampo, Kokino avertas siajn idojn. "Eliru el la nuda kaj seka tereno." Kaj ili respondas: "Ni ne estas malsaĝuloj. Ni kuros."
+Kiam la ombro de la flugilo de Aglo falas sur la kampo, Kokino avertas siajn idojn. "Eliru el la nuda kaj seka tereno." Kaj ili respondas, "Ni ne estas malsaĝuloj. Ni kuros."
 
 ##
 * License: [CC-BY]
