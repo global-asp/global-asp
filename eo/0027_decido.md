@@ -28,7 +28,7 @@ Homoj tranĉis sin per rompitaj vitropecoj, kiujn aliuloj ĵetis senatente.
 Tiam, unu tagon, la krano sekiĝis kaj niaj akvujoj malpleniĝis.
 
 ##
-Mia patro marŝis de unu domo al alia, kaj petis homojn ĉeesti vilaĝan kunvenon.
+Mia patro marŝis de unu domo al alia kaj petis homojn ĉeesti vilaĝan kunvenon.
 
 ##
 Homoj kunvenis sub granda arbo kaj aŭskultis.
