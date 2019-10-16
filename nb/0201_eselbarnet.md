@@ -58,7 +58,7 @@ Esel visste omsider hva han skulle gjøre.
 Esel fant moren sin som var alene, og sørget over tapet av barnet sitt. De stirret på hverandre lenge. Og så klemte de hverandre veldig hardt.
 
 ##
-Eselbarnet og moren hans har utviklet seg i fellesskap og funnet mange måter å leve side ved side. Sakte men sikkert har andre familier begynt å slå seg ned rundt dem.
+Eselbarnet og moren hans har utviklet seg i fellesskap og funnet mange måter å leve side ved side. Sakte, men sikkert har andre familier begynt å slå seg ned rundt dem.
 
 ##
 * License: [CC-BY]
