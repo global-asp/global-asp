@@ -43,7 +43,7 @@ Nyar-Kanyada lærte sine børnebørn at lave blød ugali, som de kunne spise med
 En morgen tog Odongo sin bedstemors køer med ud for at græsse. De løb ind på naboens gård. Bonden blev vred på Odongo. Han truede med at beholde køerne, fordi de havde spist hans afgrøder. Efter den dag sørgede drengen for, at køerne ikke lavede ulykker igen.
 
 ##
-En anden dag tog børnene på markedet med Nyar-Kadyada. Hun havde en bod, hvor hun solgte grøntsager, sukker og sæbe. Apiyo kunne godt lide at fortælle kunderne, hvad varerne kostede. Odongo pakkede de varer, kunderne købte.
+En anden dag tog børnene på markedet med Nyar-Kanyada. Hun havde en bod, hvor hun solgte grøntsager, sukker og sæbe. Apiyo kunne godt lide at fortælle kunderne, hvad varerne kostede. Odongo pakkede de varer, kunderne købte.
 
 ##
 Sidst på dagen drak de chaite sammen. De hjalp bedstemoderen med at tælle de penge, hun havde tjent.
