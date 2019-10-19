@@ -13,7 +13,7 @@ Tidligt næste morgen tog de af sted i deres fars bil. De kørte forbi bjerge, v
 Efter et stykke tid blev børnene trætte og faldt i søvn.
 
 ##
-Far vækkede Odongo og Apiyo, da de ankom til landsbyen. De fandt Nuar-Kanyada, deres bedstemor, sovende på et tæppe under et træ. Nyar-Kanyada betyder 'datter af Kanyada-folket' på Luo. Hun var en stærk og smuk kvinde.
+Far vækkede Odongo og Apiyo, da de ankom til landsbyen. De fandt Nyar-Kanyada, deres bedstemor, sovende på et tæppe under et træ. Nyar-Kanyada betyder 'datter af Kanyada-folket' på Luo. Hun var en stærk og smuk kvinde.
 
 ##
 Nyar-Kanyada bød dem indenfor i huset og dansede rundt i rummet, mens hun sang af glæde. Hendes børnebørn var spændte på at give hende haverne, de havde taget med fra byen. "Åbn min gave først," sagde Odongo. "Nej, min gave først!" sagde Apiyo.
