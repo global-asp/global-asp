@@ -22,7 +22,7 @@ Hønen siger "gok".
 Hunden siger "vov".
 
 ##
-Landmanden siger "shh!"
+Landmanden siger "ssh!"
 
 ##
 * License: [CC-BY-NC]
