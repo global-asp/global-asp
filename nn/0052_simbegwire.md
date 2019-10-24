@@ -13,7 +13,7 @@ Ein dag kom Simbegwire sin far heim seinare enn vanleg. "Kor er du, jenta mi?" r
 Livet til Simbegwire forandra seg. Ho hadde ikkje lenger tid til å sitja saman med far sin om morgonen. Anita gav henne så mykje husarbeid at ho vart for sliten til å gjera leksene om kvelden. Ho gjekk rett til sengs etter middag. Den einaste trøysta ho hadde var eit fargerikt teppe mor hennar hadde gjeve henne. Det verka ikkje som Simbegwire sin far merka at dotter hans var ulykkeleg.
 
 ##
-Etter nokre månader fortalde Simbegwire sin far dei at han skulle vera borte eit bel. "Eg må reisa på grunn av jobben min", sa han. Men eg veit at de kjem til ta vare på kvarandre." Simbegwire såg trist ut, men faren la ikkje merke til det. Anita sa ikkje noko. Ho var ikkje glad ho heller.
+Etter nokre månader fortalde Simbegwire sin far dei at han skulle vera borte eit bel. "Eg må reisa på grunn av jobben min", sa han. "Men eg veit at de kjem til ta vare på kvarandre." Simbegwire såg trist ut, men faren la ikkje merke til det. Anita sa ikkje noko. Ho var ikkje glad ho heller.
 
 ##
 Ting vart berre vondare for Simbegwire. Viss ho ikkje gjorde ferdig husarbeidet, eller klaga, slo Anita henne. Og under middagen åt Anita det meste av maten, slik at Simbegwire berre fekk nokre få restar. Kvar natt gret Simbegwire til ho fall i søvn medan ho klemde rundt teppet frå mor si.
