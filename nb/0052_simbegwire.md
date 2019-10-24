@@ -13,7 +13,7 @@ En dag kom Simbegwires far hjem senere enn vanlig. "Hvor er du, jenta mi?" ropte
 Livet til Simbegwire forandret seg. Hun hadde ikke lenger tid til å sitte sammen med faren sin om morgenen. Anita ga henne så mye husarbeid at hun ble for sliten til å gjøre leksene om kvelden. Hun gikk rett til sengs etter middag. Den eneste trøsten hun hadde var et fargerikt teppe moren hennes hadde gitt henne. Det virket ikke som Simbegwires far merket at datteren hans var ulykkelig.
 
 ##
-Etter noen måneder fortalte Simbegwires far dem at han skulle være borte en stund. "Jeg må reise på grunn av jobben min", sa han. Men jeg vet at dere kommer til ta vare på hverandre." Simbegwire så trist ut, men faren la ikke merke til det. Anita sa ikke noe. Hun var ikke glad hun heller.
+Etter noen måneder fortalte Simbegwires far dem at han skulle være borte en stund. "Jeg må reise på grunn av jobben min", sa han. "Men jeg vet at dere kommer til ta vare på hverandre." Simbegwire så trist ut, men faren la ikke merke til det. Anita sa ikke noe. Hun var ikke glad hun heller.
 
 ##
 Ting ble bare verre for Simbegwire. Hvis hun ikke gjorde ferdig husarbeidet, eller klagde, slo Anita henne. Og under middagen spiste Anita det meste av maten, slik at Simbegwire bare fikk noen få rester. Hver natt gråt Simbegwire til hun falt i søvn mens hun klemte rundt teppet fra moren sin.
