@@ -7,7 +7,7 @@ Min lillebror sover väldigt länge. Jag vaknar tidigt för jag är bäst!
 Det är jag som släpper in solen.
 
 ##
-"Du är min morgonstjärna", säger mamma
+"Du är min morgonstjärna", säger mamma.
 
 ##
 Jag tvättar mig själv, jag behöver ingen hjälp.
