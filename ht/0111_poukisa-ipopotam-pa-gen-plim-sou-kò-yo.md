@@ -13,7 +13,7 @@ Ipo pat wè Lapen, li mache sou pye li san’l pa konnen. Lapen tonbe rele "Anmw
 Ipo eskize li bò kote Lapen. Li di li "Eskize’m, mwen pate wè ou, tanpri padonnen’m!" Men, Lapen pa koute’l, li tonbe rele pifò "Ou fè eskprè! Yon jou, wap wè! Wap peye sa a!"
 
 ##
-Lapen ale jwenn dife pou’l di li, "Ale mete dife sou Ipo lè li soti nan dlo a pou’l manje zèb ... Li pile’m!" Dife an reponn, "Pa gen pwoblèm Lapen, zanmi mwen, mwen pral fè sa ou mande mwen la a"
+Lapen ale jwenn dife pou’l di li, "Ale mete dife sou Ipo lè li soti nan dlo a pou’l manje zèb ... Li pile’m!" Dife an reponn, "Pa gen pwoblèm Lapen, zanmi mwen, mwen pral fè sa ou mande mwen la a".
 
 ##
 Yon lòt lè, Ipo tap manje zèb byen lwen bò rivyè a. Dife pete Woush!" enpi gwo flanm kòmanse boule plim Ipo.
