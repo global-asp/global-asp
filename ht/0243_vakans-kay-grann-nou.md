@@ -13,7 +13,7 @@ Byen bonè nan maten, yale nan machin papa yo jis nan vilaj kote grann yo rete. 
 Apre yon titan, timoun yo bouke, yo tonbe dòmi.
 
 ##
-Lè yo rive papa a reveye Odongo ak Apiyo. Yo jwenn grann yo, Nyar-Kanyada, kouche atè lap dòmi sou yon nat anba yon pyebwa. Nyar-Kanyada vle di “pitit fi pèp Kanyada la » nan lang Luo. Nyar-Kanyada se te yon bèl fanm ak yon bèl karaktè.
+Lè yo rive papa a reveye Odongo ak Apiyo. Yo jwenn grann yo, Nyar-Kanyada, kouche atè lap dòmi sou yon nat anba yon pyebwa. Nyar-Kanyada vle di "pitit fi pèp Kanyada la » nan lang Luo. Nyar-Kanyada se te yon bèl fanm ak yon bèl karaktè.
 
 ##
 Nyar-Kanyada akeyi yo lakay li enpi li danse ak chante ak yo tèlman kè’l te kontan. Pitit pitit li yo te kontan bay li kado yo te pote pou li. Odongo di "Louvri pa’m anvan ». Apiyo di « Non, se pa’m pou’w louvri anvan!».

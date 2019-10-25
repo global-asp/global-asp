@@ -25,7 +25,7 @@ Fiecare a început să argumenteze. "Am spus că vom ține în siguranță mama 
 Dar în final ea a trebuit să accepte că el era copilul ei și ea era mama lui.
 
 ##
-Acum, dacă copilul ar fi rămas la fel, mic , totul ar fi fost diferit. Dar copilul a crescut și a crescut până când nu mai încăpea în spatele mamei lui. Și oricât de mult el a încercat, nu putea să se poarte ca un om. Mama lui era adesea obosită și frustrată. Uneori îl punea să facă muncă pentru animale.
+Acum, dacă copilul ar fi rămas la fel, mic, totul ar fi fost diferit. Dar copilul a crescut și a crescut până când nu mai încăpea în spatele mamei lui. Și oricât de mult el a încercat, nu putea să se poarte ca un om. Mama lui era adesea obosită și frustrată. Uneori îl punea să facă muncă pentru animale.
 
 ##
 Confuzia și mânia creșteau în Măgar. Nu putea să facă asta și nu putea să facă aia. Nu putea să fie în acest fel și nu putea să fie în acel fel. El a devenit așa de furios încât, într-o zi, a împins-o pe mama lui la pământ.

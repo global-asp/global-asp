@@ -25,10 +25,10 @@ Pita nan apremidi, Eg la tounen. Li mande kote zegwi la pou’l ranje kèk plim 
 "Tanpri ban mwen yon lòt jou ankò" poul la mande. "Apre sa a, wap kapab ranje zèl ou pou'w ale chache manje ankò." "Map ba ou yon grenn jou sèlman" Eg la reponn. "Si ou pa ka jwenn zegwi a ou pral blije ban mwen yonn nan ti poul ou yo kòm pèman."
 
 ##
-Lè Eg la vini nan lòt jou ki vini, li jwenn Poul la ap grate sab la men zegwi pate la. Se konsa ke Eg lan vole byen ba pou li pran yonn nan ti poul yo. Li pati avèk ti poul lan. Depi jou sa a , chak fwa Eg parèt li wè poul lan af fouye sab lan pou’l chache zegwi a.
+Lè Eg la vini nan lòt jou ki vini, li jwenn Poul la ap grate sab la men zegwi pate la. Se konsa ke Eg lan vole byen ba pou li pran yonn nan ti poul yo. Li pati avèk ti poul lan. Depi jou sa a, chak fwa Eg parèt li wè poul lan af fouye sab lan pou’l chache zegwi a.
 
 ##
-Lè poul lan wè lombraj zèl Eg la ap tonbe li kouri pran timoun li yo “soti sou teren vid sa a” Timoun yo reponn: "Nou konnen! N’ap kouri."
+Lè poul lan wè lombraj zèl Eg la ap tonbe li kouri pran timoun li yo "soti sou teren vid sa a" Timoun yo reponn: "Nou konnen! N’ap kouri."
 
 ##
 * License: [CC-BY]

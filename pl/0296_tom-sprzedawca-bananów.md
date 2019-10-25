@@ -13,10 +13,10 @@ Ludzie kupują różne owoce na rynku.
 Ale nikt nie kupuje bananów Toma. Ludzie wolą kupować owoce od kobiet.
 
 ##
-Ludzie mówią: „U nas tylko kobiety sprzedają owoce. Od kiedy to owoce sprzedaje mężczyzna?”
+Ludzie mówią: „U nas tylko kobiety sprzedają owoce. Od kiedy to owoce sprzedaje mężczyzna?"
 
 ##
-Tom nie poddaje się i nawołuje: „Kupujcie moje banany! Pyszne, dojrzałe banany tylko u mnie!”
+Tom nie poddaje się i nawołuje: „Kupujcie moje banany! Pyszne, dojrzałe banany tylko u mnie!"
 
 ##
 Jedna z kobiet podchodzi bliżej, bierze kiść bananów i zaczyna ją dokładnie oglądać.

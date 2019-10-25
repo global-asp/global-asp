@@ -7,7 +7,7 @@ Min lillebror sover väldigt länge. Jag vaknar tidigt för jag är bäst!
 Det är jag som släpper in solen.
 
 ##
-”Du är min morgonstjärna”, säger mamma
+"Du är min morgonstjärna", säger mamma
 
 ##
 Jag tvättar mig själv, jag behöver ingen hjälp.
@@ -16,13 +16,13 @@ Jag tvättar mig själv, jag behöver ingen hjälp.
 Jag klarar mig med kallt vatten och blå, doftande tvål.
 
 ##
-Mamma påminner: ”Glöm inte tänderna!” Jag svarar ”Aldrig, inte jag!”
+Mamma påminner: "Glöm inte tänderna!" Jag svarar "Aldrig, inte jag!"
 
 ##
 Efter att jag tvättat mig hälsar jag på morfar och moster och önskar dem en god dag.
 
 ##
-Sedan klär jag mig själv ”Jag är stor nu, mamma”, säger jag.
+Sedan klär jag mig själv "Jag är stor nu, mamma", säger jag.
 
 ##
 Jag kan knäppa knapparna och stänga spännet på mina skor.

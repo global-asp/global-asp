@@ -13,7 +13,7 @@ Autobuzul pentru oraș era aproape plin, dar mai mulți oameni încă se împing
 Călătorii noi țineau biletul strâns în mâna in timp ce căutau să se așeze undeva în autobuzul aglomerat. Femei cu copii mici îi așezau confortabil pentru lunga călătorie.
 
 ##
-M-am îngrămădit înăuntru lângă o fereastră. Persoana de lângă mine ținea strâns în mână o geantă verde din plastic . Purta sandale vechi, o jacheta uzată și arăta nervos.
+M-am îngrămădit înăuntru lângă o fereastră. Persoana de lângă mine ținea strâns în mână o geantă verde din plastic. Purta sandale vechi, o jacheta uzată și arăta nervos.
 
 ##
 M-am uitat pe geam și mi-am dat seama că plecam din satul meu, locul unde am crescut. Plecam la marele oraș.

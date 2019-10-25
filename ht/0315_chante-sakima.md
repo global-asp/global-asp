@@ -28,7 +28,7 @@ Ti sè li te konn siplye’l « chante’l ankò, ankò, ankò, Sakima," Sakima 
 Yon swa, lè paran Sakima tounen lakay yo yo pate pale menm. Sakima santi te gen yon pwoblèm.
 
 ##
-“ Manman, papa kisa kap pase » Sakima mande. Yo di Sakima ke pitit gason mesye rich la te disparèt. Mesye an te santi’l sèl ak tris anpil.
+" Manman, papa kisa kap pase » Sakima mande. Yo di Sakima ke pitit gason mesye rich la te disparèt. Mesye an te santi’l sèl ak tris anpil.
 
 ##
 Sakima di paran li « Mwen ta ka chante pou li …petèt kè’l ta kontan ankò,". Men, paran li di li "Mesye sa a rich. Ou se sèlman yon ti gason avèg ou ye. Èske ou kwè ke chante ou yo kapab ede’l?"
@@ -43,7 +43,7 @@ Nan demen, Sakima mande ti sè li pou li mennen’l kay mesye rich la.
 Li kanpe anba yon gwo fenèt enpi li kòmanse chante chante mesye a renmen. Tèt mesye an kòmanse parèt tou dousman nan fenèt la.
 
 ##
-Travayè yo sispann sa yo tap fè. Yo tap koute bèl chante Sakima yo. Men yonn nan yo di « Okenn moun pa ka console boss la. Eske ti gason avèg sa a kwè ke lap console li?”
+Travayè yo sispann sa yo tap fè. Yo tap koute bèl chante Sakima yo. Men yonn nan yo di « Okenn moun pa ka console boss la. Eske ti gason avèg sa a kwè ke lap console li?"
 
 ##
 Lè Sakima fin chante li vire pou’l tounen lakay li. Men, mesye rich la kouri sòti dèyè li, li di li "Tanpri chante ankò."

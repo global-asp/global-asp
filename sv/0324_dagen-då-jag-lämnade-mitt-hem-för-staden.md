@@ -4,7 +4,7 @@
 Den lilla busstationen i min hemby var full av människor och överbelastade bussar. På marken fanns det ännu fler saker som skulle lastas på. Anställda skrek namnen på ställena som bussarna skulle gå till.
 
 ##
-“Storstan! Storstan! Vi åker västerut!” hörde jag en anställd ropa. Det var den bussen som jag behövde åka med.
+"Storstan! Storstan! Vi åker västerut!" hörde jag en anställd ropa. Det var den bussen som jag behövde åka med.
 
 ##
 Bussen till storstan var nästan full men fler människor trängde sig på. Vissa packade undan sitt bagage under bussen. Andra lade det på hyllorna på insidan.

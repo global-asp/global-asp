@@ -7,16 +7,16 @@ Es war ein kleines Mädchen, das zuerst die mysteriöse Gestalt in der Ferne erk
 Als die Gestalt näher kam, sah sie, dass es eine hochschwangere Frau war.
 
 ##
-Schüchtern, aber tapfer näherte sich das Mädchen der Frau. „Sie soll bei uns bleiben“, entschied das Volk des kleinen Mädchens. „Wir bieten ihr und ihrem Kind Schutz.“
+Schüchtern, aber tapfer näherte sich das Mädchen der Frau. „Sie soll bei uns bleiben", entschied das Volk des kleinen Mädchens. „Wir bieten ihr und ihrem Kind Schutz."
 
 ##
-Das Kind war bald unterwegs. „Press!“, „Bringt Decken!“, „Wasser!“, „Preeeeeeessen!“
+Das Kind war bald unterwegs. „Press!", „Bringt Decken!", „Wasser!", „Preeeeeeessen!"
 
 ##
-Aber als sie das Baby sahen, sprangen alle erschrocken zurück. „Ein Esel?!“
+Aber als sie das Baby sahen, sprangen alle erschrocken zurück. „Ein Esel?!"
 
 ##
-Alle fingen an zu streiten. „Wir haben gesagt, wir beschützen Mutter und Kind, und das werden wir auch tun“, sagten die Einen. „Aber das wird uns Unglück bringen!“, sagten die Anderen.
+Alle fingen an zu streiten. „Wir haben gesagt, wir beschützen Mutter und Kind, und das werden wir auch tun", sagten die Einen. „Aber das wird uns Unglück bringen!", sagten die Anderen.
 
 ##
 Und so fand sich die Frau wieder allein. Sie fragte sich, was sie mit diesem sonderbaren Kind anfangen sollte. Sie fragte sich, was sie mit sich selbst anfangen sollte.
@@ -34,7 +34,7 @@ Verwirrung und Ärger sammelten sich in Esel. Er konnte dies nicht und das nicht
 Esel schämte sich sehr. Er lief davon so weit er konnte.
 
 ##
-Als er aufhörte zu laufen, war es Nacht und Esel hatte sich verlaufen. „Ih Ah?“, flüsterte er in die Dunkelheit. „Ih Ah?“, hörte man ein Echo. Er war allein. Er rollte sich zusammen und fiel in einen tiefen und unruhigen Schlaf.
+Als er aufhörte zu laufen, war es Nacht und Esel hatte sich verlaufen. „Ih Ah?", flüsterte er in die Dunkelheit. „Ih Ah?", hörte man ein Echo. Er war allein. Er rollte sich zusammen und fiel in einen tiefen und unruhigen Schlaf.
 
 ##
 Als Esel aufwachte, starrte ihn ein alter Mann an. Er blickte dem alten Mann in die Augen und verspürte einen Schimmer Hoffnung.

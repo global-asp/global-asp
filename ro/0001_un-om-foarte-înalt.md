@@ -19,7 +19,7 @@ Omul ăsta era prea înalt.
 A făcut o coadă foarte lungă de sapă.
 
 ##
-A făcut rame de ușă foarte înalte .
+A făcut rame de ușă foarte înalte.
 
 ##
 A făcut un pat foarte lung.

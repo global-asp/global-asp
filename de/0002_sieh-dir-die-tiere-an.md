@@ -4,25 +4,25 @@
 Sieh Dir die Tiere an!
 
 ##
-Die Kuh macht „Muh“.
+Die Kuh macht „Muh".
 
 ##
-Die Ziege macht „Meck Meck“.
+Die Ziege macht „Meck Meck".
 
 ##
-Das Pferd macht „Hühü hühü“.
+Das Pferd macht „Hühü hühü".
 
 ##
-Das Schwein macht „Grunz grunz“.
+Das Schwein macht „Grunz grunz".
 
 ##
-Das Huhn macht „Gack gack“.
+Das Huhn macht „Gack gack".
 
 ##
-Der Hund macht „Wau wau“.
+Der Hund macht „Wau wau".
 
 ##
-Der Bauer sagt „Psst!“
+Der Bauer sagt „Psst!"
 
 ##
 * License: [CC-BY-NC]

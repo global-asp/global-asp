@@ -16,10 +16,10 @@ Pojkarna var ledsna för att de hade retat Vusi. "Vi kan inte hjälpa till med t
 Längs vägen mötte han två män som byggde ett hus. "Får vi använda din starka käpp?" frågade en av dem. Men käppen var inte gjord för att byggas med, så den gick sönder.
 
 ##
-"Vad har du gjort?", ropade Vusi. "Den käppen var en gåva till min syster. Fruktplockarna gav mig käppen eftersom de hade sönder ägget till tårtan. Tårtan var till min systers bröllop. Nu finns det inget ägg, ingen tårta och ingen gåva. Vad kommer min syster att säga?”
+"Vad har du gjort?", ropade Vusi. "Den käppen var en gåva till min syster. Fruktplockarna gav mig käppen eftersom de hade sönder ägget till tårtan. Tårtan var till min systers bröllop. Nu finns det inget ägg, ingen tårta och ingen gåva. Vad kommer min syster att säga?"
 
 ##
-Byggarbetarna var ledsna för att de hade haft sönder käppen. ”Vi kan inte hjälpa till med tårtan, men här är lite halm till din syster”, sa den ena. Och så fortsatte Vusi på sin resa.
+Byggarbetarna var ledsna för att de hade haft sönder käppen. "Vi kan inte hjälpa till med tårtan, men här är lite halm till din syster", sa den ena. Och så fortsatte Vusi på sin resa.
 
 ##
 Längs vägen träffade Vusi en bonde och en ko. "Vilken fin halmbal, kan jag få en mumsbit?" frågade kon. Men halmen var så god att kon åt upp alltihop!

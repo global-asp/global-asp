@@ -13,7 +13,7 @@ Människorna på marknaden köper frukt.
 Men ingen köper Toms bananer. De föredrar att köpa frukt från kvinnor.
 
 ##
-”I vårt samhälle säljer bara kvinnor frukt”, säger människorna. ”Vad är det här för man?” frågar de.
+"I vårt samhälle säljer bara kvinnor frukt", säger människorna. "Vad är det här för man?" frågar de.
 
 ##
 Men Tom ger inte upp. Han ropar, "Köp mina bananer! Köp mina söta mogna bananer!"

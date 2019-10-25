@@ -19,13 +19,13 @@ Kurczak był wściekły, że przegrał. Nie potrafił przegrywać. Stonoga zacz�
 Kurczak był tak zły, że otworzył szeroko dziób i połknął Stonogę!
 
 ##
-Gdy Kurczak wracał do domu, spotkał Mamę Stonogi. Mama Stonogi zapytała: „Czy widziałeś moje dziecko?” Kurczak nie odpowiedział. Mama Stonogi bardzo się martwiła.
+Gdy Kurczak wracał do domu, spotkał Mamę Stonogi. Mama Stonogi zapytała: „Czy widziałeś moje dziecko?" Kurczak nie odpowiedział. Mama Stonogi bardzo się martwiła.
 
 ##
-Nagle Mama Stonogi usłyszała głos swojego dziecka: „Mamo! Pomóż!” Mama Stonogi rozejrzała się dookoła i nasłuchiwała. Głos dobiegał ze środka kurczaka.
+Nagle Mama Stonogi usłyszała głos swojego dziecka: „Mamo! Pomóż!" Mama Stonogi rozejrzała się dookoła i nasłuchiwała. Głos dobiegał ze środka kurczaka.
 
 ##
-Mama Stonogi krzyknęła: „Użyj swoich mocy, moje dziecko!” Stonogi potrafią sprawić, że pojawia się bardzo brzydki zapach i nieprzyjemny smak. Kurczak zaczął bardzo źle się czuć.
+Mama Stonogi krzyknęła: „Użyj swoich mocy, moje dziecko!" Stonogi potrafią sprawić, że pojawia się bardzo brzydki zapach i nieprzyjemny smak. Kurczak zaczął bardzo źle się czuć.
 
 ##
 Kurczakowi odbiło się. Potem pluł, kichał i kaszlał. Stonoga była obrzydliwa!

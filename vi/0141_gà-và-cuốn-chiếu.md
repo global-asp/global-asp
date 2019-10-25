@@ -19,13 +19,13 @@ Gà tức giận vì bị thua. Gà là người thua xấu tính. Cuốn chiế
 Gà tức giận quá đến nổi bạn ấy há to mỏ ra và nuốt chửng Cuốn chiếu.
 
 ##
-Gà đang đi về nhà thì gặp Cuốn chiếu mẹ. Cuốn chiếu mẹ hỏi: “Cháu có thấy con của bác đâu không?” Gà không nói gì cả. Cuốn chiếu mẹ rất lo lắng.
+Gà đang đi về nhà thì gặp Cuốn chiếu mẹ. Cuốn chiếu mẹ hỏi: "Cháu có thấy con của bác đâu không?" Gà không nói gì cả. Cuốn chiếu mẹ rất lo lắng.
 
 ##
-Sau đó, Cuốn chiếu mẹ nghe một giọng nói khẽ. Giọng nói ấy kêu rằng: “Mẹ ơi, cứu con với!” Cuốn chiếu mẹ nhìn quanh và nghe cẩn thận. Giọng nói ấy xuất phát từ bên trong Gà.
+Sau đó, Cuốn chiếu mẹ nghe một giọng nói khẽ. Giọng nói ấy kêu rằng: "Mẹ ơi, cứu con với!" Cuốn chiếu mẹ nhìn quanh và nghe cẩn thận. Giọng nói ấy xuất phát từ bên trong Gà.
 
 ##
-Mẹ Cuốn chiếu kêu lên: “Con hãy dùng sức mạnh đặc biệt của con đi!” Cuốn chiếu có thể tạo nên mùi hôi và vị khó chịu. Gà bắt đầu thấy muốn bệnh.
+Mẹ Cuốn chiếu kêu lên: "Con hãy dùng sức mạnh đặc biệt của con đi!" Cuốn chiếu có thể tạo nên mùi hôi và vị khó chịu. Gà bắt đầu thấy muốn bệnh.
 
 ##
 Gà ợ lên. Sau đó, Gà nuốt vào và nhổ ra. Sau đó, Gà hắt xì và ho mãi. Cuốn chiếu thật là ghê tởm!

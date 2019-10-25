@@ -7,7 +7,7 @@ Mein kleiner Bruder schläft lange. Ich wache früh auf weil ich toll bin.
 Ich bin diejenige, die die Sonne herein lässt.
 
 ##
-„Du bist mein Morgenstern“, sagt Ma.
+„Du bist mein Morgenstern", sagt Ma.
 
 ##
 Ich wasche mich. Ich brauche keine Hilfe.
@@ -16,13 +16,13 @@ Ich wasche mich. Ich brauche keine Hilfe.
 Ich kann mit kaltem Wasser und der blauen, riechenden Seife umgehen.
 
 ##
-Ma erinnert mich: „Vergiss Deine Zähne nicht.“ Ich antworte: „Niemals, ich doch nicht!“
+Ma erinnert mich: „Vergiss Deine Zähne nicht." Ich antworte: „Niemals, ich doch nicht!"
 
 ##
 Nach dem Waschen grüße ich Opa und Tante und wünsche ihnen einen schönen Tag.
 
 ##
-Dann ziehe ich mich an. „Ich bin nun groß, Ma“, sage ich.
+Dann ziehe ich mich an. „Ich bin nun groß, Ma", sage ich.
 
 ##
 Ich kann meine Knöpfe zumachen und meine Schnürsenkel binden.

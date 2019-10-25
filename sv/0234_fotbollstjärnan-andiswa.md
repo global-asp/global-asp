@@ -4,7 +4,7 @@
 Andiswa tittade på när pojkarna spelade fotboll. Hon önskade att hon hade fått vara med och spela. Hon frågade tränaren om hon fick träna med dem.
 
 ##
-Tränaren satte sina händer på höfterna och sade: ”På den här skolan är det bara pojkar som får spela fotboll.”
+Tränaren satte sina händer på höfterna och sade: "På den här skolan är det bara pojkar som får spela fotboll."
 
 ##
 Pojkarna sade åt henne att gå och spela nätboll. De sade att nätboll är för flickor och att fotboll är för pojkar. Andiswa blev upprörd.

@@ -7,7 +7,7 @@ Lè manman Simbegwire mouri, Simbegwire te tris anpil. Papa’l fè tout sa li t
 Yon jou, papa Simbgewire tounen lakay li pita pase anvan. Li mande Simbgerwire « Ki kote ou ye pitit mwen an? ». Simbgerwire kouri al jwenn papa li. Men, Simbgerwire kanpe lè li wè papa li tap kenbe men yon madanm. Papa a di li ak yon souri « Mwen ta renmen ou rankontre yon moun espesyal, pitit mwen an. Moun sa a se Anita »
 
 ##
-Anita di li « Bonjou Simbegwire, papa ou pale’m anpil de ou ». Men, Anita pas janm souri ni pa janm kenbe li. Papa Simbegwire te gen kè kontan. Li di ke yo twa ta pral viv byen ansanm “Pitit mwen an, mwen ta byen kontan si Anita ta manman ou.
+Anita di li « Bonjou Simbegwire, papa ou pale’m anpil de ou ». Men, Anita pas janm souri ni pa janm kenbe li. Papa Simbegwire te gen kè kontan. Li di ke yo twa ta pral viv byen ansanm "Pitit mwen an, mwen ta byen kontan si Anita ta manman ou.
 
 ##
 Lavi Simbegwire kòmanse chanje. Li pa te gen tan ankò pou li chita ak papa li chak maten. Anita te bay si tan travay pou li fè nan kay la ke li te bouke anpil epi li pat kapab fè devwa li nan aswè. Lè li finn manje, lale dirèk nan kabann li. Sèl ti konfò li se te kouvèti koulè a ke manman’l te fè pou li. Papa Simbegwire pa wè ke pitit fi li te tris.
@@ -25,13 +25,13 @@ Yon maten, Simbegwire leve ta. Anita rele byen fò « Paresèz ! ». Li rale Sim
 Lè sa a Simbegwire te boulvèse anpil. Li deside sove nan kay la. Li pran kouvèti chire an, li pran manje avèk li epi li kite kay la. Li swiv wout papa li te pran.
 
 ##
-Lè soley la kouche li grenpe yon pyebwa ki a kote yon ti dlo epi li fè yon kabann ak branch pyebwa a. Pandan lap kòmanse dòmi li tonbe chante “ Manman, manman, manman, ou kite’m. Ou ale epi ou pa janm tounen. Papa pa renmen’m ankò. Kilè wap tounen manman ? Ou kite’m. »
+Lè soley la kouche li grenpe yon pyebwa ki a kote yon ti dlo epi li fè yon kabann ak branch pyebwa a. Pandan lap kòmanse dòmi li tonbe chante " Manman, manman, manman, ou kite’m. Ou ale epi ou pa janm tounen. Papa pa renmen’m ankò. Kilè wap tounen manman ? Ou kite’m. »
 
 ##
 Demen maten, Simbegwire rechante menm chante an. Lè medam yo rive nan basen an pou lave rad yo, yo tande yon chante tris kap sòti nan gwo pyebwa a. Nan kòmansman, yo te kwè ke se bwi fey yo epi yo kontinye travay yo. Men yonn nan yo kanpe pou koute chante an ak anpil atansyon.
 
 ##
-Madanm sa a voye je’l nan pyebwa a epi li wè ti fi a ak mòso kouvèti koulè a. Li rele “Simbegwire, pitit frè mwen!”. Lòt medam yo kanpe lave pou yo ede Simbegwire desann pyebwa a. Matant li kòmanse bo li ak eseye konsole’l.
+Madanm sa a voye je’l nan pyebwa a epi li wè ti fi a ak mòso kouvèti koulè a. Li rele "Simbegwire, pitit frè mwen!". Lòt medam yo kanpe lave pou yo ede Simbegwire desann pyebwa a. Matant li kòmanse bo li ak eseye konsole’l.
 
 ##
 Matant Simbegwire mennen li lakay li. Li bay Simbegwire yon plat manje cho epi li mete’l dòmi nan kabann ak kouvèti manman li. Lè lannwit rive, Simbegwire tonbe dòmi kriye. Men kriye an fwa sa a se kriye kè kontan. Li konnen ke matant li ta pral okipe li.

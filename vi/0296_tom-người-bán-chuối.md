@@ -13,10 +13,10 @@ Người đi chợ mua trái cây.
 Nhưng không ai mua chuối của Tom cả. Họ thích mua trái cây phụ nữ bán hơn.
 
 ##
-Người ta nói rằng: “Trong cộng đồng của chúng ta, chỉ có phụ nữ mới bán trái cây”. Người ta còn hỏi rằng: “Đàn ông gì như thế này?”
+Người ta nói rằng: "Trong cộng đồng của chúng ta, chỉ có phụ nữ mới bán trái cây". Người ta còn hỏi rằng: "Đàn ông gì như thế này?"
 
 ##
-Nhưng Tom không bỏ cuộc. Bạn ấy rao: “Mua chuối của tôi đi! Mua chuối chín ngọt của tôi đi!”
+Nhưng Tom không bỏ cuộc. Bạn ấy rao: "Mua chuối của tôi đi! Mua chuối chín ngọt của tôi đi!"
 
 ##
 Một người phụ nữ chọn một nải chuối từ mâm. Bà xem những quả chuối rất cẩn thận.

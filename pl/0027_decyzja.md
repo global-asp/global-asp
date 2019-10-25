@@ -34,19 +34,19 @@ Mój ojciec chodził od domu do domu, żeby zaprosić mieszkańców wioski na sp
 Ludzie zebrali się pod wielkim drzewem i słuchali.
 
 ##
-Mój ojciec wstał i powiedział: „Jeżeli chcemy rozwiązać nasze problemy, musimy współpracować”.
+Mój ojciec wstał i powiedział: „Jeżeli chcemy rozwiązać nasze problemy, musimy współpracować".
 
 ##
-Ośmioletnia Juma, która siedziała na pniu drzewa, krzyknęła: „Ja pomogę w sprzątaniu!”
+Ośmioletnia Juma, która siedziała na pniu drzewa, krzyknęła: „Ja pomogę w sprzątaniu!"
 
 ##
-Jedna z kobiet powiedziała: „Kobiety mogą do mnie dołączyć i razem będziemy uprawiać żywność”.
+Jedna z kobiet powiedziała: „Kobiety mogą do mnie dołączyć i razem będziemy uprawiać żywność".
 
 ##
-Jeden z mężczyzn wstał i oświadczył: „Mężczyźni wykopią i wybudują studnię”.
+Jeden z mężczyzn wstał i oświadczył: „Mężczyźni wykopią i wybudują studnię".
 
 ##
-Krzyknęliśmy jednym głosem: „Musimy zmienić nasze życie!” Od tej pory zawsze współpracujemy, aby rozwiązać nasze wspólne problemy.
+Krzyknęliśmy jednym głosem: „Musimy zmienić nasze życie!" Od tej pory zawsze współpracujemy, aby rozwiązać nasze wspólne problemy.
 
 ##
 * License: [CC-BY]

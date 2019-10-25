@@ -13,10 +13,10 @@ Sáng sớm hôm sau, chúng đi đến làng của bà bằng xe của bố. H�
 Sau một lúc, bọn trẻ mệt và ngủ thiếp đi.
 
 ##
-Bố đánh thức Odongo và Apiyo dậy khi họ tới làng. Họ thấy bà, bà Nyar-Kanyada, nằm nghỉ trên một tấm chiếu dưới cây. Nyar-Kanyada trong tiếng Luo có nghĩa là “con gái của người dân Kanyada”. Bà là một người phụ nữ mạnh mẽ và xinh đẹp.
+Bố đánh thức Odongo và Apiyo dậy khi họ tới làng. Họ thấy bà, bà Nyar-Kanyada, nằm nghỉ trên một tấm chiếu dưới cây. Nyar-Kanyada trong tiếng Luo có nghĩa là "con gái của người dân Kanyada". Bà là một người phụ nữ mạnh mẽ và xinh đẹp.
 
 ##
-Nyar-Kanyada chào đón bọn trẻ vào nhà, nhảy múa quanh phòng, và ca hát một cách vui sướng. Các cháu bà cũng rất phấn khởi tặng bà quà mà chúng đã mang từ thành phố đến. Odongo nói: “Mở quà của cháu trước!” Apiyo nói: “Không, mở quà của cháu trước!”
+Nyar-Kanyada chào đón bọn trẻ vào nhà, nhảy múa quanh phòng, và ca hát một cách vui sướng. Các cháu bà cũng rất phấn khởi tặng bà quà mà chúng đã mang từ thành phố đến. Odongo nói: "Mở quà của cháu trước!" Apiyo nói: "Không, mở quà của cháu trước!"
 
 ##
 Sau khi bà mở quà xong, Nyar-Kanyada ban phước cho các cháu mình theo cách truyền thống.
@@ -52,7 +52,7 @@ Vào một ngày khác, bọn trẻ đi đến chợ với bà Nyar-Kanyada. Bà
 Nhưng chẳng bao lâu thì kì nghỉ đã hết và bọn trẻ lại phải quay lại trường trong thành phố. Nyar-Kanyada cho Odongo một cái nón và cho Apiyo một cái áo len. Bà gói thức ăn cho chuyến đi của chúng.
 
 ##
-Khi bố đến đón, bọn trẻ không muốn đi. Bọn trẻ năn nỉ bà Nyar-Kanyada đi lên thành phố với chúng. Bà cười và bảo: “Bà già rồi, không ở trong thành phố được. Bà sẽ chờ các cháu về làng thăm bà nữa.”
+Khi bố đến đón, bọn trẻ không muốn đi. Bọn trẻ năn nỉ bà Nyar-Kanyada đi lên thành phố với chúng. Bà cười và bảo: "Bà già rồi, không ở trong thành phố được. Bà sẽ chờ các cháu về làng thăm bà nữa."
 
 ##
 Odongo và Apiyo ôm chặt và tạm biệt bà.

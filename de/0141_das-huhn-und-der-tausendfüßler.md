@@ -19,13 +19,13 @@ Das Huhn war außer sich, dass es verloren hatte. Es war ein schlechter Verliere
 Das Huhn ärgerte sich so sehr, dass es seinen Schnabel weit öffnete und den Tausendfüßler schluckte.
 
 ##
-Als das Huhn nach Hause ging traf es die Mutter des Tausendfüßlers. Die Mutter des Tausendfüßlers fragte: „Hast Du mein Kind gesehen?“ Das Huhn antwortete nicht. Die Mutter des Tausendfüßlers war besorgt.
+Als das Huhn nach Hause ging traf es die Mutter des Tausendfüßlers. Die Mutter des Tausendfüßlers fragte: „Hast Du mein Kind gesehen?" Das Huhn antwortete nicht. Die Mutter des Tausendfüßlers war besorgt.
 
 ##
-Dann hörte die Mutter des Tausendfüßlers eine leise Stimme. „Hilf mir, Mama!“ Die Mutter des Tausendfüßlers schaute sich um und lauschte aufmerksam. Die Stimme kam vom Inneren des Huhns.
+Dann hörte die Mutter des Tausendfüßlers eine leise Stimme. „Hilf mir, Mama!" Die Mutter des Tausendfüßlers schaute sich um und lauschte aufmerksam. Die Stimme kam vom Inneren des Huhns.
 
 ##
-Die Mutter des Tausendfüßlers rief: „Nutze Deine spezielle Kraft, mein Kind!“ Tausendfüßler können einen schlechten Geruch und Geschmack verbreiten. Dem Huhn wurde schlecht.
+Die Mutter des Tausendfüßlers rief: „Nutze Deine spezielle Kraft, mein Kind!" Tausendfüßler können einen schlechten Geruch und Geschmack verbreiten. Dem Huhn wurde schlecht.
 
 ##
 Das Huhn rülpste. Dann schluckte es und spuckte aus. Dann nieste es und spuckte. Und hustete. Der Tausendfüßler schmeckte grauenhaft!
