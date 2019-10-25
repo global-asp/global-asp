@@ -16,7 +16,7 @@ Bisiklèt li te twò piti.
 Gason sa a te wo anpil.
 
 ##
-Li fè yon lò manch pou wou li
+Li fè yon lò manch pou wou li.
 
 ##
 Li fè pòt lakay li pi gran.
