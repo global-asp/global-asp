@@ -4,7 +4,7 @@
 Op een dag kreeg mama veel fruit.
 
 ##
-Wij vragen "Wanneer mogen wij wat fruit krijgen?". "We gaan het fruit vanavond eten", antwoorde mama.
+Wij vragen "Wanneer mogen wij wat fruit krijgen?" "We gaan het fruit vanavond eten", antwoorde mama.
 
 ##
 Mijn broer Rahim is gulzig. Hij proeft al het fruit. Hij eet er veel van.
