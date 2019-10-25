@@ -19,7 +19,7 @@ Puiul era furios că a pierdut. Nu lua ușor înfrângerea. Miriapodul a începu
 Puiul era atât de furios că a deschis ciocul larg și a înghițit miriapodul.
 
 ##
-Când Puiul mergea spre casă, s-a întâlnit cu Mama Miriapod. Mama Miriapod a întrebat, " Mi-ai văzut copilul?" Puiul n-a spus nimic. Mama Miriapod era îngrijorată.
+Când Puiul mergea spre casă, s-a întâlnit cu Mama Miriapod. Mama Miriapod a întrebat, "Mi-ai văzut copilul?" Puiul n-a spus nimic. Mama Miriapod era îngrijorată.
 
 ##
 Atunci Mama Miriapod a auzit o voce slabă. "Mamă, ajută-mă" plângea vocea. Mama Miriapod s-a uitat împrejur și a ascultat cu atenție. Vocea venea dinăuntrul puiului.
