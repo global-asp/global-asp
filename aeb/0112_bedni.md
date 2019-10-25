@@ -16,7 +16,7 @@ Nnejjim nġùm bìh.
 Nnejjim nneggiz b'il-ħbel bìh.
 
 ##
-Nnejjim ncùŧ bìh
+Nnejjim ncùŧ bìh.
 
 ##
 Nnejjim nuhrub bìh.
