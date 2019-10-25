@@ -1,13 +1,13 @@
 # Tom machann fig lan
 
 ##
-Tom ap mache ak yon panyen fig sou tèt li
+Tom ap mache ak yon panyen fig sou tèt li.
 
 ##
-Tom pral vann fig li yo nan mache a
+Tom pral vann fig li yo nan mache a.
 
 ##
-Moun yo ki nan mache a abitye achte fwi
+Moun yo ki nan mache a abitye achte fwi.
 
 ##
 Men okenn nan yo pap achte fwi nan men Tom. Yo pito achte fwi nan men medam yo.
@@ -16,7 +16,7 @@ Men okenn nan yo pap achte fwi nan men Tom. Yo pito achte fwi nan men medam yo.
 Nan kominote nou se fi sèlman ki vann fwi. Moun yo kòmanse pale sou Tom "Ki kalite gason sa a ye?"
 
 ##
-Men Tom pa kite sa dekouraje'l. Lap rele « Achte fig mwen yo…Achte fig mwen yo. Fig mwen yo mi, fig yo dous"
+Men Tom pa kite sa dekouraje'l. Lap rele « Achte fig mwen yo…Achte fig mwen yo. Fig mwen yo mi, fig yo dous."
 
 ##
 Yon madanm deside achte yon rejim fig nan men Tom. Li enspekte chak fig apa.
