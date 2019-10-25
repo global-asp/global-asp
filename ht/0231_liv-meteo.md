@@ -1,28 +1,28 @@
 # Liv meteo
 
 ##
-Tan an sèk
+Tan an sèk.
 
 ##
-Soley la cho
+Soley la cho.
 
 ##
-Gen van
+Gen van.
 
 ##
-Gen nywaj
+Gen nywaj.
 
 ##
-Fè frèt
+Fè frèt.
 
 ##
-Gen lapli
+Gen lapli.
 
 ##
-Gen loraj
+Gen loraj.
 
 ##
-Mwen wè yon lakansyèl
+Mwen wè yon lakansyèl.
 
 ##
 * License: [CC-BY-NC]
