@@ -4,16 +4,16 @@
 Mwen leve enpi mwen fè dife.
 
 ##
-Mwen bouyi dlo
+Mwen bouyi dlo.
 
 ##
-Mwen fann bwadife
+Mwen fann bwadife.
 
 ##
 Mwen brase mamit la.
 
 ##
-Mwen bale atè a
+Mwen bale atè a.
 
 ##
 Men lave asyèt yo.
