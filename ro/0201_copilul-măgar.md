@@ -7,7 +7,7 @@ O fetiță, mai întâi, a văzut în zare, forma misterioasă.
 Pe măsură ce forma se apropia, a văzut că era o femeie greu însărcinată.
 
 ##
-Rușinoasă dar curajoasă, fetița s-a apropiat de femeie. "Trebuie să o ținem cu noi," au decis localnicii fetiței. " Îi vom ține pe ea și pe copil în siguranță."
+Rușinoasă dar curajoasă, fetița s-a apropiat de femeie. "Trebuie să o ținem cu noi," au decis localnicii fetiței. "Îi vom ține pe ea și pe copil în siguranță."
 
 ##
 În curând, nașterea se apropia. "Împinge!" "Aduceti pături!" "Apă!" "Împiiiiiiiingeeee!!!"
@@ -34,7 +34,7 @@ Confuzia și mânia creșteau în Măgar. Nu putea să facă asta și nu putea s
 Măgarul era plin de rușine. A început să fugă cât de departe și de repede a putut.
 
 ##
-Când s-a oprit din fugă, era noapte, și Măgarul se pierduse. "Iiiii- haaa?" a șoptit el în întuneric. " Iiiii- haaa? a răspuns ecoul. Era singur. Încârligându-se ca o minge strânsă, a căzut într-un somn adânc și tulburat.
+Când s-a oprit din fugă, era noapte, și Măgarul se pierduse. "Iiiii- haaa?" a șoptit el în întuneric. "Iiiii-haaa?" a răspuns ecoul. Era singur. Încârligându-se ca o minge strânsă, a căzut într-un somn adânc și tulburat.
 
 ##
 Măgarul s-a trezit găsind un bătrân privindu-l uimit, în jos la el. S-a uitat în ochii bătrânului și a început să simtă o licărire de speranță.
