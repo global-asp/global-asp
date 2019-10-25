@@ -1,4 +1,4 @@
-# Những đứa trẻ bằng sáp.
+# Những đứa trẻ bằng sáp
 
 ##
 Ngày xửa ngày xưa, có một gia đình hạnh phúc.
