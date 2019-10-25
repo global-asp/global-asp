@@ -7,7 +7,7 @@ Privește animalele.
 Vaca muge, "Muu".
 
 ##
-Capra behăie, "Beee, Beee"
+Capra behăie, "Beee, Beee".
 
 ##
 Calul nechează, "Ni-ha-ha".
