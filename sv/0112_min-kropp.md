@@ -13,7 +13,7 @@ Jag kan dansa med den.
 Jag kan simma med den.
 
 ##
-Jag kan hoppa hopprep med den
+Jag kan hoppa hopprep med den.
 
 ##
 Jag kan sparka med den.
