@@ -22,7 +22,7 @@ Ncùŧ kùrti.
 Ncùŧ kùrti il-ħamra.
 
 ##
-Ncùŧ kùrti il-ħamra b'il-qwi
+Ncùŧ kùrti il-ħamra b'il-qwi.
 
 ##
 Wìn?
