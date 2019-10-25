@@ -1,7 +1,7 @@
 # Cnuwwe qàġid taġmil?
 
 ##
-Ène qàġid nɍanni
+Ène qàġid nɍanni.
 
 ##
 Hiyye qàġde tcìr.
