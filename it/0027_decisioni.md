@@ -46,7 +46,7 @@ Un'altra donna disse "Le donne possono aiutarmi a coltivare il cibo."
 Un altro uomo si alzò e disse "Anche gli uomini scaveranno."
 
 ##
-Urlammo tutti all'unisono "Dobbiamo cambiare le nostre vite!". Da quel giorno lavorammo insieme per risolvere i nostri problemi.
+Urlammo tutti all'unisono "Dobbiamo cambiare le nostre vite!" Da quel giorno lavorammo insieme per risolvere i nostri problemi.
 
 ##
 * License: [CC-BY]
