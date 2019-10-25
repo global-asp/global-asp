@@ -1,7 +1,7 @@
 # Timoun lasi
 
 ##
-Nan tan lontan te gen yon fanmi ki tap viv ak kè kontan
+Nan tan lontan te gen yon fanmi ki tap viv ak kè kontan.
 
 ##
 Yo pa te janm goumen yonn ak lòt. Yo te ede paran yo nan kay la ak nan jaden an.
