@@ -10,19 +10,19 @@ Bèf la di " Moh".
 Kabrit la di " Bèè, bèè".
 
 ##
-Chwal la di " Hiiii"
+Chwal la di " Hiiii".
 
 ##
-Kochon an di "Gwen, gwen"
+Kochon an di "Gwen, gwen".
 
 ##
-Poul lan di " Kòt, kòt"
+Poul lan di " Kòt, kòt".
 
 ##
-chen an di " Wouf"
+chen an di " Wouf".
 
 ##
-Kiltivatè an di " Shiiii"
+Kiltivatè an di " Shiiii".
 
 ##
 * License: [CC-BY-NC]
