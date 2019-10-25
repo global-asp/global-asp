@@ -31,7 +31,7 @@ Mwen kapab boutonnen rad mwen ak mare soulye’m pou kont mwen.
 Enpi, mal rakonte ti frè mwen tout istwa sou lekòl lan.
 
 ##
-Nan klas la, mwen fè tout sam kapab pou mwen sòti pwemye
+Nan klas la, mwen fè tout sam kapab pou mwen sòti pwemye.
 
 ##
 Mwen fè tout bagay sa yo chak jou men sam pito fè nan tout se jwe… jwe… jwe!
