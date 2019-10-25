@@ -19,7 +19,7 @@ Nozibele bèn đi lấy lại chiếc vòng một mình. Nhưng cô bị lạc t
 Ở đằng xa, cô nhìn thấy ánh đèn leo lắt từ một căn chòi. Cô vội tiến tới căn chòi và gõ cửa.
 
 ##
-Thật bất ngờ, người mở cửa là một con chó. Nó hỏi "Cô muốn gì?". "Tôi bị lạc và cần một chỗ ngủ". Chú chó đáp "Vào đi, không ta sẽ cắn cô!". Thế là Nozibele đi vào nhà.
+Thật bất ngờ, người mở cửa là một con chó. Nó hỏi "Cô muốn gì?". "Tôi bị lạc và cần một chỗ ngủ". Chú chó đáp "Vào đi, không ta sẽ cắn cô!" Thế là Nozibele đi vào nhà.
 
 ##
 Con chó bắt cô nấu ăn cho nó. Nozibele trả lời "Nhưng tôi chưa bao giờ nấu cho chó cả". "Nấu đi, không ta sẽ cắn ngươi." Thế là cô đành nấu cho nó ăn.
