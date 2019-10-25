@@ -19,7 +19,7 @@ Nozibele bèn đi lấy lại chiếc vòng một mình. Nhưng cô bị lạc t
 Ở đằng xa, cô nhìn thấy ánh đèn leo lắt từ một căn chòi. Cô vội tiến tới căn chòi và gõ cửa.
 
 ##
-Thật bất ngờ, người mở cửa là một con chó. Nó hỏi "Cô muốn gì?". "Tôi bị lạc và cần một chỗ ngủ". Chú chó đáp "Vào đi, không ta sẽ cắn cô!" Thế là Nozibele đi vào nhà.
+Thật bất ngờ, người mở cửa là một con chó. Nó hỏi "Cô muốn gì?" "Tôi bị lạc và cần một chỗ ngủ". Chú chó đáp "Vào đi, không ta sẽ cắn cô!" Thế là Nozibele đi vào nhà.
 
 ##
 Con chó bắt cô nấu ăn cho nó. Nozibele trả lời "Nhưng tôi chưa bao giờ nấu cho chó cả". "Nấu đi, không ta sẽ cắn ngươi." Thế là cô đành nấu cho nó ăn.
@@ -34,7 +34,7 @@ Mỗi ngày cô phải nấu ăn, dọn dẹp và giặt giũ cho nó. Rồi m�
 Khi con chó vừa rời khỏi nhà, cô lập tức lấy ba sợi tóc và bỏ một sợi dưới giường, một sợi sau cửa, và một sợi vào hàng rào chắn. Rồi cô bỏ chạy về nhà.
 
 ##
-Khi con chó về nhà, nó đi tìm Nozibele. "Nozibele, ngươi ở đâu?". "Tôi đây, dưới giường", sợi tóc đầu tiên bảo. "Tôi đây, sau cánh cửa", sợi thứ hai trả lời. "Tôi đây, ở hàng rào", sợi thứ ba trả lời.
+Khi con chó về nhà, nó đi tìm Nozibele. "Nozibele, ngươi ở đâu?" "Tôi đây, dưới giường", sợi tóc đầu tiên bảo. "Tôi đây, sau cánh cửa", sợi thứ hai trả lời. "Tôi đây, ở hàng rào", sợi thứ ba trả lời.
 
 ##
 Khi con chó biết Nozibele lừa nó, nó chạy vào làng. Nhưng anh trai Nozibele đã chờ sẵn với gậy gộc. Con chó đành quay lưng bỏ chạy, và chúng ta không bao giờ thấy nó nữa.
