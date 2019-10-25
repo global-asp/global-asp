@@ -19,7 +19,7 @@ Vài tháng sau, bố Simbegwire bảo ông sẽ đi vắng vài ngày. "Bố đ
 Mọi thứ trở nên tệ hơn với Simbegwire. Cô bé bị đánh nếu không hoàn thành công việc, hay than thở gì. Vào bữa tối, dì ghẻ ăn hết đồ ăn và cô bé chỉ ăn thừa. Simbegwire ôm chiếc chăn của mẹ mà khóc thút thít mỗi đêm.
 
 ##
-Một sáng, Simbegwire dậy trễ. "Đồ lười nhác!". Anita quát. Bà ta lôi cô bé ra khỏi giường. Chiếc chăn nhiều màu vướng vào một cái đinh và rách toạc.
+Một sáng, Simbegwire dậy trễ. "Đồ lười nhác!" Anita quát. Bà ta lôi cô bé ra khỏi giường. Chiếc chăn nhiều màu vướng vào một cái đinh và rách toạc.
 
 ##
 Simbegwire đau khổ vô cùng và bỏ nhà ra đi. Cô mang theo mảnh chăn của mẹ, gói chút đồ ăn và đi theo hướng bố cô rời nhà.
@@ -31,7 +31,7 @@ Tới tối, cô trèo lên một cái cây cao gần bờ sông và ngủ trên
 Sáng hôm sau, Simbegwire hát bài hát lần nữa. Khi những phụ nữ trong làng ra suối giặt đồ, họ nghe được bài hát da diết ấy. Họ nghĩ đó chỉ là tiếng gió qua khẽ cây và tiếp tục công việc. Nhưng một người phụ nữ lắng nghe kĩ câu hát ấy.
 
 ##
-Bà nhìn lên ngọn cây và thấy một cô bé với chiếc khăn nhiều màu xinh đẹp. Bà la lên "Simbegwire, con của anh trai tôi!". Những người khác dừng làm để chạy lại giúp cô bé leo xuống. Dì cô ôm chặt cô trong lòng.
+Bà nhìn lên ngọn cây và thấy một cô bé với chiếc khăn nhiều màu xinh đẹp. Bà la lên "Simbegwire, con của anh trai tôi!" Những người khác dừng làm để chạy lại giúp cô bé leo xuống. Dì cô ôm chặt cô trong lòng.
 
 ##
 Dì cô mang cô bé về nhà. Simbegwire được cho ăn và ru ngủ dưới chiếc chăn của mẹ. Tối đó, cô lại khóc tới khi thiếp đi. Nhưng đó là nước mắt của sự nhẹ nhõm vì cô biết dì cô quan tâm tới cô.
