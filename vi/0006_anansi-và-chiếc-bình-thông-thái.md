@@ -13,7 +13,7 @@ Anansi tham lam nghĩ rằng "Nếu mình giấu cái bình ở một cái cây 
 Con trai của Anansi lúc nào cũng đứng dưới gốc cây để chờ Anansi. Cậu hỏi bố "Thay vì ở bụng, sao bố không buộc cái bình ở lưng?" Anansi thử đổi vị trí chiếc bình và việc leo trèo trở nên dễ dàng hơn nhiều.
 
 ##
-Chả mấy chốc mà Anansi tới ngọn cây. Nhưng anh ta chợt nghĩ "Ta lẽ ra phải là người thông minh nhất chứ. Sao con trai ta lại biết nhiều hơn ta?". Anansi tức giận tới nỗi anh ta ném cái bình xuống đất.
+Chả mấy chốc mà Anansi tới ngọn cây. Nhưng anh ta chợt nghĩ "Ta lẽ ra phải là người thông minh nhất chứ. Sao con trai ta lại biết nhiều hơn ta?" Anansi tức giận tới nỗi anh ta ném cái bình xuống đất.
 
 ##
 Bình trí tuệ bể thành trăm mảnh, và kiến thức đều dành cho mọi người. Đó là lí do bây giờ mọi người học được các trồng trọt, dệt vải, rèn sắt và vô vàn tri thức khác.
