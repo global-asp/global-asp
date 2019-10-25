@@ -1,28 +1,28 @@
-# Rad lekòl.
+# Rad lekòl
 
 ##
 Rad sa a twò long.
 
 ##
-Mayo sa a gwo
+Mayo sa a gwo.
 
 ##
 Valiz sa a gwo.
 
 ##
-Sentiwon sa a...
+Sentiwon sa a ...
 
 ##
-Chapo sa a piti
+Chapo sa a piti.
 
 ##
 Chosèt sa yo twò kout.
 
 ##
-Men soulye sa yo nèf..
+Men soulye sa yo nèf ...
 
 ##
-...yo bon pou mwen
+... yo bon pou mwen.
 
 ##
 * License: [CC-BY-NC]
