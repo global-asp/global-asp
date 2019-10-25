@@ -4,7 +4,7 @@
 Mwen santi anpil bagay nan kè mwen.
 
 ##
-Mwen santi’m kontan lè grann mwen rakonte nou istwa leswa
+Mwen santi’m kontan lè grann mwen rakonte nou istwa leswa.
 
 ##
 Kè mwen leje lè map jwe ak ti zanmi mwen yo.
