@@ -46,7 +46,7 @@ A stat sub o fereastră mare și a început cântecul lui preferat. Câte un pic
 Lucrătorii au oprit ce făceau. Ei au ascultat cântecul frumos al lui Sakima. Dar un om a spus, "Nimeni nu a fost în stare să-l consoleze pe șef. Băiatul ăsta orb crede că el îl va consola?"
 
 ##
-Sakima a terminat cântecul lui și s-a întors să plece. Dar bogătașul a alergat afară și a spus, " Te rog, cântă din nou."
+Sakima a terminat cântecul lui și s-a întors să plece. Dar bogătașul a alergat afară și a spus, "Te rog, cântă din nou."
 
 ##
 În acel moment, doi oameni au sosit cărând pe cineva pe o targă. Ei găsiseră pe fiul bogătașului, bătut și lăsat la marginea drumului.
