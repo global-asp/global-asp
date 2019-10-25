@@ -34,7 +34,7 @@ Chak jou Nozibèl te gen pou’l kwit manje, pou’l bale, pou’l lave pou chen
 Touswit kè chen an pati, Nozibèl pran twa cheve nan tèt li. Li mete yon grenn cheve anba kabann lan, yonn dèyè pòt la, ak yon nan chodyè a. Apre sa a, li kouri al lakay li.
 
 ##
-Lè chen an tounen li chache Nozibèl "Nozibèl, ki kote ou ye?". "Mwen isit anba kabann lan," premye cheve a reponn. "Mwen isit dèyè pòt la," dezyèm cheve an reponn. "Mwen isit nan chodyè a" twazyèm cheve an reponn.
+Lè chen an tounen li chache Nozibèl "Nozibèl, ki kote ou ye?" "Mwen isit anba kabann lan," premye cheve a reponn. "Mwen isit dèyè pòt la," dezyèm cheve an reponn. "Mwen isit nan chodyè a" twazyèm cheve an reponn.
 
 ##
 Lè sa a, chen an konprann ke Nozibèl tap pase’l nan tenten. Chen an pran kouri jis li rive nan vilaj la. Men, frè Nozibèl tap tann li ak gwo baton nan men yo. Chen an kase tèt tounen epi yo pa janm wè li ankò.
