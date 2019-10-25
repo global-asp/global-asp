@@ -1,7 +1,7 @@
 # Unglaubliche Daisy
 
 ##
-Vor langer Zeit lebte auf einer kleinen Farm in der Nähe eines kleinen Dorfes
+Vor langer Zeit lebte auf einer kleinen Farm in der Nähe eines kleinen Dorfes.
 
 ##
 ein kleines Huhn mit Namen Daisy.
