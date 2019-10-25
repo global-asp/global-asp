@@ -7,7 +7,7 @@ Ngày xửa ngày xưa khi loài người chưa có kiến thức gì, họ khô
 Một ngày nọ, Nyame quyết định đưa chiếc bình trí tuệ cho Anansi. Mỗi khi Anansi nhìn vào chiếc bình, anh ta học được một thứ mới. Thú vị biết bao!
 
 ##
-Anansi tham lam nghĩ rằng "Nếu mình giấu cái bình ở một cái cây cao, mình có thể giữ hết trí tuệ này cho bản thân!". Anh ta dệt một cái tơ dài để buộc cái lọ vào bụng anh ấy, và trèo lên cây. Nhưng thật khó để trèo khi cái lọ cứ đập vào đầu gối anh ta.
+Anansi tham lam nghĩ rằng "Nếu mình giấu cái bình ở một cái cây cao, mình có thể giữ hết trí tuệ này cho bản thân!" Anh ta dệt một cái tơ dài để buộc cái lọ vào bụng anh ấy, và trèo lên cây. Nhưng thật khó để trèo khi cái lọ cứ đập vào đầu gối anh ta.
 
 ##
 Con trai của Anansi lúc nào cũng đứng dưới gốc cây để chờ Anansi. Cậu hỏi bố "Thay vì ở bụng, sao bố không buộc cái bình ở lưng?" Anansi thử đổi vị trí chiếc bình và việc leo trèo trở nên dễ dàng hơn nhiều.
