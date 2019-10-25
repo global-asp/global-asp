@@ -4,7 +4,7 @@
 Andiswa tap gade ti gason yo ap jwe foutbòl. Li te anvi jwe avèk yo tou. Li mande yo si li te kapab pratike ak yo.
 
 ##
-Antrenè a mete de men nan ren li pou'l di " Nan lekòl sa a, se sèl ti gason ki jwe foutbòl"
+Antrenè a mete de men nan ren li pou'l di " Nan lekòl sa a, se sèl ti gason ki jwe foutbòl".
 
 ##
 Ti gason yo voye'l al jwe nètbòl. Yo di li ke jwèt nètbòl se pou fi tandiske foutbòl se pou ti gason. Andiswa pate kontan.
