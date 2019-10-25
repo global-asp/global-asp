@@ -28,7 +28,7 @@ Quel pomeriggio, Aquila tornò. Chiese l'ago perché doveva sistemare delle pium
 Quando Aquila tornò il giorno dopo, trovò Gallina a raspare nella sabbia, ma nessun ago. Aquila volò basso velocissima e acchiappò uno dei pulcini. Ed è per questo che ora, ogni volta che Aquila appare, trova Gallina a raspare nella sabbia in cerca dell'ago.
 
 ##
-Appena l'ombra delle ali di Aquila si proietta sul suolo, Gallina avvisa i suoi pulcini. "State alla larga dalla terra secca e spiazzata!" E loro rispondono: "Non siamo sciocchi. Scapperemo"
+Appena l'ombra delle ali di Aquila si proietta sul suolo, Gallina avvisa i suoi pulcini. "State alla larga dalla terra secca e spiazzata!" E loro rispondono: "Non siamo sciocchi. Scapperemo."
 
 ##
 * License: [CC-BY]
