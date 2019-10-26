@@ -7,7 +7,7 @@ I den stora staden Nairobi, långt ifrån ett tryggt hem, bodde en grupp hemlös
 När Magozwes föräldrar dog var han bara fem år gammal. Han fick bo med sin farbror. Hans farbror brydde sig inte om barnet. Han gav inte Magozwe tillräckligt med mat. Han tvingade pojken att arbeta hårt.
 
 ##
-Om Magozwe klagade eller ifrågasatte så slog hans farbror honom. När Magozwe frågade om man kunde få gå i skolan slog hans farbror honom och sade, "Du är för dum för att lära dig någonting." Efter tre år med denna behandling rymde Magozwe från sin farbror. Han började bo på gatan.
+Om Magozwe klagade eller ifrågasatte så slog hans farbror honom. När Magozwe frågade om man kunde få gå i skolan slog hans farbror honom och sade: "Du är för dum för att lära dig någonting." Efter tre år med denna behandling rymde Magozwe från sin farbror. Han började bo på gatan.
 
 ##
 Gatulivet var hårt och de flesta av pojkarna kämpade varje dag med att få mat. Ibland blev de anhållna, ibland blev de slagna. När de var sjuka fanns det ingen som hjälpte dem. Gruppen var beroende av den lilla summan pengar de tjänade på att tigga, och från att sälja plast och annan återvinning. Livet var ännu svårare på grund av bråk med rivaliserande grupper som ville ha kontroll över vissa delar av staden.
