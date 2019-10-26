@@ -7,7 +7,7 @@ Det här är Khalai. Hon är sju år gammal. Hennes namn betyder "den goda" på 
 Khalai vaknar och pratar med apelsinträdet. "Snälla apelsinträd, väx dig stor och ge oss många mogna apelsiner."
 
 ##
-Khalei går till skolan. På vägen dit pratar hon med gräset. "Snälla gräs, väx grönare och torka inte ut."
+Khalai går till skolan. På vägen dit pratar hon med gräset. "Snälla gräs, väx grönare och torka inte ut."
 
 ##
 Khalai går förbi vilda blommor. "Snälla blommor, fortsätt att blomma så att jag kan fästa er i mitt hår."
