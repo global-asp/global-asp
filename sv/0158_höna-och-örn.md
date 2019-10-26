@@ -22,7 +22,7 @@ När den sista fågeln kom för att låna synålen var Höna inte där. Så henn
 Senare den eftermiddagen kom Örn tillbaka. Hon bad om synålen för att laga några fjädrar som hade lossnat under hennes resa. Höna letade efter den uppe på skåpet. Hon letade i köket. Hon letade på gården. Men nålen gick inte att hitta någonstans.
 
 ##
-"Ge mig bara en dag", bad Höna Örn. Sedan kan du laga din vinge och flyga iväg för att leta mat igen. "Bara en dag till", sade Örn. "Om du inte kan hitta nålen måste du ge mig en av dina kycklingar som betalning.
+"Ge mig bara en dag", bad Höna Örn. Sedan kan du laga din vinge och flyga iväg för att leta mat igen. "Bara en dag till", sade Örn. "Om du inte kan hitta nålen måste du ge mig en av dina kycklingar som betalning."
 
 ##
 När Örn kom nästa dag hittade hon Höna krafsandes i sanden men ingen nål. Så Örn flög ned snabbt och fångade en av kycklingarna. Hon flög iväg med den. Från den dagen krafsar alltid Höna i sanden och letar efter nålen när Örn dyker upp.
