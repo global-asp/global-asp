@@ -1,19 +1,19 @@
 # Akatope
 
 ##
-Det var en gång en gammal dam som alltid hade velat ett barn.
+Det var en gång en gammal dam som alltid hade velat få barn.
 
 ##
 Hon tog den bästa lerjord hon kunde hitta och började skapa en flicka.
 
 ##
-Flickan som var gjord av lera var en riktig människaflicka.
+Flickan som var gjord av lera, var en riktig människaflicka.
 
 ##
 Den gamla damen var mycket glad. Hon kallade flickan Akatope. Hon var mycket förtjust i Akatope.
 
 ##
-Akatope varnades av sin gamla mor att hon inte fick komma ut ur hyddan, men hon lyssnade inte. Varje gång hennes mor inte var medveten om det, smög Akatope ut för att leka med de andra barnen.
+Akatope varnades av sin gamla mor om att hon inte fick komma ut ur hyddan, men hon lyssnade inte. Varje gång hennes mor inte var medveten om det, smög sig Akatope ut för att leka med de andra barnen.
 
 ##
 En dag när Akatope var ute och lekte med de andra barnen, började det regna kraftigt.
