@@ -1,7 +1,7 @@
 # Vad Vusis syster sade
 
 ##
-Tidigt en morgon ropade Vusis mormor på honom: "Vusi, var snäll och ta med detta ägg till dina föräldrar. De vill baka en stor tårta till din systers bröllop".
+Tidigt en morgon ropade Vusis mormor på honom: "Vusi, var snäll och ta med detta ägg till dina föräldrar. De vill baka en stor tårta till din systers bröllop."
 
 ##
 På väg till föräldrarna mötte Vusi två pojkar som plockade frukt. En av dem tog ägget från Vusi och kastade det mot ett träd. Ägget gick sönder.
