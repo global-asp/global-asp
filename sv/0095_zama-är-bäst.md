@@ -22,7 +22,7 @@ Mamma påminner: "Glöm inte tänderna!" Jag svarar: "Aldrig, inte jag!"
 Efter att jag tvättat mig hälsar jag på morfar och moster och önskar dem en god dag.
 
 ##
-Sedan klär jag mig själv "Jag är stor nu, mamma", säger jag.
+Sedan klär jag mig själv. "Jag är stor nu, mamma", säger jag.
 
 ##
 Jag kan knäppa knapparna och stänga spännet på mina skor.
@@ -31,7 +31,7 @@ Jag kan knäppa knapparna och stänga spännet på mina skor.
 Och jag ser till att lillebror får veta allt nytt som händer i skolan.
 
 ##
-I skolan gör jag mitt bästa på alla sätt pch vis.
+I skolan gör jag mitt bästa på alla sätt och vis.
 
 ##
 Varje dag gör jag alla dessa bra saker. Men det jag tycker mest om är att leka och leka!
