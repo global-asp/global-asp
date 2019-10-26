@@ -7,7 +7,7 @@ För länge sedan visste människor ingenting. De visste inte hur man brukar jor
 En dag beslutade Nyame att han skulle ge krukan med vishet till Anansi. Varje gång Anansi tittade in i lerkrukan lärde han sig någonting nytt. Det var så spännande!
 
 ##
-Giriga Anansi tänkte för sig själv, "Jjag gömmer lerkrukan i toppen av ett högt träd så jag får behålla den för mig själv! Han vävde en lång tråd runt lerkrukan, virade den runt krukan och knöt fast den runt sin mage. Han började klättra uppför trädet. Men det var svårt att klättra med krukan som stötte i hans knän hela tiden.
+Giriga Anansi tänkte för sig själv, "Jag gömmer lerkrukan i toppen av ett högt träd så jag får behålla den för mig själv! Han vävde en lång tråd runt lerkrukan, virade den runt krukan och knöt fast den runt sin mage. Han började klättra uppför trädet. Men det var svårt att klättra med krukan som stötte i hans knän hela tiden.
 
 ##
 Under hela tiden hade Anansis unga son stått nedanför trädet och tittat på. Han sa "Skulle det inte vara lättare att klättra om du knöt krukan på ryggen istället?" Anansi knöt krukan som var full med vishet på ryggen istället, och då blev det genast mycket lättare.
