@@ -34,7 +34,7 @@ En kväll när hans föräldrar återvände hem var de väldigt tysta. Sakima vi
 "Jag kan sjunga for honom. Han kanske blir glad igen", sade Sakima till sina föräldrar. Men hans föräldrar avfärdade honom. "Han är mycket rik. Du är bara en blind pojke. Tror du att din sång kan hjälpa honom?"
 
 ##
-Men Sakima gav inte upp. Hans lillasyster stöttade honom. Hon sa "Sakimas sånger tröstar mig när jag är hungrig. De kommer att trösta den rika mannen också."
+Men Sakima gav inte upp. Hans lillasyster stöttade honom. Hon sa: "Sakimas sånger tröstar mig när jag är hungrig. De kommer att trösta den rika mannen också."
 
 ##
 Påföljande dag bad Sakima sin lillasyster att leda honom till den rika mannens hus.
@@ -46,7 +46,7 @@ Han stod under ett stort fönster och började sjunga sin favoritsång. Sakta b�
 Arbetarna slutade med det de höll på med. De lyssnade på Sakimas vackra sång. Men en man sa: "Ingen har lyckats trösta chefen. Tror denna blinda pojke att han kommer att trösta honom?"
 
 ##
-Sakima sjöng färdigt sin sång och vände sig om för att gå. Men den rika mannen sprang ut och sade "Var snäll och sjung igen!"
+Sakima sjöng färdigt sin sång och vände sig om för att gå. Men den rika mannen sprang ut och sade: "Var snäll och sjung igen!"
 
 ##
 Precis då kom två män bärandes på någon på en bår. De hade hittat den rika mannens son misshandlad och lämnad vid sidan av vägen.
