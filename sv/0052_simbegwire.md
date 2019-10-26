@@ -22,7 +22,7 @@ Saker och ting blev värre för Simbegwire. Om hon inte gjorde färdigt sitt hus
 En morgon kom Simbegwire upp sent ur sängen. "Din lata flicka!" skrek Anita. Hon drog upp Simbegwire ur sängen. Den dyrbara filten fastnade på en spik och slets sönder i två delar.
 
 ##
-Simbegwire bev mycket upprörd. Hon bestämde sig för att rymma hemifrån. Hon tog bitarna av sin mammas filt, packade ihop lite mat och lämnade sedan huset. Hon följde samma väg som hennes pappa hade tagit.
+Simbegwire blev mycket upprörd. Hon bestämde sig för att rymma hemifrån. Hon tog bitarna av sin mammas filt, packade ihop lite mat och lämnade sedan huset. Hon följde samma väg som hennes pappa hade tagit.
 
 ##
 När det blev kväll klättrade hon upp i ett träd nära en å och bäddade för sig själv bland grenarna. Medan hon somnare sjöng hon: "Mamma, mamma, du lämnade mig. Du lämnade mig och kom aldrig tillbaka. Mor, när kommer du tillbaka? Du lämnade mig."
