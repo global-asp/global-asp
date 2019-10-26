@@ -16,7 +16,7 @@ Jag tvättar mig själv, jag behöver ingen hjälp.
 Jag klarar mig med kallt vatten och blå, doftande tvål.
 
 ##
-Mamma påminner: "Glöm inte tänderna!" Jag svarar "Aldrig, inte jag!"
+Mamma påminner: "Glöm inte tänderna!" Jag svarar: "Aldrig, inte jag!"
 
 ##
 Efter att jag tvättat mig hälsar jag på morfar och moster och önskar dem en god dag.
