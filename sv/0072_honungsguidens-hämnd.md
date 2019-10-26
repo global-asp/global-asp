@@ -25,7 +25,7 @@ Men Gingile släckte elden och började gå hemåt samtidigt som han ignorerade 
 En dag, flera veckor senare, hörde Gingile honungsropet från Ngede igen. Han kom ihåg den utsökta honungen och började ännu en gång följa fågeln. Efter att ha lett Gingile till kanten av skogen stannade Ngede för att vila i ett stort acaciaträd. Ah, tänkte Gingile. Bina måsta vara i det här trädet. Han tände snabbt en eld och började klättra upp med en rykande pinne mellan tänderna. Ngede satt och tittade.
 
 ##
-Gingile klättrade men undrade varför han inte hörde det sedvanliga surrandet. Kanske bina finns djupt inne i trädet, tänkte han för sig själv. Han drog sig upp till en annan gren. Men instället för ett bo med bin stirrade han rakt in i ögonen på en leopard! Leoparden blev så arg över att ha fått sin sömn avbruten på ett så otrevligt sätt. Hennes ögon smalnade och hon öppnade sitt gap för att visa sina stora och mycket skarpa tänder.
+Gingile klättrade men undrade varför han inte hörde det sedvanliga surrandet. Kanske bina finns djupt inne i trädet, tänkte han för sig själv. Han drog sig upp till en annan gren. Men istället för ett bo med bin stirrade han rakt in i ögonen på en leopard! Leoparden blev så arg över att ha fått sin sömn avbruten på ett så otrevligt sätt. Hennes ögon smalnade och hon öppnade sitt gap för att visa sina stora och mycket skarpa tänder.
 
 ##
 Innan leoparden kunde svinga sin tass mot Gingile klättrade han snabbt ner från trädet. I brådskan missade han en gren, landade med ett stort brak på marken och stukade sin fot. Han haltade iväg så fort kan kunde. Som tur var för honom var leoparden fortfarande för sömnig för att jaga honom. Honungsguiden hade fått sin hämnd. Och Gingile hade fått sig en läxa.
