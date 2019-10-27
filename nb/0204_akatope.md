@@ -7,7 +7,7 @@ Det var en gang en gammel dame som alltid hadde ønsket seg et barn.
 Hun tok den beste leirjorda hun kunne finne og begynte å lage en jente.
 
 ##
-Jenta som var laget av leire ble til en ekte menneskejente.
+Jenta som var laget av leire, ble til en ekte menneskejente.
 
 ##
 Den gamle damen var veldig glad. Hun kalte jenta Akatope. Hun var veldig glad i Akatope.
@@ -25,7 +25,7 @@ De andre barna løp til hyttene sine, men da Akatope løp til sin, begynte beina
 De andre barna fortalte foreldrene sine hva som hadde hendt med Akatope. De var lei seg og sjokkerte.
 
 ##
-Da den gamle damen hørte hva som hadde hendt barnet hennes, gråt hun i flere dager. Landsbyboerne bestemte seg for å ta med seg en annen liten jente som hadde blitt foreldreløs til å ta Akatopes plass.
+Da den gamle damen hørte hva som hadde hendt barnet hennes, gråt hun i flere dager. Landsbyboerne bestemte seg for å ta med seg en annen liten jente som hadde blitt foreldreløs, til å ta Akatopes plass.
 
 ##
 Men det var ikke nødvendig. En stor overraskelse ventet den gamle damen!
