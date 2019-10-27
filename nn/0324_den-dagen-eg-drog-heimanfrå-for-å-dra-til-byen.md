@@ -13,7 +13,7 @@ Bussen til byen var nesten full, men fleire folk dytta for å koma om bord. Nokr
 Nye passasjerar klamra seg til billettane sine medan dei såg etter ein stad å sitja sidan det var trongt om plassen. Kvinner med unge born la til rette for dei så dei skulle få det behageleg under den lange reisa.
 
 ##
-Eg pressa meg inn ved sida av eit vindauge. Personen som sat ved sida av meg heldt hardt om ein grøn plastpose. Han hadde på seg gamle sandalar, ein utsliten frakk, og han såg nervøs ut.
+Eg pressa meg inn ved sida av eit vindauge. Personen som sat ved sida av meg, heldt hardt om ein grøn plastpose. Han hadde på seg gamle sandalar, ein utsliten frakk, og han såg nervøs ut.
 
 ##
 Eg såg ut av bussen og innsåg at eg var i ferd med å forlata landsbyen min, staden der eg hadde vakse opp. Eg skulle dra til den store byen.
@@ -46,7 +46,7 @@ På vegen lærte eg meg utanåt namnet på staden i den store byen der onkelen m
 Ni timar seinare vakna eg av høglydt banking og roping etter passasjerar som skulle tilbake til landsbyen min. Eg greip fatt i den vesle veska mi og hoppa ut av bussen.
 
 ##
-Bussen som skulle tilbake vart fylt opp fort. Det viktigaste for meg no var å byrja å leita etter huset til onkelen min.
+Bussen som skulle tilbake, vart fylt opp fort. Det viktigaste for meg no var å byrja å leita etter huset til onkelen min.
 
 ##
 * License: [CC-BY]
