@@ -1,7 +1,7 @@
 # Simbegwire
 
 ##
-Als ihre Mutter starb, war Simbegwire sehr traurig. Simbewires Vater kümmerte sich so gut er konnte um seine Tochter. Langsam lernten sie, ohne Simbegwires Mutter wieder glücklich zu sein. Jeden Morgen saßen sie zusammen und sprachen über den anstehenden Tag. Jeden Abend bereiteten sie zusammen das Abendessen zu. Nach dem Abwasch half Simbegwires Vater ihr mit den Hausaufgaben.
+Als ihre Mutter starb, war Simbegwire sehr traurig. Simbegwires Vater kümmerte sich so gut er konnte um seine Tochter. Langsam lernten sie, ohne Simbegwires Mutter wieder glücklich zu sein. Jeden Morgen saßen sie zusammen und sprachen über den anstehenden Tag. Jeden Abend bereiteten sie zusammen das Abendessen zu. Nach dem Abwasch half Simbegwires Vater ihr mit den Hausaufgaben.
 
 ##
 Eines Tages kam Simbegwires Vater später als üblich nach Hause. „Wo bist du, mein Kind?“, rief er. Simbegwire lief zu ihm. Sie blieb stehen, als sie sah, dass er die Hand einer Frau hielt. „Ich möchte dir jemand besonderen vorstellen, mein Kind. Das ist Anita“, sagte er lächelnd.
@@ -16,7 +16,7 @@ Simbegwires Leben veränderte sich. Sie hatte keine Zeit mehr, um morgens mit ih
 Nach ein paar Monaten, teilte Simbegwires Vater ihnen mit, dass er eine Weile nicht zu Hause sein würde. „Ich muss von meiner Arbeit aus verreisen“, sagte er. „Aber ich weiß, dass ihr auf euch gegenseitig aufpasst.“ Simbegwire schaute betrübt, aber ihr Vater bemerkte es nicht. Anita sagte nichts. Auch sie war nicht glücklich.
 
 ##
-Es wurde schlimmer für Simbegwire. Wenn sie ihre Aufgaben nicht erledigte oder sie sich beschwerte, schlug Anita sie. Und beim Abendessen aß die Frau das meiste Essen, sodass für Simbegwire nur einige Reste übrig blieben. Jeden Abend weinte sich Simbewire mit der Decke ihrer Mutter im Arm in den Schlaf.
+Es wurde schlimmer für Simbegwire. Wenn sie ihre Aufgaben nicht erledigte oder sie sich beschwerte, schlug Anita sie. Und beim Abendessen aß die Frau das meiste Essen, sodass für Simbegwire nur einige Reste übrig blieben. Jeden Abend weinte sich Simbegwire mit der Decke ihrer Mutter im Arm in den Schlaf.
 
 ##
 Eines Morgens stand Simbegwire zu spät auf. „Du faules Mädchen!“, rief Anita. Sie zog Simbegwire aus dem Bett. Die Lieblingsdecke blieb an einem Nagel hängen und riss entzwei.
@@ -37,7 +37,7 @@ Die Frau schaute hinauf in den Baum. Als sie das Mädchen und Teile der bunten D
 Simbegwires Tante nahm das Kind mit zu sich nach Hause. Sie gab Simbegwire eine warme Mahlzeit und deckte sie im Bett mit der Decke ihrer Mutter zu. In dieser Nacht weinte sich Simbegwire in den Schlaf, aber es waren Tränen der Erleichterung. Sie wusste, ihre Tante würde sich um sie kümmern.
 
 ##
-Als Simbegwires Vater nach Hause kam, fand er ein leeres Zimmer vor. „Was ist passiert, Anita?“ fragte er traurig. Die Frau erklärte, dass Simbewire weggelaufen war. „Ich wollte, dass sie mich respektiert“, sagte sie, „aber vielleicht war ich zu streng.“ Simbegwires Vater ging hinaus und lief in Richtung Fluss. Er lief zum Dorf seiner Schwester, um herauszufinden, ob sie Simbegwire gesehen hatte.
+Als Simbegwires Vater nach Hause kam, fand er ein leeres Zimmer vor. „Was ist passiert, Anita?“ fragte er traurig. Die Frau erklärte, dass Simbegwire weggelaufen war. „Ich wollte, dass sie mich respektiert“, sagte sie, „aber vielleicht war ich zu streng.“ Simbegwires Vater ging hinaus und lief in Richtung Fluss. Er lief zum Dorf seiner Schwester, um herauszufinden, ob sie Simbegwire gesehen hatte.
 
 ##
 Simbegwire spielte mit ihren Cousins als sie ihren Vater von weit weg kommen sah. Sie hatte Angst, dass er wütend sein könnte, also lief sie ins Haus, um sich zu verstecken. Aber ihr Vater sagte: „Simbegwire, du hast dir selbst eine perfekt Mutter gesucht. Eine, die dich liebt und versteht. Ich bin stolz auf dich und ich liebe dich.“ Sie vereinbarten, dass Simbegwire so lange bei ihrer Tante bleiben würde, wie sie möchte.
