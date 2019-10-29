@@ -10,7 +10,7 @@ Mientras la figura se acercaba, la niña se dio cuenta que era una mujer embaraz
 Tímida pero valientemente, la pequeña niña se acercó a la mujer. "Tenemos que cuidar de ella," decidieron los familiares de la niña pequeña. "Ella y su bebé estarán a salvo con nosotros".
 
 ##
-Al poco tiempo, el bebé empezó a nacer. "¡Puja!" "¡Traigan mantas!" "¡Agua!" "¡¡¡Puuuuujjjjjaaa!!!
+Al poco tiempo, el bebé empezó a nacer. "¡Puja!" "¡Traigan mantas!" "¡Agua!" "¡¡¡Puuuuujjjjjaaa!!!"
 
 ##
 Pero cuando vieron al recién nacido, todos se llevaron una gran sorpresa. "¡¿Un burro?!"
