@@ -7,7 +7,7 @@ Temprano en la mañana, la abuelita de Vusi le dijo, "Vusi, por favor, lleva est
 Cuando iba hacia la casa de sus padre, Vusi se encontró con dos chicos recogiendo frutas. Uno de los chicos le quitó el huevo a Vusi y lo lanzó a un árbol. El huevo se quebró.
 
 ##
-"¡¿Qué acabas de hacer?!" Vusi le gritó. "Ese huevo era para hacer el pastel de boda de mi hermana." ¿Qué dirá mi hermana cuando sepa que no habrá pastel de boda?"
+"¡¿Qué acabas de hacer?!" Vusi le gritó. "Ese huevo era para hacer el pastel de boda de mi hermana. ¿Qué dirá mi hermana cuando sepa que no habrá pastel de boda?"
 
 ##
 Los chicos se disculparon por lo ocurrido. "No te podemos ayudar con la pastel, pero este palo para caminar es un regalo para tu hermana," uno de los chicos dijo. Luego, Vusi siguió caminando.
