@@ -1,4 +1,4 @@
-# Vad Vusis syster sade
+# Vad Vusis syster sa
 
 ##
 Tidigt en morgon ropade Vusis mormor på honom: "Vusi, var snäll och ta med detta ägg till dina föräldrar. De vill baka en stor tårta till din systers bröllop."
