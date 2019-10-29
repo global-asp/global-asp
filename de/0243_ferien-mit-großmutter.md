@@ -13,10 +13,10 @@ Früh am nächsten Morgen machten sie sich im Auto ihres Vaters zum Dorf auf. Si
 Nach einer Weile waren die Kinder müde und schliefen ein.
 
 ##
-Vater weckte Odongo und Apiyo, als sie im Dorf ankamen. Nyar-Kanyada, ihre Großmutter, lag auf einer Matte unter einem Baum und entspannte sich. Nyar-Kanyada in Luo bedeutet „Tochter des Volkes von Kanyada". Sie war eine schöne und starke Frau.
+Vater weckte Odongo und Apiyo, als sie im Dorf ankamen. Nyar-Kanyada, ihre Großmutter, lag auf einer Matte unter einem Baum und entspannte sich. Nyar-Kanyada in Luo bedeutet „Tochter des Volkes von Kanyada“. Sie war eine schöne und starke Frau.
 
 ##
-Nyar-Kanyada bat sie ins Haus und tanzte freudig im Zimmer herum. Ihre Enkelkinder überreichten ihr begeistert ihre Geschenke. „Öffne mein Geschenk zuerst", meinte Odongo. „Nein, meins zuerst!", entgegnete Apiyo.
+Nyar-Kanyada bat sie ins Haus und tanzte freudig im Zimmer herum. Ihre Enkelkinder überreichten ihr begeistert ihre Geschenke. „Öffne mein Geschenk zuerst“, meinte Odongo. „Nein, meins zuerst!“, entgegnete Apiyo.
 
 ##
 Nachdem sie die Geschenke geöffnet hatte, segnete Nyar-Kanyada ihre Enkelkinder auf traditionelle Art.
@@ -52,7 +52,7 @@ Am Ende des Tages tranken sie einen Chai-Tee zusammen. Sie halfen Großmutter, d
 Aber all zu schnell waren die Ferien zu Ende und die Kinder mussten in die Stadt zurückkehren. Nyar-Kanyada gab Odongo eine Kappe und Apiyo ein Sweatshirt. Sie packte Essen für die Reise.
 
 ##
-Als ihr Vater kam, um sie abzuholen, wollten sie nicht gehen. Die Kinder flehten Nyar-Kanyada an, mit ihnen in die Stadt zukommen. Sie lächelte und sagte: „Ich bin zu alt für die Stadt. Ich werde darauf warten, dass ihr wieder zu mir ins Dorf kommt."
+Als ihr Vater kam, um sie abzuholen, wollten sie nicht gehen. Die Kinder flehten Nyar-Kanyada an, mit ihnen in die Stadt zukommen. Sie lächelte und sagte: „Ich bin zu alt für die Stadt. Ich werde darauf warten, dass ihr wieder zu mir ins Dorf kommt.“
 
 ##
 Odongo und Apiyo umarmten sie fest zum Abschied.

@@ -4,7 +4,7 @@
 Przystanek autobusowy w mojej wiosce był mały, zatłoczony i pełny przeładowanych autobusów. Na ziemi leżało mnóstwo rzeczy do załadunku. Sprzedawcy biletów wykrzykiwali nazwy miejscowości, do których jechały autobusy.
 
 ##
-„Centrum! Centrum! Zachód!" – usłyszałem. To był mój autobus.
+„Centrum! Centrum! Zachód!” – usłyszałem. To był mój autobus.
 
 ##
 Mój autobus był prawie pełny, ale ludzie nadal przepychali się, aby dostać się do środka. Niektórzy upychali swój bagaż pod autobusem, inni umieszczali bagaże na półkach w środku.

@@ -34,19 +34,19 @@ Mein Vater ging von Haus zu Haus und lud die Leute zu einer Dorfversammlung ein.
 Die Leute versammelten sich unter einem großen Baum und hörten zu.
 
 ##
-Mein Vater stand auf und sagte: „Wir müssen zusammenarbeiten, um unsere Probleme zu lösen."
+Mein Vater stand auf und sagte: „Wir müssen zusammenarbeiten, um unsere Probleme zu lösen.“
 
 ##
-Der achtjährige Juma rief von einem Baumstamm aus: „Ich kann beim Aufräumen helfen!"
+Der achtjährige Juma rief von einem Baumstamm aus: „Ich kann beim Aufräumen helfen!“
 
 ##
-Eine Frau sagte: „Die Frauen können mit mir zusammen Essen anbauen."
+Eine Frau sagte: „Die Frauen können mit mir zusammen Essen anbauen.“
 
 ##
-Noch ein Mann stand auf und erklärte: „Die Männer werden einen Brunnen graben."
+Noch ein Mann stand auf und erklärte: „Die Männer werden einen Brunnen graben.“
 
 ##
-Wir alle riefen einstimmig: „Wir müssen unser Leben ändern." Von dort an arbeiteten wir zusammen, um unsere Probleme zu lösen.
+Wir alle riefen einstimmig: „Wir müssen unser Leben ändern.“ Von dort an arbeiteten wir zusammen, um unsere Probleme zu lösen.
 
 ##
 * License: [CC-BY]
