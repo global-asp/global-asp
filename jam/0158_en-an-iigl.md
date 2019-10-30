@@ -4,7 +4,7 @@
 Wan taim, En an Iigl a did fren. Dem yuuz tu liv piisful wid aal a di ada bod dem. Non a dem kudn flai.
 
 ##
-Wan die, famin did de pan di lan. Iigl did afi waak faar-faar fi fain fuud. Shi kom bak wel taiyad. "Wahn iiziya wie mos de bot fi chravl! Iigl se.
+Wan die, famin did de pan di lan. Iigl did afi waak faar-faar fi fain fuud. Shi kom bak wel taiyad. "Wahn iiziya wie mos de bot fi chravl!" Iigl se.
 
 ##
 Afta a gud nait sliip, En kom op wid a brait aidiya. Shi staat kalek op aal a di feda dem we jrap aaf a aal a dem bod fren dem. "Mek wi suo dem op tugeda pan tap a fiwi feda dem," shi se. "Miebi dat wi mek it iiziya fi chravl."
