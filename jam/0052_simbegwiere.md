@@ -19,7 +19,7 @@ Afta a kopl monts, Simbegwiere faada did tel dem se im wuda gaan we fram uom fi 
 Tingz get wors fi Simbegwiere. Ef shi neva don ar ous wok, ar shi komplien, Aniita lik ar. An wen a dina taim, di uman nyam muos a di fuud, an lef likl bit fi Simbegwiere. Evri nait Simbegwiere baal til shi jrap asliip, a og op ar mada blangkit.
 
 ##
-Wan maanin, Simbegwiere did wiek op liet. "Yu liezi gyal pikni! Aniita baal out. Shi jrag Simbegwiere aaf a di bed. Di speshal blangkit kech pan wahn niel, an tier inna tuu.
+Wan maanin, Simbegwiere did wiek op liet. "Yu liezi gyal pikni!" Aniita baal out. Shi jrag Simbegwiere aaf a di bed. Di speshal blangkit kech pan wahn niel, an tier inna tuu.
 
 ##
 Simbegwiere did wel opset. Shi mek op ar main fi ron we fram uom. Shi did tek di piisiz dem fram ar mada blangkit, pak op som fuud, an lef di ous. Shi tek di ruod we ar faada di tek.
