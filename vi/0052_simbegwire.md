@@ -40,8 +40,7 @@ Dì cô mang cô bé về nhà. Simbegwire được cho ăn và ru ngủ dưới
 Khi bố Simbegwire về nhà, ông thấy phòng cô bé trống trơn. "Chuyện gì xảy ra vậy Anita?" Người đàn bà bảo cô bé đã bỏ nhà ra đi. "Em muốn con bé tôn trọng em. Nhưng có lẽ em đã quá khắt khe." Bố cô rời nhà và đi theo hướng con suối. Khi tới ngôi làng của em gái ông, ông nghe được họ đã tìm thấy Simbegwire.
 
 ##
-Simbegwire đang chơi với anh em họ khi cô thấy bố cô từ xa. Sợ bị mắng, cô chạy trốn vào nhà. Nhưng bố đã tới và bảo "Simbegwire, con đã tự tìm được người mẹ hoàn hảo dành cho con, người yêu con và hiểu được con. Bố rất tự hào về con và bố yêu con nhiều.
- Họ đồng ý Simbegwire sẽ ở với dì bao lâu cũng được.
+Simbegwire đang chơi với anh em họ khi cô thấy bố cô từ xa. Sợ bị mắng, cô chạy trốn vào nhà. Nhưng bố đã tới và bảo "Simbegwire, con đã tự tìm được người mẹ hoàn hảo dành cho con, người yêu con và hiểu được con. Bố rất tự hào về con và bố yêu con nhiều." Họ đồng ý Simbegwire sẽ ở với dì bao lâu cũng được.
 
 ##
 Bố cô thăm cô mỗi ngày. Một hôm nọ Anita cũng tới thăm. Bà ta nắm tay cô bé "Cô xin lỗi, cô đã sai rồi. hãy cho cô cơ hội nữa nhé?" Simbegwire nhìn lên khuôn mặt lo lắng của bố. Rồi cô bé chậm chậm tiến lại Anita và vòng tay qua người bà.
