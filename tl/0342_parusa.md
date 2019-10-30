@@ -21,7 +21,7 @@ Galit si mama kay Rahim.
 Galit din kami pero ayaw magsisi ni Rahim.
 
 ##
-'Hindi po ba mapaparusahan si Rahim?" tanong ni bunso.
+"Hindi po ba mapaparusahan si Rahim?" tanong ni bunso.
 
 ##
 "Magsisisi ka, Rahim," banta ni Mama.
