@@ -10,7 +10,7 @@ Dzień był gorący, więc poszły też wykąpać się w rzece. Bawiły się, pl
 Nagle zorientowały się, że zrobiło się bardzo późno i pospieszyły z powrotem do wioski.
 
 ##
-Kiedy były już prawie w domu, Nozibele dotknęła ręką swojej szyi. Okazało się, że zapomniała naszyjnika! ”Proszę, wróćcie ze mną!” – błagała swoje koleżanki. Niestety, obie dziewczynki uznały, że było już zbyt późno.
+Kiedy były już prawie w domu, Nozibele dotknęła ręką swojej szyi. Okazało się, że zapomniała naszyjnika! „Proszę, wróćcie ze mną!” – błagała swoje koleżanki. Niestety, obie dziewczynki uznały, że było już zbyt późno.
 
 ##
 Nozibele wróciła więc nad rzekę sama. Znalazła naszyjnik i pospieszyła do domu. Niestety zgubiła się w ciemnościach.

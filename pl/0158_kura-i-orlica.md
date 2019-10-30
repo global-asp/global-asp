@@ -7,7 +7,7 @@ Dawno, dawno temu Kura i Orlica przyjaźniły się. Żyły w zgodzie ze wszystki
 Pewnego dnia na ziemi nastał głód. Orlica musiała wędrować bardzo daleko, aby znaleźć pożywienie. Gdy wróciła zmęczona powiedziała: „Musi być jakiś prostszy sposób podróżowania!”
 
 ##
-Po dobrze przespanej nocy Kura wpadła na znakomity pomysł. Zaczęła zbierać pióra, które leżały na ziemi. „Pozszywajmy je ze sobą, a potem przyczepmy je do naszych piór” – powiedziała. ”Może wtedy będzie nam łatwiej podróżować.”
+Po dobrze przespanej nocy Kura wpadła na znakomity pomysł. Zaczęła zbierać pióra, które leżały na ziemi. „Pozszywajmy je ze sobą, a potem przyczepmy je do naszych piór” – powiedziała. „Może wtedy będzie nam łatwiej podróżować.”
 
 ##
 Orlica była jedynym ptakiem, który miał igłę, więc zaczęła szyć pierwsza. Uszyła parę pięknych skrzydeł i poleciała wysoko nad głową Kury. Kura pożyczyła igły od Orlicy i zaczęła szyć, ale szybko znudziła się tym zajęciem. Zostawiła igłę na szafce i wróciła do kuchni, aby przygotować obiad dla dzieci.
