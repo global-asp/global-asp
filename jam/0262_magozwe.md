@@ -46,7 +46,7 @@ So Magozwe did muuv iihn a wahn ruum inna di ous wid di griin oustap. Im shier d
 Magozwe did staat skuul an it di aad. Im did afi kech op. Somtaim im did waahn gi op. Bot im did tingk bout di pailat an di futbaala inna di stuoribuk dem. Laik dem, im neva gi op.
 
 ##
-Magozwe did a siddong inna di yaad a di ous wid di griin oustap, a riid wahn stuoribuk fram skuul. Tamas kom op an did siddong bisaid a im. "Wa da stuori ya bout?" Tamas aks im se." A bout wahn bwaai pikni uu ton wahn tiicha," Magozwe ansa se. "We di bwaai pikni niem?" Tamas aks se. "Im niem Magozwe," Magozwe ansa wid a smail.
+Magozwe did a siddong inna di yaad a di ous wid di griin oustap, a riid wahn stuoribuk fram skuul. Tamas kom op an did siddong bisaid a im. "Wa da stuori ya bout?" Tamas aks im se. "A bout wahn bwaai pikni uu ton wahn tiicha," Magozwe ansa se. "We di bwaai pikni niem?" Tamas aks se. "Im niem Magozwe," Magozwe ansa wid a smail.
 
 ##
 * License: [CC-BY]
