@@ -16,7 +16,7 @@ Ipo se sari tu Rabit, "Mi riili sari. Mi neva si yu. Du beg yu paadn!" Bot Rabit
 Rabit go luk fi Faiya an tel im se, "Gwaan, bon op Ipo wen shi kom outa di waata fi nyam graas. Shi did step pan mi! Faiya ansa se, "No prablem, Rabit, mi fren. Mi wi du we yu aks."
 
 ##
-Lieta, Ipo did a nyam graas faar fram di riva wen, "Wush! Faiya ton inna wahn big faiyabaal. Di faiya staat bon aaf Ipo ier.
+Lieta, Ipo did a nyam graas faar fram di riva wen, "Wush!" Faiya ton inna wahn big faiyabaal. Di faiya staat bon aaf Ipo ier.
 
 ##
 Ipo staat fi baal an ron go inna di waata. Di faiya bon aaf aal a ar ier dem. Ipo no stap baal, "Mi ier get bon aaf inna di faiya! Aal a mi ier gaan! Mi priti ier!"
