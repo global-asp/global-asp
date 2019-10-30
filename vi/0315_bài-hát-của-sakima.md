@@ -16,7 +16,7 @@ Bố mẹ của Sakima làm việc tại nhà của phú ông. Họ rời nhà t
 Sakima thích hát. Một ngày nọ, mẹ hỏi Sakima: "Sakima, con học những bài hát này từ đâu vậy?"
 
 ##
-Sakima trả lời" "Thưa mẹ, những bài hát này tự đến thôi. Con nghe chúng ở trong đầu và sau đó con hát."
+Sakima trả lời: "Thưa mẹ, những bài hát này tự đến thôi. Con nghe chúng ở trong đầu và sau đó con hát."
 
 ##
 Sakima thích hát cho em gái nhỏ của mình, đặc biệt là khi em đói. Em gái bạn ấy nghe bạn hát bài hát yêu thích của mình. Em lắc lư theo giai điệu nhẹ nhàng của bài hát.
