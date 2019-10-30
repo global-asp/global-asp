@@ -16,7 +16,7 @@ Napapansin din ni Khalai ang mga ligaw na bulaklak, "Tuloy niyo lang ang pamulak
 Kinakausap din ni Khalai ang puno sa gitna ng iskul, "Plis naman, malaking puno, palaguin mo pa mga sanga para sa lilim mo kami ay makapagbasa."
 
 ##
-May nasasabi rin si Khalai sa mga halamang-bakod, "Magpakatibay kayo, pigilin ninyong makapasok ang masasamang tao.
+May nasasabi rin si Khalai sa mga halamang-bakod, "Magpakatibay kayo, pigilin ninyong makapasok ang masasamang tao."
 
 ##
 Pagkauwi, pinupuntahan agad ni Khalai ang dalandan, "Hinog na ba mga bunga?"
