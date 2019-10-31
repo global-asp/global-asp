@@ -28,7 +28,7 @@ Da hun var ferdig med å studere, dro hun tilbake til Kenya. Men landet hennes v
 Wangari visste råd. Hun lærte kvinnene å plante trær ved å så frø i jorda. Kvinnene solgte trærne og brukte pengene til beste for familien sin. De ble veldig glade. Wangari hadde fått dem til å føle seg sterke og mektige.
 
 ##
-Tiden gikk og de nye trærne vokste og ble til skog, og det kom vann i elvene igjen. Historien om Wangari spredte seg over hele Afrika. I dag er det millioner av trær som har vokst opp fra Wangaris frø.
+Tiden gikk, og de nye trærne vokste og ble til skog, og det kom vann i elvene igjen. Historien om Wangari spredte seg over hele Afrika. I dag er det millioner av trær som har vokst opp fra Wangaris frø.
 
 ##
 Wangari hadde arbeidet hardt. Folk over hele verden la merke til det og de ga henne en berømt pris. Den kalles Nobels fredspris. Hun ble den første afrikanske kvinnen som fikk den.
