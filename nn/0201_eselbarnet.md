@@ -28,7 +28,7 @@ Men til slutt godtok ho at han var barnet hennar og at ho var mor hans.
 Viss berre barnet hadde halde på den vesle storleiken, hadde alt kanskje vore annleis. Men eselbarnet voks og voks heilt til han ikkje lenger fekk plass på ryggen til mora. Og uansett kor hardt han freista, klarte han ikkje å oppføra seg som eit menneske. Mor hans var ofte sliten og frustrert. Nokre gongar sette ho han til å gjera arbeid som var meint for dyr.
 
 ##
-Esel vart fylt av forvirring og sinne. Han kunne ikkje gjera ditt og han kunne ikkje gjera datt. Han kunne ikkje vera på éin måte og han kunne ikkje vera på ein annan måte. Han vart så sint at han ein dag sparka ned huset til mor si.
+Esel vart fylt av forvirring og sinne. Han kunne ikkje gjera ditt, og han kunne ikkje gjera datt. Han kunne ikkje vera på éin måte, og han kunne ikkje vera på ein annan måte. Han vart så sint at han ein dag sparka ned huset til mor si.
 
 ##
 Esel skamma seg. Han byrja å springa vekk så fort han kunne.
