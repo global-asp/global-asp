@@ -19,7 +19,7 @@ Eg pressa meg inn ved sida av eit vindauge. Personen som sat ved sida av meg, he
 Eg såg ut av bussen og innsåg at eg var i ferd med å forlata landsbyen min, staden der eg hadde vakse opp. Eg skulle dra til den store byen.
 
 ##
-Lastinga av bagasjen var ferdig og alle passasjerane hadde sett seg. Gateseljarar pressa seg enno inn i bussen for å selja varene sine til passasjerane. Alle ropte namna på det dei hadde til sals. Eg syntest orda høyrdest merkelege ut.
+Lastinga av bagasjen var ferdig, og alle passasjerane hadde sett seg. Gateseljarar pressa seg enno inn i bussen for å selja varene sine til passasjerane. Alle ropte namna på det dei hadde til sals. Eg syntest orda høyrdest merkelege ut.
 
 ##
 Nokre få passasjerar kjøpte noko å drikka, andre kjøpte små snacks som dei byrja å tygga på. Dei som ikkje hadde noko pengar, som eg, berre såg på.
