@@ -19,7 +19,7 @@ Jeg presset meg inn ved siden av et vindu. Personen som satt ved siden av meg, h
 Jeg så ut av bussen og innså at jeg var i ferd med å forlate landsbyen min, stedet hvor jeg hadde vokst opp. Jeg skulle dra til den store byen.
 
 ##
-Lastingen av bagasjen var ferdig og alle passasjerene hadde satt seg. Gateselgere presset seg fortsatt inn i bussen for å selge varene sine til passasjerene. Alle ropte navnene på det de hadde til salgs. Jeg syntes ordene hørtes merkelige ut.
+Lastingen av bagasjen var ferdig, og alle passasjerene hadde satt seg. Gateselgere presset seg fortsatt inn i bussen for å selge varene sine til passasjerene. Alle ropte navnene på det de hadde til salgs. Jeg syntes ordene hørtes merkelige ut.
 
 ##
 Noen få passasjerer kjøpte noe å drikke, andre kjøpte små snacks som de begynte å tygge på. De som ikke hadde noen penger, som jeg, bare så på.
