@@ -34,7 +34,7 @@ Da de møttes, begynte Magozwe å fortelle sin egen historie til Thomas. Det var
 Omkring Magozwes tiende fødselsdag ga Thomas ham en ny barnebok. Det var fortellingen om en landsbygutt som vokste opp til å bli en berømt fotballspiller. Thomas leste den fortellingen for Magozwe mange ganger, helt til han en dag sa: "Jeg synes det er på tide at du går på skolen og lærer å lese. Hva synes du?" Thomas forklarte at han visste om et sted hvor barn kunne bo og gå på skole.
 
 ##
-Magozwe tenkte på dette nye stedet og på å gå på skolen. Hva om onkelen hans hadde rett og han var for dum til å lære noe? Hva om de slo ham på dette nye stedet? Han var redd. "Kanskje det er bedre å bo på gata", tenkte han.
+Magozwe tenkte på dette nye stedet og på å gå på skolen. Hva om onkelen hans hadde rett, og han var for dum til å lære noe? Hva om de slo ham på dette nye stedet? Han var redd. "Kanskje det er bedre å bo på gata", tenkte han.
 
 ##
 Han snakket om det han var redd for med Thomas. Med tiden forsikret mannen gutten om at livet kunne bli bedre på det nye stedet.
