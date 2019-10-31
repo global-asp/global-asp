@@ -31,7 +31,7 @@ Wangari visste råd. Ho lærde kvinnene å planta tre ved å så frø i jorda. K
 Tida gjekk, og dei nye trea voks og vart til skog, og det kom vatn i elvene igjen. Historia om Wangari spreidde seg over heile Afrika. I dag er det millionar av tre som har vakse opp frå Wangaris frø.
 
 ##
-Wangari hadde arbeidd hardt. Folk over heile verda la merke til det og dei gav henne ein berømt pris. Han vert kalla Nobels fredspris. Ho vart den første afrikanske kvinna som fekk han.
+Wangari hadde arbeidd hardt. Folk over heile verda la merke til det, og dei gav henne ein berømt pris. Han vert kalla Nobels fredspris. Ho vart den første afrikanske kvinna som fekk han.
 
 ##
 Wangari døydde i 2011, men vi kan tenkja på henne kvar gong vi ser eit vent tre.
