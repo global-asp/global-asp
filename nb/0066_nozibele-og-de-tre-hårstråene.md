@@ -31,7 +31,7 @@ Da sa hunden: "Re opp sengen for meg!" Nozibele svarte: "Jeg har aldri redd opp 
 Hver dag måtte hun lage mat og feie og gjøre rent for hunden. Så en dag sa hunden: "Nozibele, i dag må jeg besøke noen venner. Fei huset, lag mat og gjør rent før jeg kommer tilbake."
 
 ##
-Så snart hunden var dratt, tok Nozibele tre hårstrå fra hodet sitt. Hun la ett hårstrå under sengen, ett bak døra, og ett i innhegningen. Så løp hun hjem så fort hun orket.
+Så snart hunden var dratt, tok Nozibele tre hårstrå fra hodet sitt. Hun la ett hårstrå under sengen, ett bak døra og ett i innhegningen. Så løp hun hjem så fort hun orket.
 
 ##
 Da hunden kom tilbake, lette han etter Nozibele. "Nozibele, hvor er du?" ropte han. "Jeg er her, under sengen", sa det første hårstrået. "Jeg er her, bak døra", sa det andre hårstrået. "Jeg er her, i innhegningen", sa det tredje hårstrået.
