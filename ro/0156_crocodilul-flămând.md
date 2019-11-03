@@ -4,7 +4,7 @@
 A fost odată un crocodil foarte flămând.
 
 ##
- Căuta de mâncare incetișor si fără zgomot. Si apoi. . .
+Căuta de mâncare incetișor si fără zgomot. Si apoi. . .
 
 ##
 Pleosc!! Crocodilul atacă!
