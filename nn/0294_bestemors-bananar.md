@@ -4,7 +4,7 @@
 Kjøkkenhagen til bestemor var full av durra, hirse og maniok. Men best av alt var bananane. Sjølv om bestemor hadde mange barneborn, visste eg i all løyndom at eg var favoritten hennar. Ho inviterte meg ofte heim til seg. Ho fortalde meg òg små løyndomar. Men det var éin løyndom ho ikkje delte med meg: kor ho mogna bananane.
 
 ##
-Ein dag såg eg ei stor stråkorg som stod plassert utanfor huset til bestemor. Då eg spurde kva ho var meint for, fekk eg svaret: "Det er den magiske korga mi." Ved sida av korga var det fleire bananblad som bestemor snudde frå tid til annan. Eg var nysgjerrig: "Kva brukar du blada til, bestemor?" spurde eg. Det einaste svaret eg fekk, var: "Dei er dei magiske blada mine."
+Ein dag såg eg ei stor stråkorg som stod plassert utanfor huset til bestemor. Då eg spurde kva ho var meint for, fekk eg svaret: "Det er den magiske korga mi." Ved sida av korga var det fleire bananblad, som bestemor snudde frå tid til annan. Eg var nysgjerrig: "Kva brukar du blada til, bestemor?" spurde eg. Det einaste svaret eg fekk, var: "Dei er dei magiske blada mine."
 
 ##
 Det var så interessant å sjå på bestemor, bananane, bananblada og den store stråkorga. Men bestemor sende meg av garde til mamma for eit ærend. "Bestemor, ver så snill, la meg få sjå på medan du førebur ..." "Ikkje ver så sta, jenta mi, gjer det du har vorte bede om", insisterte ho. Eg sprang av garde.
