@@ -22,7 +22,7 @@ Ein dag vart lengsla for sterk. Brørne hans åtvara han.
 Men det var for seint! Han smelta i den varme sola.
 
 ##
-Voksborna vart leie seg av å sjå bror sin smelte bort.
+Voksborna vart lei seg av å sjå bror sin smelte bort.
 
 ##
 Men dei la ein plan. Dei forma ein fugl av den smelta voksklumpen.
