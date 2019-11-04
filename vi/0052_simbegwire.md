@@ -43,7 +43,7 @@ Khi bố Simbegwire về nhà, ông thấy phòng cô bé trống trơn. "Chuy�
 Simbegwire đang chơi với anh em họ khi cô thấy bố cô từ xa. Sợ bị mắng, cô chạy trốn vào nhà. Nhưng bố đã tới và bảo "Simbegwire, con đã tự tìm được người mẹ hoàn hảo dành cho con, người yêu con và hiểu được con. Bố rất tự hào về con và bố yêu con nhiều." Họ đồng ý Simbegwire sẽ ở với dì bao lâu cũng được.
 
 ##
-Bố cô thăm cô mỗi ngày. Một hôm nọ Anita cũng tới thăm. Bà ta nắm tay cô bé "Cô xin lỗi, cô đã sai rồi. hãy cho cô cơ hội nữa nhé?" Simbegwire nhìn lên khuôn mặt lo lắng của bố. Rồi cô bé chậm chậm tiến lại Anita và vòng tay qua người bà.
+Bố cô thăm cô mỗi ngày. Một hôm nọ Anita cũng tới thăm. Bà ta nắm tay cô bé "Cô xin lỗi, cô đã sai rồi. Hãy cho cô cơ hội nữa nhé?" Simbegwire nhìn lên khuôn mặt lo lắng của bố. Rồi cô bé chậm chậm tiến lại Anita và vòng tay qua người bà.
 
 ##
 Tuần sau, Anita mời Simbegwire và dì tới ăn một bữa tối linh đình. Anita chuẩn bị toàn những món cô bé thích. Họ ăn no say và cũng vui vẻ trò chuyện. Simbegwire cảm thấy mạnh mẽ và hạnh phúc vô cùng. Cô quyết định sẽ sớm về ở với bố và mẹ kế.
