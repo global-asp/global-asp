@@ -25,7 +25,7 @@ Isang malamig na araw, nakatayo si Magozwe sa kalye namamalimos nang lumapit sa 
 Unti-unting nasanay ang mga batang kalye kay Tomas. Mahilig makipagkuwentuhan si Tomas sa kanila. Gusto niyang marinig ang istorya ng kanilang buhay. Pasensiyoso, seryoso at magalang--ganun si Tomas. Nagsimulang pumunta ang ibang bata sa dilaw at asul na bahay tuwing oras ng tanghalian.
 
 ##
-Isang araw, nakaupo si Magozwe sa bangketa habang nakatingin sa kanyang libro. Tumabi si Tomas, "Ano ang kuwento ng libro?" tanong niya. "Tungkol sa isang bata na naging piloto," sagot ni Magozwe. "Anong pangalan niya?" tanong ni Tomas. "Hindi ko alam, e. Hindi ako marunong magbasa." sabi ni Magozwe.
+Isang araw, nakaupo si Magozwe sa bangketa habang nakatingin sa kanyang libro. Tumabi si Tomas, "Ano ang kuwento ng libro?" tanong niya. "Tungkol sa isang bata na naging piloto," sagot ni Magozwe. "Anong pangalan niya?" tanong ni Tomas. "Hindi ko alam, e. Hindi ako marunong magbasa," sabi ni Magozwe.
 
 ##
 Sinabi ni Magozwe ang kuwento ng kanyang buhay kay Tomas. Kinuwento niya ang tiyo at kung bakit siya naglayas. Tahimik lang na nakinig si Tomas sa lahat ng sinasabi ni Magozwe. Naging madalas ang kuwentuhan nila. Isang araw, nag-usap sila habang kumakain sa loob ng bahay na dilaw at asul.
