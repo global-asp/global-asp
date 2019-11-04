@@ -34,7 +34,7 @@ Amikor csak találkoztak Magozwe saját életéről mesélt Thomasnak. Mesélt a
 Magozwe tizedik születésnapja környékén Thomas egy új mesekönyvet adott a fiúnak. Ez a történet egy falusi fiúról szólt, akiből híres focista lett. Thomas sokszor felolvasta a történetet Magozwe-nak. Aztán egyik nap, így szólt: "Szerintem itt az ideje, hogy iskolába menj és megtanulj olvasni. Mit gondolsz?" Thomas elmagyarázta a fiúnak, hogy ismer egy olyan iskolát, ahol a gyerekek nemcsak tanulnak, hanem ott is laknak.
 
 ##
-Magozwe sokat gondolt erre a helyre és arra, hogy milyen lehet iskolába járni. De mi van akkor, ha a nagybátyjának igaza van és ő túl buta ahhoz, hogy tanuljon? Nagyon félt. "Talán jobban járok, ha az utcán élek tovább." gondolta.
+Magozwe sokat gondolt erre a helyre és arra, hogy milyen lehet iskolába járni. De mi van akkor, ha a nagybátyjának igaza van és ő túl buta ahhoz, hogy tanuljon? Nagyon félt. "Talán jobban járok, ha az utcán élek tovább," gondolta.
 
 ##
 A félelmeit elmondta Thomasnak. Végül a férfinak sikerült meggyőznie arról, hogy sokkal jobb lesz az élete az új helyen.
