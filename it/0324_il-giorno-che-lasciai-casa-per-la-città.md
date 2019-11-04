@@ -34,7 +34,7 @@ I venditori ambulanti si spinsero a vicenda per farsi strada fuori dall'autobus.
 Non appena l'autobus lasciò la fermata, io guardai fuori dal finestrino. Mi chiedevo se sarei mai tornato al mio villaggio.
 
 ##
-Nel corso del viaggio, l'interno dell'autobus diventò molto caldo. chiusi gli occhi sperando di dormire.
+Nel corso del viaggio, l'interno dell'autobus diventò molto caldo. Chiusi gli occhi sperando di dormire.
 
 ##
 Ma la mia testa si trasportò a casa. Mia madre starà bene? I miei conigli porteranno denaro? Mio fratello si ricorderà di innaffiare le mie piantine?
