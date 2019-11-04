@@ -16,7 +16,7 @@ I ragazzi si sentirono in colpa per aver stuzzicato Vusi. "Non possiamo aiutarti
 Per la strada incontrò due uomini che stavano costruendo una casa. "Possiamo usare quel bastone robusto?" chiese uno. Ma il bastone non era abbastanza robusto per costruire e si ruppe.
 
 ##
-"Che cosa avete fatto?" pianse Vusi. "Quel bastone era un regalo per mia sorella. I raccoglitori di frutta me l'hanno dato perché hanno rotto l'uovo per la torta. La torta era per il matrimonio di mia sorella. ora non c'è l'uovo, la torta o il regalo. cosa dirà mia sorella?"
+"Che cosa avete fatto?" pianse Vusi. "Quel bastone era un regalo per mia sorella. I raccoglitori di frutta me l'hanno dato perché hanno rotto l'uovo per la torta. La torta era per il matrimonio di mia sorella. Ora non c'è l'uovo, la torta o il regalo. Cosa dirà mia sorella?"
 
 ##
 I costruttori si sentirono in colpa per aver rotto il bastone. "Non possiamo aiutarti con la torta, ma prendi questa paglia per tua sorella" disse uno. E così Vusi continuò il suo viaggio.
