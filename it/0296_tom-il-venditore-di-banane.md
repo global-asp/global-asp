@@ -10,7 +10,7 @@ Tom va al mercato per vendere le banane.
 La gente al mercato compra la frutta.
 
 ##
-Ma nessuno compra le banane di Tom. preferiscono comprare la frutta dalle donne.
+Ma nessuno compra le banane di Tom. Preferiscono comprare la frutta dalle donne.
 
 ##
 "Nella nostra comunità, solo le donne vendono frutta" dice la gente. "Che uomo è questo?" chiede la gente.
