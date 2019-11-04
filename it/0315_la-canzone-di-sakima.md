@@ -1,7 +1,7 @@
 # La canzone di Sakima
 
 ##
-Sakima viveva con i suoi genitori e sua sorella di quattro anni. Vivevano nella terra di un uomo molto ricco. la loro capanna di fieno era alla fine di una fila d'alberi.
+Sakima viveva con i suoi genitori e sua sorella di quattro anni. Vivevano nella terra di un uomo molto ricco. La loro capanna di fieno era alla fine di una fila d'alberi.
 
 ##
 Quando Sakima aveva tre anni, si ammalò e perse la vista. Sakima era un ragazzo pieno di talento.
