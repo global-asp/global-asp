@@ -4,7 +4,7 @@
 Vor langer Zeit lebte auf einer kleinen Farm in der Nähe eines kleinen Dorfes.
 
 ##
-ein kleines Huhn mit Namen Daisy.
+Ein kleines Huhn mit Namen Daisy.
 
 ##
 „Wenn ich groß bin, möchte ich hoch, hoch in den Himmel fliegen“, sagte Daisy.
