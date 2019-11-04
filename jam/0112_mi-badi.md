@@ -7,7 +7,7 @@ Mi kyan ron wid it.
 Mi kyan jomp wid it.
 
 ##
-mi kyan daans wid it.
+Mi kyan daans wid it.
 
 ##
 Mi kyan swim wid it.
