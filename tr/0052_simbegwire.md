@@ -7,13 +7,13 @@ Simbegwire annesi öldüğü zaman çok üzüldü. Simbegwire'ın babası, kız�
 Bir gün, Simbegwire'ın babası normalden geç geldi eve. "Neredesin çocuğum?" diye seslendi. Simbegwire babasına koştu. Babasının bir kadının elini tuttuğunu görünce, olduğu yerde hareketsiz durdu. "Seni özel biriyle tanıştırmak istiyorum, çocuğum. Bu Anita" dedi babası gülümseyerek.
 
 ##
-"Merhaba Simbegwire, baban bana senin hakkında çok şey anlattı," dedi Anita. Ama gülümsemiyor veya Simbegwire'ın elini tutmuyordu. Simbegwire'ın babası mutlu ve heyecanlıydı. Üçünün birlikte yaşayacağını, ve hayatlarının nasıl güzel olacağını anlatıyordu. "Çocuğum, umarım ki Anita'yı annen olarak kabul edersin." dedi babası.
+"Merhaba Simbegwire, baban bana senin hakkında çok şey anlattı," dedi Anita. Ama gülümsemiyor veya Simbegwire'ın elini tutmuyordu. Simbegwire'ın babası mutlu ve heyecanlıydı. Üçünün birlikte yaşayacağını, ve hayatlarının nasıl güzel olacağını anlatıyordu. "Çocuğum, umarım ki Anita'yı annen olarak kabul edersin," dedi babası.
 
 ##
 Simbegwire'ın hayatı değişti Artık sabahları babası ile birlikte oturmak için zamanı yoktu. Anita ona o kadar fazla ev işleri veriyordu ki, akşamları ev ödevlerini yapmak için çok yorgun oluyordu. Yemekten sonra direk yatağına gidiyordu. Onun tek rahatı annesinin ona verdiği renkli battaniyesi idi. Simbegwire'ın babası kızının mutsuz olduğunu fark etmiş görünmüyordu.
 
 ##
-Birkaç ay sonra, Simbegwire'ın babası onlara bir süreliğine evden uzaklaşacağını söyledi. "İşimden dolayı seyahat etmem lazım." dedi babası. "Ama biliyorum ki ikiniz birbirinizle ilgilenirsiniz." Simbegwire'ın yüzü düştü fakat babası fark etmedi. Anita hiç bir şey söylemedi. O da mutlu değildi.
+Birkaç ay sonra, Simbegwire'ın babası onlara bir süreliğine evden uzaklaşacağını söyledi. "İşimden dolayı seyahat etmem lazım," dedi babası. "Ama biliyorum ki ikiniz birbirinizle ilgilenirsiniz." Simbegwire'ın yüzü düştü fakat babası fark etmedi. Anita hiç bir şey söylemedi. O da mutlu değildi.
 
 ##
 Simbegwire için işler daha da kötüye gitti. Ev işlerini bitirmezse, veya şikayet ederse, Anita ona vuruyordu. Ve akşam yemeklerinde, kadın yemeğin çoğunu yerken, Simbegwire'a sadece birkaç lokma bırakıyordu. Her gece, Simbegwire uyumak için annesinin battaniyesine sarılıp kendi kendine ağlıyordu.
