@@ -52,7 +52,7 @@ Sakima var ferdig med å synga songen og snudde seg for å dra. Men den rike man
 I same augneblink kom det to menn berande på ei båre. Dei hadde funne sonen til den rike mannen banka opp og forlaten i vegkanten.
 
 ##
-Den rike mannen var veldig glad for å sjå sonen sin igjen. Han lønte Sakima for at han trøysta han. Han tok sonen sin og Sakima med til sjukehuset slik at Sakima kunne få synet tilbake.
+Den rike mannen var veldig glad for å sjå sonen sin igjen. Han lønte Sakima for at han trøysta han. Han tok sonen sin og Sakima med til sjukehuset, slik at Sakima kunne få synet tilbake.
 
 ##
 * License: [CC-BY]
