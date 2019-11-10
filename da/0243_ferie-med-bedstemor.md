@@ -31,7 +31,7 @@ De klatrede i træer og plaskede i søens vand.
 Da det blev mørkt, gik de hjem til huset for at spise middag. Før de var blevet færdige med at spise, faldt de i søvn.
 
 ##
-Næste dag kørte børnenes far tilbage til byen og efterlod dem hos Nyar-Kanyada
+Næste dag kørte børnenes far tilbage til byen og efterlod dem hos Nyar-Kanyada.
 
 ##
 Odongo og Apiyo hjalp deres bedstemor med husarbejdet. De hentede vand og brænde. De samlede æg fra hønsene og høstede grøntsager i haven.
