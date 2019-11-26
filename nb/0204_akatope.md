@@ -34,7 +34,7 @@ Men det var ikke nødvendig. En stor overraskelse ventet den gamle damen!
 Få dager etter at den foreldreløse jenta hadde blitt ønsket velkommen i den gamle damens hjem, banket det på døra.
 
 ##
-"Hvem kan det være," undret den gamle damen. Da hun åpnet døra var hun fra seg av begeistring.
+"Hvem kan det være", undret den gamle damen. Da hun åpnet døra var hun fra seg av begeistring.
 
 ##
 Akatope hadde kommet hjem. Men hun var trøtt og syk.
