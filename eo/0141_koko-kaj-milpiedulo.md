@@ -1,10 +1,10 @@
 # Koko kaj Milpiedulo
 
 ##
-Koko kaj Milpiedulo estis amikoj. Sed ili ĉiam konkuris unu kontraŭ la alia. Iun tagon ili decidis ludi futbalon por vidi, kiu estis la plej bona ludanto.
+Koko kaj Milpiedulo estis amikoj. Sed ili ĉiam konkuris unu kontraŭ la alia. Iun tagon ili decidis ludi futbalon por vidi, kiu estis la pli bona ludanto.
 
 ##
-Ili iris al la ludkampo kaj ekludis. Koko estis rapida, sed Milpiedulo estis pli rapida. Koko piedbatis malproksime, sed Milpiedulo piedbatis pli malproksime. Koko eksentis sin malkontentan.
+Ili iris al la ludkampo kaj ekludis. Koko estis rapida, sed Milpiedulo estis pli rapida. Koko piedbatis malproksimen, sed Milpiedulo piedbatis pli malproksimen. Koko eksentis sin malkontenta.
 
 ##
 Ili decidis ludi punŝoton. Unue, Milpiedulo estis la golulo. Koko gajnis nur unu golon. Tiam estis la vico de Koko gardi la golejon.
@@ -22,10 +22,10 @@ Koko tiel koleris ke ŝi larĝe malfermis la bekon kaj forglutis la milpiedulon.
 Dum Koko marŝis hejmen, ŝi renkontis Milpiedul-patrinon. Milpiedul-patrino demandis, "Ĉu vi vidis mian infanon?" Koko nenion diris. Milpiedul-patrino maltrankviliĝis.
 
 ##
-Tiam Milpiedul-patrino aŭdis voĉeton. "Helpu min, panjo!" kriis la voĉo. Milpiedul-patrino ĉirkaŭrigardis kaj aŭskultis atente. La voĉo elvenis ene de la koko.
+Tiam Milpiedul-patrino aŭdis voĉeton. "Helpu min, panjo!" kriis la voĉo. Milpiedul-patrino ĉirkaŭrigardis kaj aŭskultis atente. La voĉo venis el ene de la koko.
 
 ##
-Milpiedul-patrino ekkriis, "Uzi vian specialan povon, mia infano!" La milpieduloj povas fari malbonan odoron kaj malbonan guston. Koko eksentis sin malsana.
+Milpiedul-patrino ekkriis, "Uzu vian specialan povon, mia infano!" La milpieduloj povas fari malbonan odoron kaj malbonan guston. Koko eksentis sin malsana.
 
 ##
 Koko ruktis. Tiam ŝi glutis kaj kraĉis. Tiam ŝi ternis kaj tusis. Kaj tusis. La milpiedulo estis naŭzega!

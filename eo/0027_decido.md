@@ -4,7 +4,7 @@
 Mia vilaĝo havis multajn problemojn. Ni viciĝis longe por akiri akvon de unu krano.
 
 ##
-Ni atendis manĝaĵon donacita de aliuloj.
+Ni atendis manĝaĵon donacitan de aliuloj.
 
 ##
 Ni ŝlosis frue la domojn pro ŝtelistoj.

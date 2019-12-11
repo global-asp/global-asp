@@ -13,7 +13,7 @@ Hundo pagis iom pli, ĉar li ne havis la ĝustan monon.
 La ŝoforo estis dononta al Hundo lian monŝanĝon, kiam Kapro forkuris sen pagi ion ajn.
 
 ##
-La ŝoforo tre ĝenis. Li forkuris sen doni al Hundo lian monŝanĝon.
+La ŝoforo tre incitiĝis. Li forkuris sen doni al Hundo lian monŝanĝon.
 
 ##
 Tial, eĉ hodiaŭ, Hundo kuras al aŭto por rigardi enen kaj trovi la ŝoforon, kiu ŝuldas al li lian monŝanĝon.
@@ -22,7 +22,7 @@ Tial, eĉ hodiaŭ, Hundo kuras al aŭto por rigardi enen kaj trovi la ŝoforon, 
 Kapro forkuras de la sono de aŭto. Ŝi timas ke ŝi estos arestita, ĉar ŝi ne pagis sian tarifon.
 
 ##
-Kaj bovo ne ĝenas, kiam aŭto venos. Bovo prenas sian tempon transirante la vojon, ĉar ŝi scias, ke ŝi pagis tutan sian tarifon.
+Kaj bovo ne ĝenas sin, kiam aŭto venos. Bovo prenas sian tempon transirante la vojon, ĉar ŝi scias, ke ŝi pagis tutan sian tarifon.
 
 ##
 * License: [CC-BY]

@@ -31,7 +31,7 @@ Unu el la soldatoj paŝis ĝuste sur li, sed li restis silenta.
 Kiam ĉio sendanĝeris denove, Tingi kaj lia avino elvenis.
 
 ##
-Ili alproksimiĝis hejmon tre silente.
+Ili ŝtelpaŝis hejmen silente.
 
 ##
 * License: [CC-BY]

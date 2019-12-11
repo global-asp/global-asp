@@ -10,10 +10,10 @@ Ili neniam interbatalis. Ili helpis siajn gepatrojn hejme kaj kampe.
 Sed ili ne rajtis proksimiĝi al fajro.
 
 ##
-Ili ĉiam devis nokte fari sian laboron.
+Ili ĉiam devis nokte fari sian laboron. Ĉar ili estis faritaj el vakso.
 
 ##
-Sed unu el la knaboj sopiris ke li povus eliri en la sunlumo.
+Sed unu el la knaboj sopiris eliri en la sunlumon.
 
 ##
 Iun tagon la sopiro estis tro forta. Liaj fratoj avertis lin...
@@ -22,10 +22,10 @@ Iun tagon la sopiro estis tro forta. Liaj fratoj avertis lin...
 Sed jam estis tro malfrue! Li fluidiĝis pro la varmega suno.
 
 ##
-La vaksinfanoj tiel malĝojis vidi sian fraton forfluidiĝi.
+La vaksinfanoj tiel malĝojis vidi sian fraton forfandiĝi.
 
 ##
-Sed ili faris planon. Ili formis la fluidiĝintan vakson kaj kreis birdon.
+Sed ili faris planon. Ili formis la fandiĝintan vakson kaj kreis birdon.
 
 ##
 Ili transportis sian birdo-fraton supren al alta monto.

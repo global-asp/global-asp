@@ -10,7 +10,7 @@ Lia pordaperturo estis tro malalta.
 Lia lito estis tro mallonga.
 
 ##
-Lia biciklo estis tro malalta.
+Lia biciklo estis tro malgranda.
 
 ##
 Tiu ĉi homo estis tro alta!
@@ -31,7 +31,7 @@ Li aĉetis tre altan biciklon.
 Li sidis sur tre alta seĝo. Li manĝis per tre longa forko.
 
 ##
-Li forlasis sian domon kaj translokiĝis al tre granda arbaro. Li loĝis tie dum multaj jaroj.
+Li forlasis sian domon kaj translokiĝis al granda arbaro. Li loĝis tie dum multaj jaroj.
 
 ##
 * License: [CC-BY]
