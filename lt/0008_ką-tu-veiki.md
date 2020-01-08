@@ -10,7 +10,7 @@ Ji mojuoja.
 Aš ploju.
 
 ##
-Ji tiesia rankas į šalis.
+Ji išskėtė rankas.
 
 ##
 Jis šaukia.
