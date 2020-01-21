@@ -34,19 +34,19 @@ Faren min gikk fra hus til hus for å be folk delta på et folkemøte.
 Folk samlet seg under et stort tre og lyttet.
 
 ##
-Faren min reiste seg og sa: "Vi må samarbeide for å løse problemene våre."
+Faren min reiste seg og sa: «Vi må samarbeide for å løse problemene våre.»
 
 ##
-Åtteårige Juma, som satt på stammen til et tre, ropte: "Jeg kan hjelpe til med å samle søppel."
+Åtteårige Juma, som satt på stammen til et tre, ropte: «Jeg kan hjelpe til med å samle søppel.»
 
 ##
-En kvinne sa: "Kvinnene kan bli med meg og dyrke mat."
+En kvinne sa: «Kvinnene kan bli med meg og dyrke mat.»
 
 ##
-En annen mann reiste seg og sa: "Mennene skal grave en brønn."
+En annen mann reiste seg og sa: «Mennene skal grave en brønn.»
 
 ##
-Vi ropte alle sammen med én stemme: "Vi må forandre livene våre." Fra den dagen samarbeidet vi for å løse problemene våre.
+Vi ropte alle sammen med én stemme: «Vi må forandre livene våre.» Fra den dagen samarbeidet vi for å løse problemene våre.
 
 ##
 * License: [CC-BY]

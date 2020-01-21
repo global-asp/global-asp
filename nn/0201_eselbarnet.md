@@ -7,16 +7,16 @@ Det var ei lita jente som først såg den mystiske skikkelsen i det fjerne.
 Etter kvart som skikkelsen kom nærare, såg ho at det var ei høggravid kvinne.
 
 ##
-Sjenert, men modig gjekk den vesle jenta nærare kvinna. "Vi må halda på henne her hos oss", bestemte dei som var med den vesle jenta. "Vi skal verna henne og barnet hennar."
+Sjenert, men modig gjekk den vesle jenta nærare kvinna. «Vi må halda på henne her hos oss», bestemte dei som var med den vesle jenta. «Vi skal verna henne og barnet hennar.»
 
 ##
-Barnet var snart på veg. "Trykk!" "Hent pledd!" "Vatn!" "Tryyyykk!"
+Barnet var snart på veg. «Trykk!» «Hent pledd!» «Vatn!» «Tryyyykk!»
 
 ##
-Men då dei fekk sjå babyen, veik alle tilbake i sjokk. "Eit esel?"
+Men då dei fekk sjå babyen, veik alle tilbake i sjokk. «Eit esel?»
 
 ##
-Alle saman byrja å krangla. "Vi sa vi skulle verna mor og barn, og det skal vi gjera", sa nokon. "Men dei kjem til å bringa ulukke!" sa andre.
+Alle saman byrja å krangla. «Vi sa vi skulle verna mor og barn, og det skal vi gjera», sa nokon. «Men dei kjem til å bringa ulukke!» sa andre.
 
 ##
 Og slik var det at kvinna vart åleine igjen. Ho lurte på kva ho skulle gjera med dette rare barnet. Ho lurte på kva ho skulle gjera med seg sjølv.
@@ -34,7 +34,7 @@ Esel vart fylt av forvirring og sinne. Han kunne ikkje gjera ditt, og han kunne 
 Esel skamma seg. Han byrja å springa vekk så fort han kunne.
 
 ##
-Når han hadde slutta å springa, var det vorte kveld, og Esel hadde gått seg vill. "Hi ha", kviskra han inn i mørket. "Hi ha?" lydde ekkoet. Han var åleine. Han krøkte seg saman til ein liten ball og fall i ein djup og forstyrra søvn.
+Når han hadde slutta å springa, var det vorte kveld, og Esel hadde gått seg vill. «Hi ha», kviskra han inn i mørket. «Hi ha?» lydde ekkoet. Han var åleine. Han krøkte seg saman til ein liten ball og fall i ein djup og forstyrra søvn.
 
 ##
 Esel vakna opp til ein merkeleg gammal mann som stira ned på han. Han såg inn i auga til den gamle mannen og byrja å kjenna ein snev av håp.

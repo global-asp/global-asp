@@ -13,10 +13,10 @@ Folk på markedet kjøper frukt.
 Men ingen kjøper Toms bananer. De foretrekker å kjøpe frukt av kvinner.
 
 ##
-"Her omkring er det bare kvinner som selger frukt", sier folk. "Hva slags mann er dette?" spør folk.
+«Her omkring er det bare kvinner som selger frukt», sier folk. «Hva slags mann er dette?» spør folk.
 
 ##
-Men Tom gir ikke opp. Han roper: "Kjøp mine bananer! Kjøp mine søte, modne bananer!"
+Men Tom gir ikke opp. Han roper: «Kjøp mine bananer! Kjøp mine søte, modne bananer!»
 
 ##
 En kvinne plukker en klase bananer fra kassen. Hun ser nøye på bananene.

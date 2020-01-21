@@ -19,13 +19,13 @@ Høne vart sint fordi ho tapte. Ho var ein veldig dårleg tapar. Tusenbein byrja
 Høne var så sint at ho opna nebbet og slukte Tusenbein.
 
 ##
-Då Høne gjekk heimover, møtte ho Mor Tusenbein. "Har du sett barnet mitt?" spurde Mor Tusenbein. Høne sa ikkje noko. Mor Tusenbein vart uroleg.
+Då Høne gjekk heimover, møtte ho Mor Tusenbein. «Har du sett barnet mitt?» spurde Mor Tusenbein. Høne sa ikkje noko. Mor Tusenbein vart uroleg.
 
 ##
-Så høyrde Mor Tusenbein ei svak stemme: "Mamma, hjelp meg!" Mor Tusenbein såg seg rundt og lytta spent. Lyden kom frå inni høna.
+Så høyrde Mor Tusenbein ei svak stemme: «Mamma, hjelp meg!» Mor Tusenbein såg seg rundt og lytta spent. Lyden kom frå inni høna.
 
 ##
-Mor Tusenbein ropte: "Bruk det trikset du kan, barnet mitt!" Tusenbein kan laga ei dårleg lukt og ein sånn fæl smak. Høne kjende at ho vart dårleg.
+Mor Tusenbein ropte: «Bruk det trikset du kan, barnet mitt!» Tusenbein kan laga ei dårleg lukt og ein sånn fæl smak. Høne kjende at ho vart dårleg.
 
 ##
 Høne kasta opp. Og svelgde og spytta. Så naus og hosta ho. Og kasta opp. Tusenbeinet var ufyseleg.

@@ -4,25 +4,25 @@
 Sjå på dyra.
 
 ##
-Kua seier "mø".
+Kua seier «mø».
 
 ##
-Geita seier "mæ, mæ".
+Geita seier «mæ, mæ».
 
 ##
-Hesten seier "vrinsk".
+Hesten seier «vrinsk».
 
 ##
-Grisen seier "nøff".
+Grisen seier «nøff».
 
 ##
-Høna seier "klukk, klukk".
+Høna seier «klukk, klukk».
 
 ##
-Hunden seier "voff".
+Hunden seier «voff».
 
 ##
-Bonden seier "hysj!"
+Bonden seier «hysj!»
 
 ##
 * License: [CC-BY-NC]

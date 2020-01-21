@@ -28,10 +28,10 @@ Hvor mange katter? Sju katter.
 Hvor mange katter? Åtte katter.
 
 ##
-Hva er det vi ser? En kattunge som sitter fast i et tre. "Jeg skal redde deg!"
+Hva er det vi ser? En kattunge som sitter fast i et tre. «Jeg skal redde deg!»
 
 ##
-"Mamma, kan vi beholde ham?" Bare én til. Hvor mange katter? Ni katter.
+«Mamma, kan vi beholde ham?» Bare én til. Hvor mange katter? Ni katter.
 
 ##
 * License: [CC-BY-NC]

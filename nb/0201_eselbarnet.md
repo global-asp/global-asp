@@ -7,16 +7,16 @@ Det var ei lita jente som først så den mystiske skikkelsen i det fjerne.
 Etter hvert som skikkelsen kom nærmere, så hun at det var en høygravid kvinne.
 
 ##
-Sjenert, men modig gikk den lille jenta nærmere kvinnen. "Vi må beholde henne her hos oss", bestemte de som var med den lille jenta. "Vi skal beskytte henne og barnet hennes."
+Sjenert, men modig gikk den lille jenta nærmere kvinnen. «Vi må beholde henne her hos oss», bestemte de som var med den lille jenta. «Vi skal beskytte henne og barnet hennes.»
 
 ##
-Barnet var snart på vei. "Trykk!" "Hent pledd!" "Vann!" "Tryyyykk!"
+Barnet var snart på vei. «Trykk!» «Hent pledd!» «Vann!» «Tryyyykk!»
 
 ##
-Men da de fikk se babyen, vek alle tilbake i sjokk. "Et esel?"
+Men da de fikk se babyen, vek alle tilbake i sjokk. «Et esel?»
 
 ##
-Alle sammen begynte å krangle. "Vi sa vi skulle beskytte mor og barn, og det skal vi gjøre", sa noen. "Men de kommer til å bringe ulykke!" sa andre.
+Alle sammen begynte å krangle. «Vi sa vi skulle beskytte mor og barn, og det skal vi gjøre», sa noen. «Men de kommer til å bringe ulykke!» sa andre.
 
 ##
 Og slik var det at kvinnen ble alene igjen. Hun lurte på hva hun skulle gjøre med dette rare barnet. Hun lurte på hva hun skulle gjøre med seg selv.
@@ -34,7 +34,7 @@ Esel ble fylt av forvirring og sinne. Han kunne ikke gjøre ditt, og han kunne i
 Esel skammet seg. Han begynte å løpe vekk så fort han kunne.
 
 ##
-Når han hadde sluttet å løpe, var det blitt kveld, og Esel hadde gått seg vill. "Hi ha", hvisket han inn i mørket. "Hi ha?" lød ekkoet. Han var alene. Han krøket seg sammen til en liten ball og falt i en dyp og forstyrret søvn.
+Når han hadde sluttet å løpe, var det blitt kveld, og Esel hadde gått seg vill. «Hi ha», hvisket han inn i mørket. «Hi ha?» lød ekkoet. Han var alene. Han krøket seg sammen til en liten ball og falt i en dyp og forstyrret søvn.
 
 ##
 Esel våknet opp til en merkelig gammel mann som stirret ned på ham. Han så inn i den gamle mannens øyne og begynte å kjenne et snev av håp.

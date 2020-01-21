@@ -4,7 +4,7 @@
 Den vesle busstasjonen i landsbyen min var travel og stappfull av bussar. På bakken var det fleire ting som skulle lastast. Medhjelparane ropte namna på stadane dit bussane gjekk.
 
 ##
-"Byen! Byen! Vestover!" høyrde eg ein medhjelpar ropa. Det var bussen eg måtte ta.
+«Byen! Byen! Vestover!» høyrde eg ein medhjelpar ropa. Det var bussen eg måtte ta.
 
 ##
 Bussen til byen var nesten full, men fleire folk dytta for å koma om bord. Nokre plasserte bagasjen sin i bagasjerommet under bussen. Andre la han på hyllene inne i bussen.

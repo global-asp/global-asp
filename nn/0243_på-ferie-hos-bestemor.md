@@ -13,10 +13,10 @@ Tidleg neste morgon drog dei til landsbyen i bilen til far sin. Dei køyrde forb
 Etter eit bel vart borna trøytte og sovna.
 
 ##
-Faren vekte Odongo og Apiyo i det dei kom til landsbyen. Dei fann Nyar-Kanyada, bestemor si, som kvilte på ei matte under eit tre. På luo tyder Nyar-Kanyada "dottera til Kanyada-folket." Ho var ei sterk og ven kvinne.
+Faren vekte Odongo og Apiyo i det dei kom til landsbyen. Dei fann Nyar-Kanyada, bestemor si, som kvilte på ei matte under eit tre. På luo tyder Nyar-Kanyada «dottera til Kanyada-folket.» Ho var ei sterk og ven kvinne.
 
 ##
-Nya-Kanyada ynskte dei velkomen og dansa rundt i rommet medan ho song av glede. Barneborna hennar var begeistra over å overrekka gåvene dei hadde teke med frå byen. "Opne gåva mi først", sa Odongo. "Nei, gåva mi først!" sa Apiyo.
+Nya-Kanyada ynskte dei velkomen og dansa rundt i rommet medan ho song av glede. Barneborna hennar var begeistra over å overrekka gåvene dei hadde teke med frå byen. «Opne gåva mi først», sa Odongo. «Nei, gåva mi først!» sa Apiyo.
 
 ##
 Etter at ho hadde opna gåvene, velsigna Nyar-Kanyada barneborna sine på tradisjonelt vis.
@@ -52,7 +52,7 @@ Då dagen var omme, drakk dei krydra te saman. Dei hjelpte bestemor med å telja
 Men snart var ferien over og borna måtte dra tilbake til byen. Nyar-Kanyada gav Odongo ei skuggelue og Apiyo ein genser. Ho pakka mat for reisa deira.
 
 ##
-Då far deira kom for å henta dei, ville dei ikkje dra. Borna trygla Nyar-Kanyada om å verta med dei til byen. Ho smilte og sa: "Eg er for gammal for byen. Eg skal venta på at de kjem tilbake til landsbyen min."
+Då far deira kom for å henta dei, ville dei ikkje dra. Borna trygla Nyar-Kanyada om å verta med dei til byen. Ho smilte og sa: «Eg er for gammal for byen. Eg skal venta på at de kjem tilbake til landsbyen min.»
 
 ##
 Odongo og Apiyo klemde henne hardt og tok farvel.

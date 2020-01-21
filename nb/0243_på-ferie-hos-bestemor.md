@@ -13,10 +13,10 @@ Tidlig neste morgen dro de til landsbyen i bilen til faren sin. De kjørte forbi
 Etter en stund ble barna trøtte og sovnet.
 
 ##
-Faren vekket Odongo og Apiyo idet de ankom landsbyen. De fant Nyar-Kanyada, bestemoren sin, som hvilte på en matte under et tre. På luo betyr Nyar-Kanyada "datteren til Kanyada-folket." Hun var en sterk og vakker kvinne.
+Faren vekket Odongo og Apiyo idet de ankom landsbyen. De fant Nyar-Kanyada, bestemoren sin, som hvilte på en matte under et tre. På luo betyr Nyar-Kanyada «datteren til Kanyada-folket.» Hun var en sterk og vakker kvinne.
 
 ##
-Nyar-Kanyada ønsket dem velkommen og danset rundt i rommet mens hun sang av glede. Barnebarna hennes var begeistret over å overrekke gavene de hadde tatt med fra byen. "Åpne min gave først", sa Odongo. "Nei, min gave først!" sa Apiyo.
+Nyar-Kanyada ønsket dem velkommen og danset rundt i rommet mens hun sang av glede. Barnebarna hennes var begeistret over å overrekke gavene de hadde tatt med fra byen. «Åpne min gave først», sa Odongo. «Nei, min gave først!» sa Apiyo.
 
 ##
 Etter at hun hadde åpnet gavene, velsignet Nyar-Kanyada barnebarna sine på tradisjonelt vis.
@@ -52,7 +52,7 @@ Da dagen var omme, drakk de krydret te sammen. De hjalp bestemor med å telle pe
 Men snart var ferien over og barna måtte dra tilbake til byen. Nyar-Kanyada ga Odongo en skyggelue og Apiyo en genser. Hun pakket mat for reisen deres.
 
 ##
-Da faren deres kom for å hente dem, ville de ikke dra. Barna tryglet Nyar-Kanyada om å bli med dem til byen. Hun smilte og sa: "Jeg er for gammel for byen. Jeg skal vente på at dere kommer tilbake til landsbyen min."
+Da faren deres kom for å hente dem, ville de ikke dra. Barna tryglet Nyar-Kanyada om å bli med dem til byen. Hun smilte og sa: «Jeg er for gammel for byen. Jeg skal vente på at dere kommer tilbake til landsbyen min.»
 
 ##
 Odongo og Apiyo klemte henne hardt og tok farvel.

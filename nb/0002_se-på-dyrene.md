@@ -4,25 +4,25 @@
 Se på dyrene.
 
 ##
-Kua sier "mø".
+Kua sier «mø».
 
 ##
-Geita sier "mæ, mæ".
+Geita sier «mæ, mæ».
 
 ##
-Hesten sier "vrinsk".
+Hesten sier «vrinsk».
 
 ##
-Grisen sier "nøff".
+Grisen sier «nøff».
 
 ##
-Høna sier "klukk, klukk".
+Høna sier «klukk, klukk».
 
 ##
-Hunden sier "voff".
+Hunden sier «voff».
 
 ##
-Bonden sier "hysj!"
+Bonden sier «hysj!»
 
 ##
 * License: [CC-BY-NC]
