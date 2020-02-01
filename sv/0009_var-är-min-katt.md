@@ -27,6 +27,6 @@ Här är den!
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Bronwen Heath, Anonymous, Ingrid Schechter
+* Illustration: Bronwen Heath, Ingrid Schechter
 * Translation: Espen Stranger-Johannessen
 * Language: sv
