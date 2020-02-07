@@ -19,13 +19,13 @@ Höna var arg för att hon hade förlorat. Hon var en dålig förlorare. Tusenfo
 Höna var så arg att hon öppnade näbben och svalde Tusenfoting.
 
 ##
-När Höna gick hem mötte hon Tusenfotings mamma. Hon frågade: "Har du sett mitt barn?" Höna sade ingenting. Tusenfotings mamma blev orolig.
+När Höna gick hem mötte hon Tusenfotings mamma. Hon frågade: ”Har du sett mitt barn?” Höna sade ingenting. Tusenfotings mamma blev orolig.
 
 ##
-Då hörde Tusenfotings mamma en svag röst: "Hjälp mig, mamma!" Tusenfotings mamma såg sig omkring och lyssnade noga. Rösten kom från insidan av Höna.
+Då hörde Tusenfotings mamma en svag röst: ”Hjälp mig, mamma!” Tusenfotings mamma såg sig omkring och lyssnade noga. Rösten kom från insidan av Höna.
 
 ##
-Tusenfotings mamma ropade: "Använd tricket du kan, mitt barn!" Tusenfotingar kan ge dålig lukt och dålig smak. Höna började må illa.
+Tusenfotings mamma ropade: ”Använd tricket du kan, mitt barn!” Tusenfotingar kan ge dålig lukt och dålig smak. Höna började må illa.
 
 ##
 Höna rapade. Sedan svalde hon och spottade. Sedan nös hon och hostade. Och hostade. Tusenfoting var äcklig!

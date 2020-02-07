@@ -13,10 +13,10 @@ Tidigt nästa morgon åkte de iväg mot byn i pappas bil. De körde förbi berg,
 Efter ett tag blev barnen trötta och somnade.
 
 ##
-Pappa väckte Odongo och Apiyo när de kom fram till byn. De hittade Nyar-Kanyada, deras farmor, som vilade på en matta under ett träd. Nyar-Kanyada betyder "dotter till Kanyada-folket" på språket luo. Hon var en stark och vacker kvinna.
+Pappa väckte Odongo och Apiyo när de kom fram till byn. De hittade Nyar-Kanyada, deras farmor, som vilade på en matta under ett träd. Nyar-Kanyada betyder ”dotter till Kanyada-folket” på språket luo. Hon var en stark och vacker kvinna.
 
 ##
-Nyar-Kanyada välkomnade dem in i huset och dansade runt i rummet, sjungandes av glädje. Hennes barnbarn var så glada över att kunna ge henne de presenter de hade med sig från staden. "Öppna min present först!" sa Odongo. "Nej, min först!" sa Apiyo.
+Nyar-Kanyada välkomnade dem in i huset och dansade runt i rummet, sjungandes av glädje. Hennes barnbarn var så glada över att kunna ge henne de presenter de hade med sig från staden. ”Öppna min present först!” sa Odongo. ”Nej, min först!” sa Apiyo.
 
 ##
 Efter att hon hade öppnat presenterna välsignade Nyar-Kanyada sina barnbarn på ett traditionellt sätt.
@@ -52,7 +52,7 @@ Mot slutet av dagen drack de chai te tillsammans. De hjälpte farmor att räkna 
 Men alltför snart var lovet slut och barnen var tvungna att åka tillbaka till staden. Nyar-Kanyada gav Odongo en keps och Apiyo en tröja. Hon packade matsäck till dem för resan.
 
 ##
-När deras pappa kom för att hämta barnen ville de inte åka. Barnen bad Nyar-Kanyada att följa med dem hem till staden. Hon log och sade: "Jag är för gammal för staden. Jag väntar här tills ni kommer tillbaka till min by igen."
+När deras pappa kom för att hämta barnen ville de inte åka. Barnen bad Nyar-Kanyada att följa med dem hem till staden. Hon log och sade: ”Jag är för gammal för staden. Jag väntar här tills ni kommer tillbaka till min by igen.”
 
 ##
 Odongo och Apiyo kramade henne hårt och sa adjö.

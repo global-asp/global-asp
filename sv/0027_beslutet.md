@@ -34,19 +34,19 @@ Min pappa gick från hus till hus och bad folk att delta i ett bymöte.
 Människor samlades under ett stort träd och lyssnade.
 
 ##
-Min pappa ställde sig upp och sade: "Vi måste arbeta tillsammans for att kunna lösa våra problem."
+Min pappa ställde sig upp och sade: ”Vi måste arbeta tillsammans for att kunna lösa våra problem.”
 
 ##
-Åttaårige Juma, som satt på en trädgren, ropade: "Jag kan hjälpa till att städa upp."
+Åttaårige Juma, som satt på en trädgren, ropade: ”Jag kan hjälpa till att städa upp.”
 
 ##
-En kvinna sade: "Kvinnorna kan komma med mig och plantera mat."
+En kvinna sade: ”Kvinnorna kan komma med mig och plantera mat.”
 
 ##
-En annan man ställde sig upp och sade: "Männen ska gräva en brunn."
+En annan man ställde sig upp och sade: ”Männen ska gräva en brunn.”
 
 ##
-Vi ropade alla med en röst: "Vi måste ändra våra liv." Från den dagen arbetade vi tillsammans för att lösa våra problem.
+Vi ropade alla med en röst: ”Vi måste ändra våra liv.” Från den dagen arbetade vi tillsammans för att lösa våra problem.
 
 ##
 * License: [CC-BY]

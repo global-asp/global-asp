@@ -7,16 +7,16 @@ Det var en liten flicka som först såg den mystiska gestalten i fjärran.
 När gestalten kom närmare såg hon att det var en höggravid kvinna.
 
 ##
-Blyg men modig gick den lilla flickan närmare kvinnan. "Vi måste låta henne stanna hos oss", bestämde den lilla flickans folk. "Vi kommer att skydda henne och hennes barn."
+Blyg men modig gick den lilla flickan närmare kvinnan. ”Vi måste låta henne stanna hos oss”, bestämde den lilla flickans folk. ”Vi kommer att skydda henne och hennes barn.”
 
 ##
-Barnet föddes inom kort. "Krysta! Hämta filtar! Vatten! Krrryyyyssta!"
+Barnet föddes inom kort. ”Krysta! Hämta filtar! Vatten! Krrryyyyssta!”
 
 ##
-Men när de såg bebisen hoppade de till av överraskning. "En åsna?!"
+Men när de såg bebisen hoppade de till av överraskning. ”En åsna?!”
 
 ##
-Alla började gräla. "Vi sa att vi skulle skydda mor och barn, och det är det vi ska göra", sade en del. "Men de kommer att föra med sig olycka!" sade andra.
+Alla började gräla. ”Vi sa att vi skulle skydda mor och barn, och det är det vi ska göra”, sade en del. ”Men de kommer att föra med sig olycka!” sade andra.
 
 ##
 Och så blev kvinnan ensam igen. Hon undrade vad hon skulle göra med konstiga barnet. Hon undrade vad hon skulle göra med sig själv.
@@ -34,7 +34,7 @@ Förvirring och ilska byggdes upp inuti åsnebarnet. Han kunde inte göra det en
 Åsnebarnet skämdes. Han började springa så långt bort så fort han kunde.
 
 ##
-När han till slut slutade springa, var det natt och åsnan var vilse. "Iiaa, iiaa?" viskade han ut i mörkret. "Iiaa, iiaa?" ekade det tillbaka. Han var ensam. Han rullade ihop sig till en boll och föll i en djup och orolig sömn.
+När han till slut slutade springa, var det natt och åsnan var vilse. ”Iiaa, iiaa?” viskade han ut i mörkret. ”Iiaa, iiaa?” ekade det tillbaka. Han var ensam. Han rullade ihop sig till en boll och föll i en djup och orolig sömn.
 
 ##
 Åsnebarnet vaknade och upptäckte att en underlig gammal man stirrade ner på honom. Han tittade in i den gamle mannens ögon och började att känna en glimt av hopp.

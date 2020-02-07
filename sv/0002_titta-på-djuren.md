@@ -4,25 +4,25 @@
 Titta på djuren.
 
 ##
-Kossan säger: "Muu".
+Kossan säger: ”Muu”.
 
 ##
-Geten säger: "Mää, mää".
+Geten säger: ”Mää, mää”.
 
 ##
-Hästen säger: "Gnääägg".
+Hästen säger: ”Gnääägg”.
 
 ##
-Grisen säger: "Nöff, nöff".
+Grisen säger: ”Nöff, nöff”.
 
 ##
-Hönan säger: "Kluck, kluck".
+Hönan säger: ”Kluck, kluck”.
 
 ##
-Hunden säger: "Vov, vov".
+Hunden säger: ”Vov, vov”.
 
 ##
-Bonden säger: "Shhh!"
+Bonden säger: ”Shhh!”
 
 ##
 * License: [CC-BY-NC]
