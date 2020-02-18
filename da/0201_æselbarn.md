@@ -13,7 +13,7 @@ Genert, men modig bevægede den lille pige sig nærmere kvinden. "Vi må beholde
 Barnet var snart på vej. "Pres!" "Hent tæpper!" "Vand!" "Preeeesss!!!"
 
 ##
-Men da de så babyen, blev alle chokerede. "Et æsel?!"
+Men da de så babyen, sprang alle chokerede tilbage. "Et æsel?!"
 
 ##
 Alle begyndte at diskutere. "Vi sagde, at vi ville holde mor og barn i sikkerhed, og det vil vi gøre," sagde nogle. "Men de vil bringe uheld!" sagde andre.
@@ -28,7 +28,7 @@ Men til sidst måtte hun acceptere, at han var hendes barn, og at hun var hans m
 Hvis barnet var blevet ved med at være lille, havde alt måske været anderledes. Men æselbarnet voksede og voksede, indtil han ikke længere kunne sidde på sin mors ryg. Og lige meget hvor meget han prøvede, kunne han ikke opføre sig som et menneske. Hans mor var ofte træt og frustreret. Nogle gange fik hun ham til at udføre dyrearbejde.
 
 ##
-Forvirring og vrede fyldte Æsel op. Han måtte ikke gøre det ene, og han måtte ikke gøre det andet. Han måtte ikke være på den ene måde, og han måtte ikke være på den anden måde. Han blev så vred, at han en dag sparkede sin mor til jorden.
+Forvirring og vrede voksede i Æsel. Han måtte ikke gøre det ene, og han måtte ikke gøre det andet. Han måtte ikke være på den ene måde, og han måtte ikke være på den anden måde. Han blev så vred, at han en dag sparkede sin mor til jorden.
 
 ##
 Æsel skammede sig. Han løb væk så hurtigt, han kunne.

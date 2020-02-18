@@ -13,7 +13,7 @@ Det er mig, der lukker solen ind.
 Jeg vasker mig selv, jeg behøver ingen hjælp.
 
 ##
-Jeg kan tåle koldt vand og blå, lugtende sæbe.
+Jeg kan klare koldt vand og blå, ildelugtende sæbe.
 
 ##
 Mor minder mig om at børste tænder: "Glem ikke tænderne." Jeg svarer: "Aldrig, ikke mig!"
@@ -34,7 +34,7 @@ Og jeg sørger for, at lillebror får alt nyt fra skolen at vide.
 I timerne gør jeg altid mit bedste.
 
 ##
-Jeg gør alle disse gode ting hver dag. Men det, jeg bedste kan lide, er at lege og lege!
+Jeg gør alle disse gode ting hver dag. Men det, jeg bedst kan lide, er at lege og lege!
 
 ##
 * License: [CC-BY]

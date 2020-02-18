@@ -1,7 +1,7 @@
 # Khalai taler med planter
 
 ##
-Dette er Khalai. Hun er syv år gammel. Hendes navn betyder 'den gode' på hendes sprog, lubukusu.
+Dette er Khalai. Hun er syv år gammel. Hendes navn betyder 'den gode' på hendes sprog lubukusu.
 
 ##
 Khalai står op og taler til appelsintræet. "Kære appelsintræ, voks dig stor og giv os masser af modne appelsiner."

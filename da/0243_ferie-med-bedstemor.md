@@ -16,7 +16,7 @@ Efter et stykke tid blev børnene trætte og faldt i søvn.
 Far vækkede Odongo og Apiyo, da de ankom til landsbyen. De fandt Nyar-Kanyada, deres bedstemor, sovende på et tæppe under et træ. Nyar-Kanyada betyder 'datter af Kanyada-folket' på luo. Hun var en stærk og smuk kvinde.
 
 ##
-Nyar-Kanyada bød dem indenfor i huset og dansede rundt i rummet, mens hun sang af glæde. Hendes børnebørn var spændte på at give hende haverne, de havde taget med fra byen. "Åbn min gave først," sagde Odongo. "Nej, min gave først!" sagde Apiyo.
+Nyar-Kanyada bød dem indenfor i huset og dansede rundt i rummet, mens hun sang af glæde. Hendes børnebørn var spændte på at give hende gaverne, de havde taget med fra byen. "Åbn min gave først," sagde Odongo. "Nej, min gave først!" sagde Apiyo.
 
 ##
 Da hun havde åbnet gaverne, velsignede Nyar-Kanyada sine børnebørn på en traditionel måde.
@@ -52,7 +52,7 @@ Sidst på dagen drak de chai sammen. De hjalp bedstemoderen med at tælle de pen
 Men alt for hurtigt var ferien forbi, og børnene skulle tilbage til byen. Nyar-Kanyada gav Odongo en kasket og Apiyo en trøje. Hun pakkede mad til deres rejse.
 
 ##
-Da deres far kom for at hente dem, havde de ikke lyst til at tage hjem. Børnene tiggede og bad Nyar-Kanyada om at følge med dem til byen. Hun smilede og sagde: "Jeg er for gammel til byen. Jeg venter på, at I kommer til min landsby igen."
+Da deres far kom for at hente dem, havde de ikke lyst til at tage hjem. Børnene tiggede og bad Nyar-Kanyada om at følge med dem til byen. Hun smilede og sagde: "Jeg er for gammel til byen. Jeg venter på, at I kommer tilbage til min landsby."
 
 ##
 Odongo og Apiyo gav hende begge et stort knus og sagde farvel.

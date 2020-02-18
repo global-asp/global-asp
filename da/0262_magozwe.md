@@ -16,10 +16,10 @@ Livet på gaden var svært, og de fleste drenge kæmpede hver dag for at få nog
 En dag da Magozwe rodede i skraldespandene, fandt han en gammel, laset historiebog. Han børstede skidtet af den og puttede den i sin pose. Siden da tog han hver dag bogen frem og kiggede på billederne. Han kunne ikke læse ordene.
 
 ##
-Billederne fortalte historien om en dreng, der voksede op og blev pilot. Magozwe dagdrømte om at blive pilot. Nogle gange forestillede han sig, at han var drengen i historien.
+Billederne fortalte en historie om en dreng, der voksede op og blev pilot. Magozwe dagdrømte om at blive pilot. Nogle gange forestillede han sig, at han var drengen i historien.
 
 ##
-Det var koldt, og Magozwe stod ved vejen og tiggede. En mand kom hen til ham. "Hej, jeg hedder Thomas. Jeg arbejder et sted her i nærheden, hvor du kan få noget at spise," sagde manden. Han pegede på et gult hus med et blåt tag. "Jeg håber, du vil gå derhen og få noget at spise?" spurgte han. Magozwe kiggede på manden og så på huset. "Måske," sagde han og gik væk.
+Det var koldt, og Magozwe stod ved vejen og tiggede. En mand kom hen til ham. "Hej, jeg hedder Thomas. Jeg arbejder på et sted her i nærheden, hvor du kan få noget at spise," sagde manden. Han pegede på et gult hus med et blåt tag. "Jeg håber, du vil gå derhen og få noget at spise?" spurgte han. Magozwe kiggede på manden og så på huset. "Måske," sagde han og gik væk.
 
 ##
 I de følgende måneder vænnede de hjemløse drenge sig til, at Thomas var i nærheden. Han kunne lide at snakke med folk, især med dem, der boede på gaden. Thomas lyttede til historierne om andres liv. Han var alvorlig og tålmodig, aldrig uhøflig eller respektløs. Nogle af drengene begyndte at besøge det gule og blå hus for at få middagsmad.
@@ -46,7 +46,7 @@ Så Magozwe flyttede ind på et værelse i et hus med et grønt tag. Han delte v
 Magozwe begyndte i skole, og det var svært. Han meget at indhente. Nogle gange havde han lyst til at give op. Men han tænkte på piloten og på fodboldspilleren i historiebøgerne. Ligesom dem ville han ikke give op.
 
 ##
-Magozwe sad i haven uden for huset med det grønne tag og læste en af skolens bøger. Thomas kom og satte sig ved siden af ham. "Hvad handler historien om?" spurgte Thomas. "Den handler om en dreng, der bliver lærer," svarede Magozwe. "Hvad hedder drengen?" spurgte Thomas. "Han hedder Magozwe," sagde Magozwe med et smil.
+Magozwe sad i haven uden for huset med det grønne tag og læste i en af skolens bøger. Thomas kom og satte sig ved siden af ham. "Hvad handler historien om?" spurgte Thomas. "Den handler om en dreng, der bliver lærer," svarede Magozwe. "Hvad hedder drengen?" spurgte Thomas. "Han hedder Magozwe," sagde Magozwe med et smil.
 
 ##
 * License: [CC-BY]

@@ -4,7 +4,7 @@
 I en landsby ved foden af Mount Kenya i Østafrika arbejdede en lille pige i marken med sin mor. Hendes navn var Wangari.
 
 ##
-Wangari elskede at være ude. I hendes families køkkenhave vendte hun jorden med sin machete. Hun stak små frø ned i den varme jord.
+Wangari elskede at være udenfor. I hendes families køkkenhave vendte hun jorden med sin machete. Hun stak små frø ned i den varme jord.
 
 ##
 Hendes yndlingstid på dagen var lige efter solnedgang. Når det blev for mørkt til at se planterne, vidste Wangari, at det var på tide at gå hjem. Hun fulgte den smalle sti gennem markerne og krydsede floder, mens hun gik.
@@ -19,10 +19,10 @@ Hun kunne lide at lære! Wangari lærte mere og mere for hver bog, hun læste. H
 På det amerikanske universitet lærte Wangari mange nye ting. Hun studerende planter, og hvordan de vokser. Og hun huskede, hvordan hun selv voksede op: mens hun spillede spil med sine brødre i skyggen af træerne i de smukke kenyanske skove.
 
 ##
-Jo mere hun lærte, desto mere indså hun, at hun elskede folkene i Kenya. Hun ville have, at de skulle være glade og fri. Jo mere hun lærte, desto mere mindedes hun sit afrikanske hjem.
+Jo mere hun lærte, desto mere indså hun, at hun elskede menneskene i Kenya. Hun ville have, at de skulle være glade og fri. Jo mere hun lærte, desto mere mindedes hun sit afrikanske hjem.
 
 ##
-Da hun var færdig med sine studier, rejste hun hjem til Kenya. Men hendes land havde forandret sig. Store farme strakte sig over landet. Kvinder havde intet brænde til at lave bål med. Folkene var fattige, og børnene var sultne.
+Da hun var færdig med sine studier, rejste hun hjem til Kenya. Men hendes land havde forandret sig. Store farme strakte sig over landet. Kvinderne havde intet brænde til at lave bål med. Folkene var fattige, og børnene var sultne.
 
 ##
 Wangari vidste, hvad hun skulle gøre. Hun lærte kvinderne at plante træer af frø. Kvinderne solgte træerne og brugte pengene på deres familier. Kvinderne var meget glade. Wangari havde hjulpet dem, så de følte sig mægtige og stærke.

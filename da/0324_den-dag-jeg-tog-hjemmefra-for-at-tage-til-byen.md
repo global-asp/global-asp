@@ -19,7 +19,7 @@ Jeg klemte mig ind ved siden af et vindue. Personen, der sad ved siden af mig, h
 Jeg så ud af bussen og indså, at jeg skulle forlade min landsby, hvor jeg var vokset op. Jeg skulle til den store by.
 
 ##
-Lastningen var overstået, og alle passagererne havde fundet et sted at sidde. Gadesælgere skubbede sig stadig ind i bussen for at sælge deres varer til passagererne. Alle råbte navnene på det, de ville sælge. Jeg syntes, ordene lød mærkelige.
+Lastningen var overstået, og alle passagererne havde fundet et sted at sidde. Gadesælgere masede sig stadig ind i bussen for at sælge deres varer til passagererne. Alle råbte navnene på det, de ville sælge. Jeg syntes, ordene lød mærkelige.
 
 ##
 Nogle passagerer havde taget drikkevarer med, andre havde taget små snacks med og begyndte at tygge. Dem, der ikke havde nogen penge, som mig, kiggede bare på.

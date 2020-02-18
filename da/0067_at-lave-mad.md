@@ -22,7 +22,7 @@ Jeg hakker spinaten.
 Min mor hakker løgene.
 
 ##
-Løg får mig til at græde, når de er hakkede.
+Løg får mig til at græde, når de bliver hakket.
 
 ##
 * License: [CC-BY-NC]

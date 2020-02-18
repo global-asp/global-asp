@@ -7,7 +7,7 @@ Min landsby havde mange problemer. Vi stillede os i en lang række for at hente 
 Vi ventede på mad, som andre havde givet os.
 
 ##
-Vi låste vores huse tidligt på grund af tyve.
+Vi låste vores døre tidligt på grund af tyve.
 
 ##
 Mange børn droppede ud af skolen.
@@ -19,7 +19,7 @@ Unge piger arbejdede som hushjælp i andre landsbyer.
 Unge drenge drev rundt i landsbyen, mens andre arbejdede på folks gårde.
 
 ##
-Når det blæste, blev papirstykker hængene i træer og på hegn.
+Når det blæste, blev papirstykker hængende i træer og på hegn.
 
 ##
 Folk skar sig på glasskår, som folk havde smidt fra sig.

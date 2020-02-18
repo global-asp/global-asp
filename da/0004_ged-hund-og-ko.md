@@ -16,13 +16,13 @@ Chaufføren skulle lige til at give Hund penge tilbage, da Ged løb væk uden at
 Chaufføren blev meget sur. Han kørte væk uden at give Hund penge tilbage.
 
 ##
-Det er derfor, at Hund selv i dag løber mod biler og kigger ind for at finde den chauffør, der skylder ham penge.
+Det er derfor, at Hund selv i dag løber efter biler og kigger ind i dem for at finde den chauffør, der skylder ham penge.
 
 ##
 Ged løber væk, når hun hører lyden af en bil. Hun er bange for at blive arresteret, fordi hun ikke har betalt sin billet.
 
 ##
-Og Ko er ligeglad, når der kommer en bil. Ko giver sig tid til at gå over vejen, fordi hun ved, at hun har betalt for hele sin billet.
+Og Ko er ligeglad, når der kommer en bil. Ko giver sig god tid, når hun går over vejen, fordi hun ved, at hun har betalt for hele sin billet.
 
 ##
 * License: [CC-BY]
