@@ -1,10 +1,10 @@
 # Dagen då jag lämnade mitt hem för staden
 
 ##
-Den lilla busstationen i min hemby var full av människor och överbelastade bussar. På marken fanns det ännu fler saker som skulle lastas på. Anställda skrek namnen på ställena som bussarna skulle gå till.
+På den lilla busstationen i min hemby var det fullt av människor och överbelastade bussar. På marken fanns det ännu fler saker som skulle lastas på. Anställda skrek namnen på ställena som bussarna skulle gå till.
 
 ##
-”Storstan! Storstan! Vi åker västerut!” hörde jag en anställd ropa. Det var den bussen som jag behövde åka med.
+”Storstan! Storstan! Vi åker västerut!” hörde jag en biljettförsäljare ropa. Det var den bussen som jag behövde åka med.
 
 ##
 Bussen till storstan var nästan full men fler människor trängde sig på. Vissa packade undan sitt bagage under bussen. Andra lade det på hyllorna på insidan.
@@ -34,13 +34,13 @@ Gatuförsäljarna knuffade på varandra för att komma ut från bussen. Vissa ga
 När bussen lämnade busstationen stirrade jag ut genom fönstret. Jag undrade om jag någonsin skulle komma tillbaka till min hemby igen.
 
 ##
-Medan resan fortskred blev det mycket hett på bussen. Jag slöt ögonen och hoppades att kunna sova.
+Medan resan fortskred blev det mycket hett på bussen. Jag slöt ögonen och hoppades kunna sova.
 
 ##
-Men mina tankar gick tillbaka till mitt hem. Skulle min mamma vara säker? Skulle mina kaniner kunna säljas för pengar? Kommer min bror att komma ihåg att vattna mina trädplantor?
+Men mina tankar gick tillbaka till mitt hem. Skulle min mamma vara i säkerhet? Skulle mina kaniner kunna säljas för pengar? Kommer min bror att komma ihåg att vattna mina trädplantor?
 
 ##
-På vägen lärde jag mig namnet på platsen där min farbror bodde i storstan utantill. Jag mumlade det fortfarande när jag somnade.
+På vägen lärde jag mig namnet på den plats i storstaden där min farbror bodde utantill. Jag mumlade det fortfarande när jag somnade.
 
 ##
 Nio timmar senare vaknade jag upp till ett högt bankande och att man ropade ut bussen för passagerare som skulle tillbaka till min hemby. Jag tog min lilla väska och hoppade av bussen.

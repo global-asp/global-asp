@@ -1,4 +1,4 @@
-# Skoluniform
+# Skolkläder
 
 ##
 Den här klänningen är lång.

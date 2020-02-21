@@ -1,7 +1,7 @@
 # Zama är bäst!
 
 ##
-Min lillebror sover väldigt länge. Jag vaknar tidigt för jag är bäst!
+Min lillebror sover mycket länge. Jag vaknar tidigt för jag är bäst!
 
 ##
 Det är jag som släpper in solen.
@@ -13,13 +13,13 @@ Det är jag som släpper in solen.
 Jag tvättar mig själv, jag behöver ingen hjälp.
 
 ##
-Jag klarar mig med kallt vatten och blå, doftande tvål.
+Jag klarar mig med kallt vatten och blå, illaluktande tvål.
 
 ##
 Mamma påminner: ”Glöm inte tänderna!” Jag svarar: ”Aldrig, inte jag!”
 
 ##
-Efter att jag tvättat mig hälsar jag på morfar och moster och önskar dem en god dag.
+Efter tvätten hälsar jag på morfar och moster och önskar dem en god dag.
 
 ##
 Sedan klär jag mig själv. ”Jag är stor nu, mamma”, säger jag.

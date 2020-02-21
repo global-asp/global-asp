@@ -4,9 +4,7 @@
 En dag fick mamma mycket frukt.
 
 ##
-”När kan vi få lite frukt?” frågar vi.
-
-”Vi ska äta frukten ikväll”, säger mamma.
+”När kan vi få lite frukt?” frågar vi. ”Vi ska äta frukten ikväll”, säger mamma.
 
 ##
 Min bror Rahim är girig. Han smakar på alla frukter. Han äter mycket av den.

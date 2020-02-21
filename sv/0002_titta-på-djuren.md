@@ -22,7 +22,7 @@ Hönan säger: ”Kluck, kluck”.
 Hunden säger: ”Vov, vov”.
 
 ##
-Bonden säger: ”Shhh!”
+Bonden säger: ”Schhh!”
 
 ##
 * License: [CC-BY-NC]

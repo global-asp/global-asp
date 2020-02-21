@@ -22,7 +22,7 @@ Jag hackar spenaten.
 Min mamma hackar löken.
 
 ##
-Hackad lök får mig att gråta.
+Lök får mig att gråta när den är hackad.
 
 ##
 * License: [CC-BY-NC]

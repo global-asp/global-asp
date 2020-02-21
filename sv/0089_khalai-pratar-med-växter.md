@@ -13,7 +13,7 @@ Khalai går till skolan. På vägen dit pratar hon med gräset. ”Snälla gräs
 Khalai går förbi vilda blommor. ”Snälla blommor, fortsätt att blomma så att jag kan fästa er i mitt hår.”
 
 ##
-I skolan pratar Khalai med trädet som står mitt på skolgården. ”Snälla träd, låt dina grenar växa sig långa så att vi kan läsa under dem i skuggan”.
+I skolan pratar Khalai med trädet som står mitt på skolgården. ”Snälla träd, låt dina grenar växa sig långa så att vi kan läsa under dem i skuggan.”
 
 ##
 Khalai pratar med häcken runt hennes skola. ”Snälla, väx dig stark och hindra onda människor från att komma in.”

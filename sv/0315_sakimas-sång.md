@@ -7,10 +7,10 @@ Sakima bodde tillsammans med sina föräldrar och sin fyraåriga syster. De bodd
 När Sakima var tre år gammal blev han sjuk och förlorade sin syn. Sakima var en begåvad pojke.
 
 ##
-Sakima gjorde många saker som andra sexåriga pojkar inte gjorde. Till exempel kunde han sitta med äldre bymedlemmar och diskutera viktiga frågor.
+Sakima gjorde många saker som andra sexåriga pojkar inte gjorde. Till exempel kunde han sitta med äldre bybor och diskutera viktiga ämnen.
 
 ##
-Sakimas föräldrar jobbade i den rika mannens hus. De lämnade hemmet tidigt på morgonen och kom hem sent på kvällen. Sakima lämnades med sin lillasyster.
+Sakimas föräldrar jobbade i den rike mannens hus. De lämnade hemmet tidigt på morgonen och kom hem sent på kvällen. Sakima lämnades med sin lillasyster.
 
 ##
 Sakima älskade att sjunga sånger. En dag frågade hans mamma: ”Var har du lärt dig dessa sånger, Sakima?”
@@ -28,31 +28,31 @@ Sakima tyckte om att sjunga för sin lillasyster, speciellt om hon kände sig hu
 En kväll när hans föräldrar återvände hem var de väldigt tysta. Sakima visste att det var någonting som var fel.
 
 ##
-”Vad är det som är fel, mamma, pappa?” frågade Sakima. Sakima fick höra att den rika mannens son var försvunnen. Mannen var mycket ledsen och ensam.
+”Vad är det som är fel, mamma, pappa?” frågade Sakima. Sakima fick höra att den rike mannens son var försvunnen. Mannen var mycket ledsen och ensam.
 
 ##
-”Jag kan sjunga for honom. Han kanske blir glad igen”, sade Sakima till sina föräldrar. Men hans föräldrar avfärdade honom. ”Han är mycket rik. Du är bara en blind pojke. Tror du att din sång kan hjälpa honom?”
+”Jag kan sjunga för honom. Han kanske blir glad igen”, sa Sakima till sina föräldrar. Men hans föräldrar avfärdade honom. ”Han är mycket rik. Du är bara en blind pojke. Tror du att din sång kan hjälpa honom?”
 
 ##
-Men Sakima gav inte upp. Hans lillasyster stöttade honom. Hon sa: ”Sakimas sånger tröstar mig när jag är hungrig. De kommer att trösta den rika mannen också.”
+Men Sakima gav inte upp. Hans lillasyster stöttade honom. Hon sa: ”Sakimas sånger tröstar mig när jag är hungrig. De kommer att trösta den rike mannen också.”
 
 ##
-Påföljande dag bad Sakima sin lillasyster att leda honom till den rika mannens hus.
+Påföljande dag bad Sakima sin lillasyster att leda honom till den rike mannens hus.
 
 ##
-Han stod under ett stort fönster och började sjunga sin favoritsång. Sakta började huvudet på den rika mannen synas genom det stora fönstret.
+Han stod under ett stort fönster och började sjunga sin favoritsång. Sakta började huvudet på den rike mannen synas genom det stora fönstret.
 
 ##
-Arbetarna slutade med det de höll på med. De lyssnade på Sakimas vackra sång. Men en man sa: ”Ingen har lyckats trösta chefen. Tror denna blinda pojke att han kommer att trösta honom?”
+Arbetarna slutade med det de höll på med. De lyssnade på Sakimas vackra sång. Men en man sa: ”Ingen har lyckats trösta chefen. Tror denna blinde pojke att han kommer att trösta honom?”
 
 ##
-Sakima sjöng färdigt sin sång och vände sig om för att gå. Men den rika mannen sprang ut och sade: ”Var snäll och sjung igen!”
+Sakima sjöng färdigt sin sång och vände sig om för att gå. Men den rike mannen sprang ut och sa: ”Snälla, sjung igen!”
 
 ##
-Precis då kom två män bärandes på någon på en bår. De hade hittat den rika mannens son misshandlad och lämnad vid sidan av vägen.
+Precis då kom två män bärandes på någon på en bår. De hade hittat den rike mannens son misshandlad och lämnad vid sidan av vägen.
 
 ##
-Den rika mannen var så glad att se sin son igen. Han belönade Sakima för att ha tröstat honom. Han tog med sin son och Sakima till sjukhuset så att Sakima kunde få tillbaka sin syn.
+Den rike mannen var så glad över att se sin son igen. Han belönade Sakima för att ha tröstat honom. Han tog med sin son och Sakima till sjukhuset så att Sakima kunde få tillbaka sin syn.
 
 ##
 * License: [CC-BY]

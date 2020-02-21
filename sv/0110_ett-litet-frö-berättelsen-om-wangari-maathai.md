@@ -1,4 +1,4 @@
-# Ett litet frö: Berättelsen om Wangari Maathai
+# Ett litet frö: berättelsen om Wangari Maathai
 
 ##
 I en by vid foten av berget Mount Kenya i Östafrika arbetade en liten flicka på fälten med sin mamma. Hennes namn var Wangari.
@@ -7,7 +7,7 @@ I en by vid foten av berget Mount Kenya i Östafrika arbetade en liten flicka p�
 Wangari älskade att vara utomhus. I hennes familjs trädgårdsland vände hon jorden med sin machete. Hon stack ned små frön i den varma jorden.
 
 ##
-Hennes favorittid på dagen var strax efter solnedgången. När det blev för mörkt för att se växterna visste Wangari att det var dags att gå hem. Hon gick längs de smala stigarna vid åkrarna och över floder.
+Hennes favorittid på dagen var strax efter solnedgången. När det blev för mörkt för att se växterna visste Wangari att det var dags att gå hem. Hon följde de smala stigarna genom åkrarna och passerade över floder medan hon gick.
 
 ##
 Wangari var ett intelligent barn som längtade efter att börja skolan. Men hennes mamma och pappa ville att hon skulle stanna hemma och hjälpa dem. När hon var sju år gammal övertalade hennes storebror deras föräldrar att låta henne börja skolan.

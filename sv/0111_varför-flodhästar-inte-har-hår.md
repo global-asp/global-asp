@@ -13,10 +13,10 @@ Flodhäst såg inte att Kanin var där och råkade trampa på Kanins fot. Kanin 
 Flodhäst bad om ursäkt: ”Ursäkta, jag såg dig inte. Snälla, förlåt mig!” Men Kanin ville inte lyssna och skrek åt Flodhäst: ”Du gjorde det med flit! En vacker dag ska du få se! Då ska du få betala för det här!”
 
 ##
-Kanin gick till Eld och sade: ”Gå och bränn Flodhäst när hon kommer ut ur vattnet för att äta gräs. Hon trampade på mig!” Eld svarade: ”Inga problem Kanin, kära vän. Jag gör precis vad du ber om.”
+Kanin gick till Eld och sa: ”Gå och bränn Flodhäst när hon kommer ut ur vattnet för att äta gräs. Hon trampade på mig!” Eld svarade: ”Inga problem Kanin, min vän. Jag ska göra precis vad du ber om.”
 
 ##
-Senare åt Flodhäst gräs långt bort från floden när det plötsligt sade svisch! Eld flammade upp. Flammorna började bränna upp Flodhästs hår.
+Senare åt Flodhäst gräs långt bort från floden när det plötsligt sa svisch! Eld flammade upp. Flammorna började bränna upp Flodhästs hår.
 
 ##
 Flodhäst började gråta. Allt hennes hår hade bränts upp av elden. Flodhäst fortsatte att gråta: ”Mitt hår brändes upp i elden! Allt mitt hår är borta! Mitt vackra hår!”

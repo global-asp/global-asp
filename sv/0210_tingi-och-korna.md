@@ -25,13 +25,13 @@ Då kom soldaterna tillbaka.
 Farmor gömde Tingi under löven.
 
 ##
-En av soldaterna ställde sin fot rakt på honom, men han var tyst.
+En av soldaterna ställde sin fot rakt på honom, men han höll tyst.
 
 ##
 När det kändes tryggt kom Tingi och hans farmor fram igen.
 
 ##
-De smög tyst hem.
+De smög hem mycket tyst.
 
 ##
 * License: [CC-BY]

@@ -10,19 +10,19 @@ Barnen bråkade aldrig med varandra. De hjälpte sina föräldrar hemma och på 
 Men de fick inte gå nära eld.
 
 ##
-De var tvungna att göra alla sina sysslor under natten. Eftersom de var gjorda av vax!
+De var tvungna att göra alla sina sysslor under natten eftersom de var gjorda av vax!
 
 ##
 Men en av pojkarna längtade efter att gå ut i solen.
 
 ##
-En dag var hans längtan för stark. Hans bröder varnade honom…
+En dag blev hans längtan för stark. Hans bröder varnade honom…
 
 ##
 Men det var för sent! Han smälte i den varma solen.
 
 ##
-Vaxbarnen var så ledsna över att se sin bror smälta bort.
+Vaxbarnen blev så ledsna över att se sin bror smälta bort.
 
 ##
 Men de tänkte ut en plan. De formade vaxklumpen till en fågel.

@@ -1,4 +1,4 @@
-# Tom, bananförsäljaren
+# Bananförsäljaren Tom
 
 ##
 Tom bär en bricka med mogna bananer.
