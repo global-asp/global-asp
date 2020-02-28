@@ -8,9 +8,7 @@ All languages are welcome, although translations into African languages should u
 
 ## PDFs
 
-If you just want to browse through our library of translated stories in PDF format, click the link below:
-
-### [__All stories in PDF format, browsable by language__](https://drive.google.com/open?id=0B59ZADK9EsbsUVpXWU0xMnJlNEE)
+All of the audio, images, and PDFs associated with this project can be downloaded from the links found [here](https://storybookscanada.ca/downloads/).
 
 ## Structure
 
