@@ -1,3 +1,3 @@
 Story # | Story title | View | License
 -------- | -----------  |:-------:| -------
-0253 | Buku bergambarku | <a href="https://global-asp.github.io/stories/id/0253_buku-bergambarku_slides.html" target="_blank">Slideshow</a> · [Plain HTML](https://global-asp.github.io/stories/id/0253_buku-bergambarku.html) | [![GitHub release](https://cloud.githubusercontent.com/assets/9295750/9483128/0e089e5e-4b51-11e5-98ca-6da5cef156a7.png "GitHub release")]() · [CC-BY](https://creativecommons.org/licenses/by/3.0/)
+0253 | Buku bergambarku | <a href="https://global-asp.github.io/stories/id/0253_buku-bergambarku_slides.html" target="_blank">Slideshow</a> · [Plain HTML](https://global-asp.github.io/stories/id/0253_buku-bergambarku.html) | [CC-BY](https://creativecommons.org/licenses/by/3.0/)
