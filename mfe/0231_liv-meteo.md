@@ -1,28 +1,28 @@
 # Liv meteo
 
 ##
-Fer so
+Fer so.
 
 ##
-Soley-la dife
+Soley-la dife.
 
 ##
-Ena divan
+Ena divan.
 
 ##
-Ena niaz
+Ena niaz.
 
 ##
-Fer fre
+Fer fre.
 
 ##
-Lapli pe tonbe
+Lapli pe tonbe.
 
 ##
-Ena loraz
+Ena loraz.
 
 ##
-Mo trouv enn larkansiel
+Mo trouv enn larkansiel.
 
 ##
 * License: [CC-BY-NC]

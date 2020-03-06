@@ -1,10 +1,10 @@
 # Mo sat kote?
 
 ##
-Eski li anba lili?
+Mo sat kote?
 
 ##
-Eski li lor bife?
+Eski li anba lili?
 
 ##
 Eski li lor bife?
