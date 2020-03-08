@@ -4,7 +4,7 @@
 Odongo og Apiyo budde i byen med far sin. Dei såg fram til ferien. Ikkje berre fordi skulen var slutt, men fordi dei skulle vitja bestemor si. Ho budde i ein fiskarlandsby nær ein stor innsjø.
 
 ##
-Odongo og Apiyo var begeistra fordi det var på tide å vitja bestemor igjen. Kvelden før pakka dei veskene sine og gjorde seg klare for den lange reisa til landsbyen hennar. Dei fekk ikkje sova og dei snakka heile natta om ferien.
+Odongo og Apiyo var begeistra fordi det var på tide å vitja bestemor igjen. Kvelden før pakka dei veskene sine og gjorde seg klare for den lange reisa til landsbyen hennar. Dei fekk ikkje sova, og dei snakka heile natta om ferien.
 
 ##
 Tidleg neste morgon drog dei til landsbyen i bilen til far sin. Dei køyrde forbi fjell, ville dyr og teplantasjar. Dei talde bilar og song songar.
