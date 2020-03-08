@@ -104,15 +104,11 @@ Notes:
 
 ## Download
 
+**NOTE**: These are now out of date. For more current downloads (PDF and audio in a variety of formats), see [this link](https://storybookscanada.ca/downloads/). A build toolchain for compiling your own binary formats from the raw Markdown files will be added here soon. See also [Nairobi CSS](https://github.com/global-asp/nairobi-css) for a quick way to use the Markdown files in this repository directly in a custom built online site.
+
+***
+
 Pre-compiled binary releases containing Markdown source files along with alternate formats (specifically __PDF__, __ODT__, __epub__, __HTML__, __HTML slideshow__, __jpg__, and __plain text__) are available on the [releases page](https://github.com/global-asp/global-asp/releases).
-
-Alternate download options are available through ![](https://avatars0.githubusercontent.com/u/559357?v=3&s=24) Dropbox and ![](https://cloud.githubusercontent.com/assets/9295750/9473522/1d6fdde4-4b10-11e5-98f5-aa6c6b04a08e.png) Google Drive. The packages available on Dropbox and Google Drive tend to be more up-to-date than the Github releases, so if you want to see the latest stories, you should start there first.
-
-Some helpful links:
-
-* __All stories in PDF format, browseable by language - [Google Drive](https://drive.google.com/open?id=0B59ZADK9EsbsUVpXWU0xMnJlNEE)__
-* All packages (including all formats) in zip form - [Dropbox](https://www.dropbox.com/sh/191lglvm2m0flhu/AAAABbbFfyvCLsJK4plHcocRa?dl=0), [Google Drive](https://drive.google.com/folderview?id=0B59ZADK9Esbsfm9mMmg3dkFWdEl6dDItWGtlOG81Y3A2ci1BYWlrcWxxT3p6N1Bsa1hUd3M&usp=sharing)
-* A growing collection of automatically-generated [bilingual storybooks](https://drive.google.com/open?id=0B59ZADK9EsbsWkJFbFdDVUtVYkU) in many languages, browsable by language-pair
 
 See the download lists (files named `README.md`) in the individual language folders for download links for specific languages.
 
@@ -120,7 +116,7 @@ See the download lists (files named `README.md`) in the individual language fold
 
 All contributions are welcome! (This includes reporting issues.)
 
-If you are interested in translating any of the stories, [__start here!__](https://global-asp.github.io/translator/) This link will take you to the [Global-ASP Translator app](https://global-asp.github.io/translator/), which makes translating stories quick and easy. The app starts with the shortest and simplest stories first, and lets you gradually work up to translating more complicated stories as you progress -- though you can skip forwards or backwards and translate any story you like at any time.
+If you are interested in translating any of the stories, [__start here!__](https://globalstorybooks.net/translator/) This link will take you to the [Global Storybooks Translator app](https://globalstorybooks.net/translator/), which makes translating stories quick and easy. The app starts with the shortest and simplest stories first, and lets you gradually work up to translating more complicated stories as you progress -- though you can skip forwards or backwards and translate any story you like at any time.
 
 You are also more than welcome to submit a pull request directly to this repo with your translation / correction. You should use the .md files in this repo (which are also included in the [binary releases](#download)), and follow the [existing format](#source-format). This is the only format accepted for pull requests to this Github repository.
 
@@ -135,7 +131,6 @@ If you're already comfortable with Github and version control, here are some oth
 - Create a new adaptation/remix of a story in the project (these can be linked to in the wiki)
 
 You can also send .md or plain text files to globalafricanstorybook@gmail.com with your translation or correction and they will be included in the project with attribution.
-
 
 ## License
 
