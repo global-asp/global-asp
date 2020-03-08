@@ -16,7 +16,7 @@ Sakimas foreldre jobbet i huset til den rike mannen. De dro tidlig om morgenen o
 Sakima elsket å synge sanger. En dag spurte moren hans ham: «Hvor har du lært disse sangene, Sakima?»
 
 ##
-Sakima svarte: «De kommer bare, mamma. Jeg hører dem i hodet mitt og så synger jeg.»
+Sakima svarte: «De kommer bare, mamma. Jeg hører dem i hodet mitt, og så synger jeg.»
 
 ##
 Sakima likte å synge for lillesøstera si, særlig hvis hun var sulten. Søstera hans pleide å høre på at han sang yndlingssangen sin. Hun beveget seg til den lindrende låten.
