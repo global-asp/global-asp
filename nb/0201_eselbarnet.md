@@ -7,7 +7,7 @@ Det var ei lita jente som først så den mystiske skikkelsen i det fjerne.
 Etter hvert som skikkelsen kom nærmere, så hun at det var en høygravid kvinne.
 
 ##
-Sjenert, men modig gikk den lille jenta nærmere kvinnen. «Vi må beholde henne her hos oss», bestemte de som var med den lille jenta. «Vi skal beskytte henne og barnet hennes.»
+Sjenert, men modig, gikk den lille jenta nærmere kvinnen. «Vi må beholde henne her hos oss», bestemte de som var med den lille jenta. «Vi skal beskytte henne og barnet hennes.»
 
 ##
 Barnet var snart på vei. «Trykk!» «Hent pledd!» «Vann!» «Tryyyykk!»
@@ -22,10 +22,10 @@ Alle sammen begynte å krangle. «Vi sa vi skulle beskytte mor og barn, og det s
 Og slik var det at kvinnen ble alene igjen. Hun lurte på hva hun skulle gjøre med dette rare barnet. Hun lurte på hva hun skulle gjøre med seg selv.
 
 ##
-Men til slutt godtok hun at han var hennes barn og at hun var moren hans.
+Men til slutt godtok hun at han var hennes barn, og at hun var moren hans.
 
 ##
-Hvis bare barnet hadde beholdt den lille størrelsen, hadde alt kanskje vært annerledes. Men eselbarnet vokste og vokste helt til han ikke lenger fikk plass på morens rygg. Og uansett hvor hardt han forsøkte, klarte han ikke å oppføre seg som et menneske. Moren hans var ofte sliten og frustrert. Noen ganger satte hun ham til å gjøre arbeid som var ment for dyr.
+Hvis bare barnet hadde beholdt den lille størrelsen, hadde alt kanskje vært annerledes. Men eselbarnet vokste og vokste, helt til han ikke lenger fikk plass på morens rygg. Og uansett hvor hardt han forsøkte, klarte han ikke å oppføre seg som et menneske. Moren hans var ofte sliten og frustrert. Noen ganger satte hun ham til å gjøre arbeid som var ment for dyr.
 
 ##
 Esel ble fylt av forvirring og sinne. Han kunne ikke gjøre ditt, og han kunne ikke gjøre datt. Han kunne ikke være på én måte, og han kunne ikke være på en annen måte. Han ble så sint at han en dag sparket ned huset til moren sin.
@@ -40,7 +40,7 @@ Når han hadde sluttet å løpe, var det blitt kveld, og Esel hadde gått seg vi
 Esel våknet opp til en merkelig gammel mann som stirret ned på ham. Han så inn i den gamle mannens øyne og begynte å kjenne et snev av håp.
 
 ##
-Esel dro for å bo med den gamle mannen, som lærte ham mange forskjellige måter å overleve på. Esel lyttet og lærte, og det gjorde den gamle mannen også. De hjalp hverandre og de lo sammen.
+Esel dro for å bo med den gamle mannen, som lærte ham mange forskjellige måter å overleve på. Esel lyttet og lærte, og det gjorde den gamle mannen også. De hjalp hverandre, og de lo sammen.
 
 ##
 En morgen ba den gamle mannen Esel om å bære ham opp til toppen av et fjell.
