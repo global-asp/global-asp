@@ -16,7 +16,7 @@ Sakima sine foreldre jobba i huset til den rike mannen. Dei drog tidleg om morgo
 Sakima elska å synga songar. Ein dag spurde mor hans han: «Kor har du lært desse songane, Sakima?»
 
 ##
-Sakima svara: «Dei kjem berre, mamma. Eg høyrer dei i hovudet mitt og så syng eg.»
+Sakima svara: «Dei kjem berre, mamma. Eg høyrer dei i hovudet mitt, og så syng eg.»
 
 ##
 Sakima likte å synga for veslesyster si, særleg viss ho var svolten. Syster hans brukte å høyra på at han song yndlingssongen sin. Ho rørde seg til den lindrande låten.
