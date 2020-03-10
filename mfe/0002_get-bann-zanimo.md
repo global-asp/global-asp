@@ -1,32 +1,32 @@
-# Get bann zamino
+# Get bann zanimo
 
 ##
-Get bann zamino.
+Get bann zanimo.
 
 ##
-Vas dir, “Mon!”
+Vas dir, « Mon. »
 
 ##
-Kabri dir, “Min, min!”
+Kabri dir, « Min, min. »
 
 ##
-Seval dir, “Iiiiiiii.”
+Seval dir, « Iiiiiiii. »
 
 ##
-Koson dir, “Grwin, griwn.”
+Koson dir, « Grwin, grwin. »
 
 ##
-Poul dir, “Kot, kot.”
+Poul dir, « Kot, kot. »
 
 ##
-Lisien zape, “Waf, waf.”
+Lisien zape, « Waf, waf »
 
 ##
-Elver dir, “Shuttttt.”
+Fermie dir, « Shuttttt! »
 
 ##
 * License: [CC-BY-NC]
 * Text: Jenny Katz
 * Illustration: Sandy Campbell
-* Translation: Shameem Oozeerally & MIE French Students
+* Translation: Shameem Oozeerally and B.Ed French students
 * Language: mfe
