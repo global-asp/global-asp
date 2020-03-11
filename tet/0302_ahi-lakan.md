@@ -4,25 +4,25 @@
 Haree, ahi lakan!
 
 ##
-Ahi han ai-laran
+Ahi han ai-laran.
 
 ##
-Ahi uza hodi tein
+Ahi bele uza hodi tein.
 
 ##
-Ahi fo manas
+Ahi bele fó manas.
 
 ##
-Ahi fo naroman
+Ahi bele fó naroman.
 
 ##
-Haree, Ahi lakan
+Haree, Ahi lakan.
 
 ##
-Ahi furak liu
+Ahi furak liu.
 
 ##
-No nia iha kbi'it
+No ahi iha forsa maka'as.
 
 ##
 * License: [CC-BY]

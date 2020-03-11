@@ -1,32 +1,32 @@
-# livru ba klima
+# Livru ba klima
 
 ##
-Tempu bai-loron
+Tempu bai-loron.
 
 ##
-Loron manas
+Loron manas.
 
 ##
-Anin huu
+Anin huu.
 
 ##
-Ida ne'eba kalohan
+Abu-abu taka rai.
 
 ##
-Malirin
+Malirin.
 
 ##
-Udan-tau
+Udan tau-hela.
 
 ##
-Rai-lakan
+Rai-tarutu.
 
 ##
-Ha'u haree arkuiris ida
+Ha'u haree arkuiris ida.
 
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall, Ingrid Schechter
-* Translation: Vitalina
+* Translation: Vitalina dos Santos
 * Language: tet
