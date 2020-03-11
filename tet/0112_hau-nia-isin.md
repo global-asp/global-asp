@@ -1,28 +1,28 @@
 # Ha'u nia isin
 
 ##
-Ha'u bele halai
+Ha'u bele halai ho ha'u nia isin.
 
 ##
-Ha'u bele haksoit
+Ha'u bele haksoit ho ha'u nia isn.
 
 ##
-Ha'u bele dansa
+Ha'u bele dansa ho ha'u nia isin.
 
 ##
-Ha'u bele nani
+Ha'u bele nani ho ha'u nia isin.
 
 ##
-Ha'u bele haksoit
+Ha'u bele haksoit ho ha'u nia isin.
 
 ##
-Ha'u bele tebe
+Ha'u bele tebe bola ho ha'u nia ain.
 
 ##
-Ha'u bele halai
+Ha'u bele halai ho ha'u nia ain.
 
 ##
-Maibé ha'u sei nunka bele semo
+Maibé ha'u sei nunka bele semo.
 
 ##
 * License: [CC-BY-NC]

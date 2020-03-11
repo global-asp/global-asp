@@ -4,22 +4,22 @@
 Ha'u kanta hela.
 
 ##
-Nia (feto) doko liman hela.
+Nia doko hela liman.
 
 ##
-Nia (mane) basa liman hela.
+Nia basa hela liman.
 
 ##
-Nia (feto) lolo hela liman.
+Nia lolo hela liman.
 
 ##
-Nia (mane) bolu hela.
+Nia bolu hela.
 
 ##
-Nia (mane) hatan hela.
+Ha'u hatán hela.
 
 ##
-Nia (feto) rona hela.
+Nia rona hela.
 
 ##
 Imi halo hela saida?
