@@ -1,4 +1,4 @@
-# Tom vendedor hudi.
+# Tom vendedor hudi
 
 ##
 Tom tutur hudi tasak sira iha travesa ida.
@@ -10,7 +10,7 @@ Tom ba merkadu atu faan hudi.
 Ema sira iha merkadu sosa dadaun ai-fuan sira.
 
 ##
-Maibe laiha sira ida mak sosa Tom ninia hudi.Sira prefere atu sosa ai-fuan husi feto sira seluk.
+Maibe laiha sira ida mak sosa Tom ninia hudi. Sira prefere atu sosa ai-fuan husi feto sira seluk.
 
 ##
 "Iha ami nia komunidade, so feto sira de'it mak fa'an ai-fuan," ema dehan. "Mane saida mak ne'e?" ema husu.
@@ -25,7 +25,7 @@ Feto ida hi'it sa'e hudi sira nee husi travesa. Nia haree didiak hudi sira nee.
 Feto nee sosa hudi sira nee.
 
 ##
-Ema barak liu-tan mai Tom nia fa'an fatin.Sira sosa Tom ninia hudi sira no han hudi sira nee.
+Ema barak liu-tan mai Tom nia fa'an fatin. Sira sosa Tom ninia hudi sira no han hudi sira nee.
 
 ##
 Lakleur, travesa nee mamuk. Tom sura osan neebe nia hetan.

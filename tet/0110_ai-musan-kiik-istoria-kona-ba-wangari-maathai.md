@@ -22,7 +22,7 @@ ha universidade Americana Wangari aprende buat foun barak. Nia estuda kona-ba ai
 Buat barak liu-tan mak nia aprende, nia realiza liu-tan katak nia hadomi ema Kenya. Nia hakarak sira atu kontente no livre. Buat barak liu-tan mak nia aprende, nia hanoin hetan liu-tan ninia rai Afrikana.
 
 ##
-Bainhira nia remata tiha ninia estudu, nia fila ba Kenya. Maibe ninia nasaun iha mudansa tiha ona. Toos luan no naruk. Feto sira laiha ai hodi tein.Ema sira kiak no labarik sira hamlaha.
+Bainhira nia remata tiha ninia estudu, nia fila ba Kenya. Maibe ninia nasaun iha mudansa tiha ona. Toos luan no naruk. Feto sira laiha ai hodi tein. Ema sira kiak no labarik sira hamlaha.
 
 ##
 Wangari hatene atu halo saida. Nia hanorin feto sira atu kuda ai husi ai-musan sira. Feto sira faan ai-hun sira nee no uza osan hodi tau matan ba sira nia familia. Feto sira kontente tebes. Wangari ajuda tiha ona sira atu sente iha poder no forte.

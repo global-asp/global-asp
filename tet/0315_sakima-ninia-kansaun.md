@@ -10,13 +10,13 @@ Bainhira Sakima iha tinan 3, nia moras no lakon tiha ninia vizaun. Sakima labari
 Sakima halo buat barak neebe labarik mane idade neen seluk lahalo. Hanesan, nia bele tuur ho adultu seluk iha suku laran no diskute kona-ba asuntu importante sira.
 
 ##
-Sakima ninia inan-aman serbisu iha ema riku ne'e ninia uma. Sira sai husi uma sedu no fila tarde iha kalan.Sakima hela deit iha uma ho ninia alin feto kiik.
+Sakima ninia inan-aman serbisu iha ema riku ne'e ninia uma. Sira sai husi uma sedu no fila tarde iha kalan. Sakima hela deit iha uma ho ninia alin feto kiik.
 
 ##
 Sakima gosta kanta muzika sira. Loron ida ninia inan husu nia, "O aprende kansaun sira nee husi neebe, Sakima?"
 
 ##
-Sakima hatan" Sira mosu de"it mai, mama. Hau rona sira iha hau nia ulun no depois hau kanta."
+Sakima hatan "Sira mosu de it mai, mama. Hau rona sira iha hau nia ulun no depois hau kanta."
 
 ##
 Sakima gosta kanta ba ninia alin feto kiik, espesialmente se nia sente hamlaha. Ninia alin feto sei rona nia kanta nia kansaun favoritu. Nia sei dansa tuir muzika nia ritmu relaxante nee.
@@ -31,7 +31,7 @@ Kalan ida bainhira ninia inan-aman fila uma, sira hotu nonok deit. Sakima hatene
 "Saida mak lalos, ama, apa?" Sakima husu. Sakima aprende katak ema riku nee nia oan mane lakon. Rai nain mane nee triste tebes no sente mesak deit.
 
 ##
-"Hau bele kanta ba nia. Nia bele sente kontente fila-fali," Sakima hateten ba ninia inan-aman. Maibe ninia inan-aman la-rona nia."Nia ema riku tebes ida.O labarik matan delek ida.O hanoin o nia kansaun bele ajuda nia?"
+"Hau bele kanta ba nia. Nia bele sente kontente fila-fali," Sakima hateten ba ninia inan-aman. Maibe ninia inan-aman la-rona nia. "Nia ema riku tebes ida. O labarik matan delek ida. O hanoin o nia kansaun bele ajuda nia?"
 
 ##
 Maske nunee, Sakima la lakon esperansa. Ninia alin feto suporta nia. Nia dehan, "Sakima ninia kansaun halo hau sente kalma bainhira hau hamlaha. Kansaun sira nee sei halo ema riku nee mos sente kalma."

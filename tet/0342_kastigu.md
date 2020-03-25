@@ -4,13 +4,13 @@
 Loron ida, mama iha ai-fuan barak.
 
 ##
-"Wainhira mak ita hetan ai-fuan balun?" Ami husu. " Ita sei han ai-fuan iha kalan ne'e," mama dehan.
+"Wainhira mak ita hetan ai-fuan balun?" Ami husu. "Ita sei han ai-fuan iha kalan ne'e," mama dehan.
 
 ##
 Ha'u nia maun Rahim ansi. Nia koko hotu ai-fuan ida-idak. Nia han ai-fuan barak.
 
 ##
-"Haree saida mak Rahim halo ona! Ha"u nia alin ki'ik hakilar. Rahin ne'e nakar no egoista," ha'u dehan.
+"Haree saida mak Rahim halo ona!" Hau nia alin ki'ik hakilar. "Rahin ne'e nakar no egoista," ha'u dehan.
 
 ##
 Mama hirus Rahim.

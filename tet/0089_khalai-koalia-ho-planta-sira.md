@@ -1,4 +1,4 @@
-# Khalai koalia ho planta sira.
+# Khalai koalia ho planta sira
 
 ##
 Nee mak Khalai. Nia tinan hitu. Ninia naran signifika 'buat diak ida' iha ninia lian, Lubukusu.
@@ -13,10 +13,10 @@ Khalai la'o ba eskola. Iha dalan nia koalia ho duut. "Duut favor, sai matak liu-
 Khalai lao liu ai-funan fui "Favor ai-funan, funan nafatin atu nunee hau bele tau o iha hau nia fuuk."
 
 ##
-Iha eskola, Khalai koalia ba ai-hun iha resintu nia klaran."Favor ai-hun, fo sai sanak boot sira atu nunee ami bele lee iha o nia mahon.
+Iha eskola, Khalai koalia ba ai-hun iha resintu nia klaran. "Favor ai-hun, fo sai sanak boot sira atu nunee ami bele lee iha o nia mahon.
 
 ##
-Khalai koalia ba ai-badak sira haleu ninia eskola."Favor sai forte no hapara ema aat sira tama mai."
+Khalai koalia ba ai-badak sira haleu ninia eskola. "Favor sai forte no hapara ema aat sira tama mai."
 
 ##
 Bainhira Khalai fila ba uma husi eskola, nia vizita sabraka oan. "O nia sabraka fuan sira tasak ona?" Khalai husu.

@@ -43,7 +43,7 @@ Juma ho idade ualu, tu'ur hela iha ai-tronku ida nia leten hakilar, "Hau bele aj
 Feto ida dehan, "Feto sira bele akompana hau atu kuda ai-han."
 
 ##
-Mane seluk hamriik no dehan, " Mane sira sei ke'e posu ida."
+Mane seluk hamriik no dehan, "Mane sira sei ke'e posu ida."
 
 ##
 Ami hotu hakilar ho lian ida, "Ita tenke muda ita nia moris." Husi loron nee kedas ami serbisu hamutuk atu rezolve problema sira.

@@ -10,7 +10,7 @@ Sira ba iha kampu tebe bola nian no komesa sira nia jogu. Manu inan lalais liu. 
 Sira deside atu joga penaltu. Uluk nanain Milipede mak sai baliza. Manu inan hatama golu ida deit. Depois Manu inan nia tempu atu defende golu.
 
 ##
-Milipede tebe bola no hatama golu.Milipede kedok no lori bola ba oin no hatama golu. Milipede ba kabesa bola no hatama golu. Milipede hatama golu lima.
+Milipede tebe bola no hatama golu. Milipede kedok no lori bola ba oin no hatama golu. Milipede ba kabesa bola no hatama golu. Milipede hatama golu lima.
 
 ##
 Manu inan nervozu tamba nia lakon. Nia lakon aat. Milipede komesa hamnasa tanba nia kolega hirus no lamenta.
@@ -25,7 +25,7 @@ Bainhira manu inan lao fila uma, nia hasoru milipede nia inan. Milipede nia inan
 Depois milipede nia inan rona lian kiik ida. "Ajuda hau ama!" lian nee husu ho dezesperadu. Milipede nia inan hateke ba mai no rona didiak. Lian nee mai husi manu inan nia laran.
 
 ##
-Milipede ninia inan hakilar, "Uza o nia forsa espesial hau nia oan!"Milipede bele halo iis dois no a gostu horrivel ida. Manu inan komesa sente moras.
+Milipede ninia inan hakilar, "Uza o nia forsa espesial hau nia oan!" Milipede bele halo iis dois no a gostu horrivel ida. Manu inan komesa sente moras.
 
 ##
 Manu inan arota. Hafoin nia tafui sai. Depois nia fani no me'ar. No mear. Milipede nee horrivel!
