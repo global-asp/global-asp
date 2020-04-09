@@ -16,7 +16,7 @@ Mientras tanto, el hijo pequeño de Anansi lo miraba desde abajo y le dijo, "¿N
 En un instante logró llegar a la copa del árbol. Pero entonces se detuvo a pensar: "Se supone que yo soy quien tiene toda la sabiduría, ¡pero mi hijo fue más listo que yo!" Anansi se enojó tanto que lanzó la vasija desde lo alto del árbol.
 
 ##
-Quedó hecha pedazos en el suelo. La sabiduría quedó libre y disponible para todos. Y así fue cómo gente supo cultivar, tejer, hacer herramientas de hierro, y muchas otras cosas más.
+Quedó hecha pedazos en el suelo. La sabiduría quedó libre y disponible para todos. Y así fue cómo la gente supo cultivar, tejer, hacer herramientas de hierro, y muchas otras cosas más.
 
 ##
 * License: [CC-BY]
