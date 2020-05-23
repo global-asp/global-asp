@@ -1,64 +1,64 @@
 # Kuda Oan
 
 ##
-Labarik feto kiik ida mak fofoun haree forma misteriozu ida husi dook.
+Labarik feto ki'ik ida mak fofoun haree forma misteriozu ida husi dook.
 
 ##
-Bainhira forma nee mai besik, nia haree mak feto ida neebe kabuk todan hela.
+bainhira forma ne'e mai besik, nia haree mak feto ida ne'ebé kabuk todan hela.
 
 ##
-Moe maibe barani, labarik feto kiik nee muda besik ba feto nee. "Ami tenke rai nia ho ami," labarik feto kiik nee ninia ema sira deside. "Ami sei rai nia no ninia oan sei seguru."
+Moe maibé barani, labarik feto ki'ik ne'e muda besik ba feto ne'e. "Ami tenke rai nia ho ami," labarik feto ki'ik ne'e ninia ema sira deside. "Ami sei rai nia no ninia oan sei seguru."
 
 ##
-Labarik nee lakleur sai duni. "Dudu!" "Foti lensol!" "Bee!" "Dudu!"
+Labarik ne'e lakleur sai duni. "Dudu!" "Foti lensol!" "Bee!" "Dudu!"
 
 ##
-Maibe bainhira sira haree bebe nee, ema hotu haksoit ho hakfodak. "Kuda oan ida?"
+maibé bainhira sira haree bebe ne'e, ema hotu haksoit ho hakfodak. "Kuda oan ida?"
 
 ##
-Ema hotu komesa iha argumentu. "Ita dehan ita sei rai nia inan no oan seguru, no ida nee mak ita sei halo," balun dehan. "Maibe sira sei lori sorte aat ba ita!" seluk dehan.
+Ema hotu komesa iha argumentu. "Ita dehan ita sei rai nia inan no oan seguru, no ida ne'e mak ita sei halo," balun dehan. "maibé sira sei lori sorte aat ba ita!" seluk dehan.
 
 ##
-Entaun feto nee mesak fila fali tan dala ida. Nia hanoin saida mak nia sei halo ho oan estranu ida nee. Nia hanoin saida mak nia sei halo ho nia aan.
+Entaun feto ne'e mesak fila fali tan dala ida. Nia hanoin saida mak nia sei halo ho oan estranu ida ne'e. Nia hanoin saida mak nia sei halo ho nia aan.
 
 ##
-Maibe too ikus nia aseita katak nee ninia oan no nia mak inan.
+maibéé to’o ikus nia aseita katak ne'e ninia oan no nia mak inan.
 
 ##
-Agora, se karik oan nee iha medida kiik nafatin, buat hotu sei diferente. Maibe kuda oan nee boot no boot liu-tan too ninia inan labele hulan nia iha kotuk. No maske nia koko makaas, nia labele hahalok hanesan ema umanu ida. Nia inan sempre kolen no frustradu. Dalaruma nia haruka ninia oan halo serbisu animal nian.
+Agora, se karik oan ne'e iha medida ki'ik nafatin, buat hotu sei diferente. maibé kuda oan ne'e boot no boot liu-tan too ninia inan labele hulan nia iha kotuk. No maske nia koko maka’as, nia labele hahalok hanesan ema umanu ida. Nia inan sempre kolen no frustradu. Dalaruma nia haruka ninia oan halo servisu animál nian.
 
 ##
-Konfuzaun no hirus sae makaas iha kuda oan nee nia laran. Nia labele halo buat nee no buat neeba. Nia labele hanesan nee no labele hanesan neeba. Nia sai hirus tebes, loron ida, nia tebe ninia inan ba rai.
+Konfuzaun no hirus sa’e maka’as iha kuda oan ne'e nia laran. Nia labele halo buat ne'e no buat ne'ebá. Nia labele hanesan ne'e no labele hanesan ne'ebá. Nia sai hirus tebes, loron ida, nia tebe ninia inan ba rai.
 
 ##
-Kuda oan nakonu ho moe. Nia komesa halai dook makas tuir nia bele.
+Kuda oan nakonu ho moe. Nia komesa halai dook maka’as tuir nia bele.
 
 ##
-Too momentu nia para halai, kalan too ona no Kuda oan nee lakon. "Hee haw?" Nia bisu bisu ba nakukun. "Hee haw?" lian nee fila fali deit. Nia mesak deit. Falun ninia aan hanesan bola ida, nia toba dukur los ho mehi neebe aat.
+To’o momentu nia para halai, kalan to’o ona no Kuda oan ne'e lakon. "Hee haw?" Nia bisu bisu ba nakukun. "Hee haw?" lian ne'e fila fali de'it. Nia mesak de'it. Falun ninia aan hanesan bola ida, nia toba dukur loos ho mehi ne'ebé aat.
 
 ##
-Kuda oan hadeer hodi hetan mane katuas estranu ida hateke hela ba nia. Nia hateke ba mane katuas nee ninia matan no komesa sente esperansa oituan.
+Kuda oan hadeer hodi hetan mane katuas estranu ida hateke hela ba nia. Nia hateke ba mane katuas ne'e ninia matan no komesa sente esperansa oituan.
 
 ##
-Kuda oan ba hela ho mane katuas nee neebe hanorin nia dalan oioin atu moris. Kuda oan no mane katuas nee rona no aprende. Sira ajuda malu, sira hamnasa hamutuk.
+Kuda oan ba hela ho mane katuas ne'e ne'ebé hanorin nia dalan oioin atu moris. Kuda oan no mane katuas ne'e rona no aprende. Sira ajuda malu, sira hamnasa hamutuk.
 
 ##
-Dadeer ida, mane katuas nee husu ba kuda oan atu lori nia ba foho nia tutun.
+Dadeer ida, mane katuas ne'e husu ba kuda oan atu lori nia ba foho nia tutun.
 
 ##
 Iha foho tutun entre kalohan sira, sira nain rua toba. Kuda oan mehi katak ninia inan moras no bolu ba nia. No bainhira nia hadeer mai...
 
 ##
-Kalohan sira nee lakon tiha ona hamutuk ho ninia belun, mane katuas nee.
+Kalohan sira ne'e lakon tiha ona hamutuk ho ninia belun, mane katuas ne'e.
 
 ##
 Kuda oan ikus mai hatene saida mak nia sei halo.
 
 ##
-Kuda oan hetan ninia inan, mesak, triste ba nia oan neebe lakon. Sira haree ba malu ba tempu naruk. No depois sira hakuak malu makaas.
+Kuda oan hetan ninia inan, mesak, triste ba nia oan ne'ebé lakon. Sira haree ba malu ba tempu naruk. No depois sira hakuak malu maka’as.
 
 ##
-Kuda oan no ninia inan moris hamutuk ona no buka dalan atu hela besik malu. Neneik, familia sira seluk mos komesa hela haleu sira.
+Kuda oan no ninia inan moris hamutuk ona no buka dalan atu hela besik malu. Neneik, família sira seluk mós komesa hela haleu sira.
 
 ##
 * License: [CC-BY]

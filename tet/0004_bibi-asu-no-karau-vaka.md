@@ -1,28 +1,28 @@
-# Bibi, Asu, no Karau
+# Bibi, Asu, no Karau-Vaka
 
 ##
-Bibi, Asu, no Karau belun neebe diak. Loron ida sira ba viajen ho taxi.
+Bibi, Asu, no Karau-Vaka belun ne'ebé di’ak. Loron ida sira halo viajen ho taxi.
 
 ##
-Bainhira sira to'o iha fatin destinu, kondutor husu sira atu selu osan ba kustu viajen. Karau selu ninia kustu viajen.
+bainhira sira to'o iha fatin destinu, kondutór husu sira atu selu osan ba kustu viajen. Karau-Vaka selu ninia kustu viajen.
 
 ##
-Asu selu liu oituan, tanba nia la iha osan korretu.
+Asu selu liu oituan, tanba nia la iha osan rahun.
 
 ##
-Kondutor ne'e atu fo Asu ninia osan restu bainhira bibi halai tiha sein selu buat ida.
+Kondutór ne'e atu fó Asu ninia osan restu maibé Bibi halai tiha la selu buat ida.
 
 ##
-Kondutor nee iritadu tebes. Nia halai dook sein fo fila Asu ninia osan restu.
+Kondutór ne’e nervozu tebes. Nia halai dook hodi la fó fila Asu nia osan restu.
 
 ##
-Tanba ne'e, maske to'o ohin loron, Asu sempre halai ba besik kareta atu hateke tama ba kareta laran no buka tuir kondutor ne'ebe seidauk fo fila ninia osan.
+Tanba ne'e, maske to'o ohin loron, Asu sempre halai bá besik kareta atu hateke tama ba kareta laran no buka tuir kondutór ne'ebé seidauk fó fila ninia osan.
 
 ##
-Bibi halai dook husi kareta nia lian. Nia tauk karik nia sei hetan ka'er tanba nia la selu viajen nia kustu.
+Bibi halai dook husi kareta nia lian. Nia tauk karik ema sei kaer nia tanba nia la selu kustu viajen.
 
 ##
-No karau la preukupa bainhira kareta ida mai besik. Karau foti tempu la'o neneik korta estrada tanba nia hatene nia seluk kompleta ninia kustu viajen.
+No karau-Vaka la preukupa bainhira kareta ida mai besik. Karau fóti tempu la'o neneik korta estrada tanba nia hatene katak nia seluk kompleta ninia kustu viajen.
 
 ##
 * License: [CC-BY]

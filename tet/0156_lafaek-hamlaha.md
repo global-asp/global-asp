@@ -1,10 +1,10 @@
 # Lafaek hamlaha
 
 ##
-Tempu uluk, iha Lafaek ida-ne’ebé hamlaha loos.
+Tempu uluk, iha Lafaek ida-ne'ebé hamlaha loos.
 
 ##
-Nia buka hahán neneik no nonok. No depois ...
+Nia buka hahán neneik no nonok. No depois...
 
 ##
 POW!!! Lafaek ataka!

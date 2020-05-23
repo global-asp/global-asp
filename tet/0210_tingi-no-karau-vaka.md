@@ -1,34 +1,34 @@
 # Tingi no Karau Vaka
 
 ##
-Tingi hela ho ninia avo feto.
+Tingi hela ho ninia avó- feto.
 
 ##
-Nia sempre tau matan ba karau vaka sira ho ninia avo.
+Nia sempre tau matan ba karau vaka sira ho ninia avó.
 
 ##
 Loron ida soldadu sira mai.
 
 ##
-Sira foti hotu kedas karau vaka sira nee.
+Sira foti hotu kedas karau vaka sira ne'e.
 
 ##
-Tingi no ninia avo feto halai sees no subar.
+Tingi no ninia avó-feto halai sees no subar.
 
 ##
-Sira subar iha ai-laran too kalan boot.
+Sira subar iha ai-laran to’o kalan boot.
 
 ##
 No depois soldadu sira fila mai.
 
 ##
-Avo feto subar Tingi iha ai-tahan sira nia okos.
+Avó-feto subar Tingi iha ai-tahan sira nia okos.
 
 ##
-Soldadu ida sama kedas ba nia leten, maibe nia nonok nafatin.
+Soldadu ida sama kedas ba nia leten, maibé nia nonok nafatin.
 
 ##
-Bainhira seguru ona, Tingi no ninia avo feto sai ba liur.
+bainhira seguru ona, Tingi no ninia avó-feto sai ba liur.
 
 ##
 Sira nonok la'o neneik fila uma.

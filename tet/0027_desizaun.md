@@ -1,52 +1,52 @@
 # Desizaun
 
 ##
-Hau nia suku iha problema barak. Ami halo lina naruk atu kuru bee husi torneira ida.
+Ha’u nia suku iha problema barak. Ami fórma liña naruk atu kuru bee husi torneira ida.
 
 ##
-Ami hein hahan doasaun husi ema seluk.
+Ami hein hahán doasaun husi ema seluk.
 
 ##
-Ami xave ami nia uma sira sedu tamba iha na'okten.
+Ami xave ami nia uma sira sedu tamba iha na'ok-teen.
 
 ##
 Labarik sira barak mak sai husi eskola.
 
 ##
-Labarik feto klosan sira serbisu nudar ajudante iha suku seluk.
+Labarik feto kloosan sira servisu nu'udar ajudante iha suku seluk.
 
 ##
-Labarik joven mane sira la'o ba mai bainhira sira seluk serbisu iha ema seluk nia to'os.
+Labarik joven mane sira la'o bá-mai bainhira sira seluk servisu iha ema seluk nia to'os.
 
 ##
-Bainhira anin huu, surat-tahan sira tara-aan iha ai-hun no parede.
+Bainhira anin huu, surat-tahan sira belit iha ai-hun no lutu sira.
 
 ##
-Ema sira nia isin kanek tanba hetan ko'a husi vidru sira ne'ebe soe arbiru de'it.
+Ema sira nia isin kanek tanba hetan ko'a husi vidru sira ne'ebé soe arbiru de'it.
 
 ##
 Depois iha loron ida, torneira maran no ami nia bee fatin sira sai mamuk.
 
 ##
-Hau nia aman la'o husi uma ida ba uma seluk husu ema sira atu tuir enkontru iha suku.
+Ha’u nia papa la'o husi uma ida ba uma seluk husu ema sira atu tuir enkontru iha suku.
 
 ##
 Ema sira halibur hamutuk iha ai-hun bo'ot ida nia okos no rona.
 
 ##
-Hau nia aman hamriik no dehan, "Ami presija atu serbisu hamutuk hodi rezolve ami nia problema."
+Ha’u nia papa hamriik no dehan, "Ami presija atu servisu hamutuk hodi rezolve ami nia problema."
 
 ##
-Juma ho idade ualu, tu'ur hela iha ai-tronku ida nia leten hakilar, "Hau bele ajuda hamoos."
+Juma ho idade ualu, tu'ur hela iha ai-tronku ida nia leten hakilar, "Ha’u bele ajuda hamoos."
 
 ##
-Feto ida dehan, "Feto sira bele akompana hau atu kuda ai-han."
+Feto ida dehan, "Feto sira bele akompaña ha'u atu kuda ai-han."
 
 ##
 Mane seluk hamriik no dehan, "Mane sira sei ke'e posu ida."
 
 ##
-Ami hotu hakilar ho lian ida, "Ita tenke muda ita nia moris." Husi loron nee kedas ami serbisu hamutuk atu rezolve problema sira.
+Ami hotu hakilar ho lian ida, "Ita tenke muda ita nia moris." Husi loron ne'e kedas ami servisu hamutuk atu rezolve problema sira.
 
 ##
 * License: [CC-BY]

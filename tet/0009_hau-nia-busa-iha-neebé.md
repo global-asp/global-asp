@@ -1,7 +1,7 @@
-# Hau nia busa iha ne'ebe?
+# Ha’u nia busa iha ne'ebé?
 
 ##
-Hau nia busa iha ne'ebe?
+Ha’u nia busa iha ne'ebé?
 
 ##
 Nia iha kama okos ka?
@@ -10,10 +10,10 @@ Nia iha kama okos ka?
 Nia iha armariu leten ka?
 
 ##
-Nia iha sofa kotuk ka?
+Nia iha sofá kotuk ka?
 
 ##
-Nia besik ba lixu fatin ka?
+Nia iha lixu fatin nia sorin ka?
 
 ##
 Nia iha raga laran ka?

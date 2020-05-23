@@ -1,34 +1,34 @@
-# Avo feto ninia hudi
+# Avó-feto ninia hudi
 
 ##
-Avo feto ninia jardin furak, nakonu ho sorgu, milhu no aifarina. Maibe ida neebe furak liu mak hudi sira. Maske avo feto iha bei-oan barak, hau hatene katak hau mak ninia favoritu. Nia konvida hau beibeik ba ninia uma. Nia mos konta mai hau segredu kiik sira. Maibe iha segredu kiik ida mak nia la fahe ho hau: iha fatin neebe nia hatasak hudi sira.
+Avó-feto ninia jardin furak, nakonu ho sorgu, milhu no aifarina. maibé ida ne'ebé furak liu mak hudi sira. Maske Avó-feto iha bei-oan barak, ha'u hatene katak ha'u mak ninia favoritu. Nia konvida ha'u beibeik ba ninia uma. Nia mós konta mai ha'u segredu ki'ik sira. maibé iha segredu ki'ik ida mak nia la fahe ho ha'u: iha fatin ne'ebé nia hatasak hudi sira.
 
 ##
-Loron ida hau haree raga nakonu ho duut sira rai hela iha avo feto nia uma liur iha loron matan nia okos. Bainhira hau husu kona-ba raga nee, resposta unika neebe hau simu mak, "Nee hau nia raga majiku." Besik ba raga nee, iha hudi tahan barak neebe avo feto fila ba mai dalabarak. Hau kuriozu. "Ai tahan sira nee atu halo saida, avo-feto?" hau husu. Resposta unika neebe hau simu mak, "Sira hau nia ai-tahan majiku sira."
+Loron ida ha'u haree raga nakonu ho du’ut sira rai hela iha avó-feto nia uma liur iha loron matan nia okos. Bainhira ha'u husu kona-ba raga ne'e, resposta unika ne'ebé ha'u simu mak, "Ne’e ha'u nia raga majiku." Besik ba raga ne'e, iha hudi tahan barak ne'ebé avó-feto fila ba mai dalabarak. Hau kuriozu. "Ai tahan sira ne'e atu halo saida, avó-feto?" ha'u husu. Resposta unika ne'ebé ha'u simu mak, "Sira ha'u nia ai-tahan majiku sira."
 
 ##
-Interesante tebes haree avo-feto hudi sira, hudi tahan sira no raga neebe nakonu ho duut. Maibe avo-feto haruka hau ba ajuda tiha hau nia ama. "Avo-feto favor ida husik hau haree oinsa ita prepara..." "Labele nakar, labarik, halo tuir saida mak dehan ba o atu halo," nia insiste. Hau foti halai.
+Interesante tebes haree avó-feto, hudi sira, hudi tahan sira no raga du’ut ne'ebé bo’ot. Maibé avó-feto haruka ha'u ba ajuda tiha ha'u nia ama. "Avó-feto favor ida husik ha'u haree oinsá ita prepara..." "Labele nakar, labarik, halo tuir saida mak dehan ba o atu halo," nia ejiji. Hau foti halai.
 
 ##
-Bainhira hau fila, avo-feto tuur hela iha liur maibe la ho raga ka hudi sira. "Avo feto raga nee iha neebe ona, hudi sira iha neebe ona no iha neebe..." Maibe resposta unika neebe hau hetan mak, "Sira iha hau nia fatin majiku." Sente triste tebes!
+Bainhira ha'u fila, avó-feto tuur hela iha liur maibé la ho raga ka hudi sira. "Avó-feto raga ne'e iha ne'ebé ona, hudi sira iha ne'ebé ona no iha ne'ebé..." maibé resposta unika ne'ebé ha'u hetan mak, "Sira iha ha'u nia fatin majiku." Sente triste tebes!
 
 ##
-Loron rua tuir mai, avo-feto haruka hau atu ba foti ninia ai-tonka husi ninia kuartu. Iha momentu hau loke odamatan, hudi tasak ninia morin simu kedas hau. Iha kuartu ida iha klaran, iha avo-feto ninia raga duut majiku. Lensol tuan ida mak taka subar tiha nia. Hau foti sae tiha nia no horon morin neebe gostu.
+Loron rua tuir mai, avó-feto haruka ha'u atu ba foti ninia ai-tonka husi ninia kuartu. Iha momentu ha'u loke odamatan, hudi tasak ninia morin simu kedas ha'u. Iha kuartu ida iha klaran, iha avó-feto ninia raga majiku halo husi du’ut. Lensol tuan ida mak taka subar tiha nia. Hau foti sai tiha nia no horon morin ne'ebé gostu.
 
 ##
-Avo-feto ninia lian halo hau hakfodak bainhira nia bolu hau, "O halo hela saida? Lalais no foti ai-tonka nee mai hau." Hau sai kedas ho ninia ai-tonka nee. "O hamnasa ba saida?" Avo feto husu. Ninia pergunta halo hau realiza katak hau sei hamnasa tan hau diskobre ona ninia fatin majiku.
+Avó-feto ninia lian halo ha'u hakfodak bainhira nia bolu ha'u, "O halo hela saida? Lalais no foti ai-tonka ne'e mai ha'u." Hau sai kedas ho ninia ai-tonka ne'e. "O hamnasa ba saida?" Avó-feto husu. Ninia pergunta halo ha'u realiza katak ha'u sei hamnasa tan ha'u diskobre ona ninia fatin majiku.
 
 ##
-Loron tuir mai bainhira avo-feto mai vizita, hau ba lalais ninia uma atu cek hudi sira dala ida tan. Ida hudi sasuit tasak ida iha neba. Hau foti ida no subar tiha iha hau nia vestidu laran. Depois de taka tiha raga nee, hau ba uma kotuk no han lalais tiha hudi nee. Hudi nee mak hudi ida midar tebes neebe hau han.
+Loron tuir mai bainhira avó-feto mai vizita, ha'u ba lalais ninia uma atu halo revista ba hudi sira dala ida tan. Iha hudi sasuit tasak ida iha ne’eba. Hau foti ida no subar tiha iha ha'u nia vestidu laran. Depois de taka tiha raga ne'e, ha'u ba uma kotuk no han lalais tiha hudi ne'e. Hudi ne'e mak hudi ida midar tebes ne'ebé ha'u han.
 
 ##
-Loron tuir mai, bainhira avo-feto iha jardin kuu hela modo-tahan sira, hau hateke tama no hare ba hudi sira. Kuaze hudi sira hotu tasak ona. Hau labele tahan aan no foti hudi fuan haat. Bainhira hau la'o neneik ba odamatan, hau rona avo-feto me'ar iha liur. Hau maneija atu subar hudi sira iha hau nia vestidu laran no lao liu nia oin.
+Loron tuir mai, bainhira avó-feto iha jardin ku’u hela modo-tahan sira, ha'u hateke tama no hare ba hudi sira. Kuaze hudi sira hotu tasak ona. Ha’u labele tahan aan no foti hudi fuan haat. bainhira ha'u la'o neneik ba odamatan, ha'u rona avó-feto me'ar iha liur. Ha’u maneja atu subar hudi sira iha ha'u nia vestidu laran no la’o liu nia oin.
 
 ##
-Loron tuir mai mak loron bazar. Avo-feto hadeer sedu. Nia sempre foti hudi tasak no ai-farina ba faan iha merkadu. Hau la ba lalais atu vizita nia loron nee. Maibe hau labele sees husi nia ba tempu naruk.
+Loron tuir mai mak loron bazar. Avó-feto hadeer sedu. Nia sempre foti hudi tasak no ai-farina ba fa’an iha merkadu. Ha’u la ba lalais atu vizita nia iha loron ne'e. Maibé ha'u labele sees husi nia ba tempu naruk.
 
 ##
-Depos iha kalan nee hau hetan bolu husi hau nia mama no apa no avo-feto. Hau hatene tanbasa. Iha kalan nee bainhira hau toba, hau hatene katak hau sei labele tan kedas atu na'ok, la'os husi avo-feto, husi hau nia inan-aman, no la naok husi ema seluk.
+Depois iha kalan ne'e, ha'u hetan bolu husi ha'u nia mama no apa no avó-feto. Hau hatene tanbasa. Iha kalan ne'e bainhira ha'u toba, ha'u hatene katak ha'u sei labele tan kedas atu na'ok, la'ós husi avó-feto, husi ha'u nia inan-papa, no la na’ok husi ema seluk.
 
 ##
 * License: [CC-BY]

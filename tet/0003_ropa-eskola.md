@@ -1,10 +1,10 @@
-# Farda Eskola
+# Ropa Eskola
 
 ##
 Vestidu ida ne'e naruk.
 
 ##
-Kamiza ida ne'e boot.
+Kamizola ida ne'e boot.
 
 ##
 Pasta ida ne'e boot.
@@ -16,13 +16,13 @@ Sintu ida ne'e...
 Xapeu ida ne'e ki'ik.
 
 ##
-Meias sira badak.
+Meias sira ne’e badak.
 
 ##
 Maibé sapatu sira ne'e foun.
 
 ##
-...sira natoon ho di'ak.
+...sira hatais ho di'ak.
 
 ##
 * License: [CC-BY-NC]

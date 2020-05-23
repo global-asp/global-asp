@@ -1,22 +1,22 @@
 # Anansi no Matenek
 
 ##
-Tinan barak liu ba ema la hatene buat ida. Sira la hatene oinsa atu halo to'os sira, ka soru kabas, ka halo sasan besi kroat sira. Nyame nudar maromak ida iha aas nian mak iha matenek tomak mundu nian. Nia rai didiak matenek sira nee iha sanan rai ida nia laran.
+Tinan barak liu ba ema la hatene buat ida. Sira la hatene oinsá atu kuda ai-horis sira, ka soru kabas, ka oinsá atu halo sasán besi kroat sira. Maromak Nyame iha kalohan leten ás mak iha matenek tomak husi mundu. Nia rai didi’ak matenek sira ne'e iha sanan-rai ida nia laran.
 
 ##
-Loron ida, Nyame deside katak atu fo sanan rai matenek nee ba Anansi. Bainhira Anansi hateke tama ba sanan rai ida nee nia laran, nia aprende buat foun ida. Furak tebes!
+Loron ida, Nyame deside katak atu fó sanan-rai matenek ne’e ba Anansi. bainhira Anansi hateke tama ba sanan-rai ida ne'e nia laran, nia aprende buat fóun ida. Furak tebes!
 
 ##
-Anansi neebe hakfodak nain hanoin, "Hau sei rai sanan rai nee ho seguru iha ai-hun aas ida nia leten. Atu nia sai hau nian tomak!" Nia hakdulas kabaas naruk ida, dada haleu sanan rai nee, no nia kesi ba ninia kabun. Nia komesa atu sae ai-hun nee. Maibe difisil atu sae ai-hun nee tanba sanan rai nee soke bebeik nia kelen.
+Anansi ne'ebé kaan-teen hanoin ona, "Hau sei rai sanan-rai ne’e ho seguru iha ai-hun ás ida nia leten. Atu nune’e nia sai ha'u mesak nian!" Nia nakdulas ho kabas lahan naruk ida, dada haleu sanan-rai ne’e, no nia kesi ba ninia kanotak. Nia komesa atu sa’e ai-hun ne'e. maibé difisil atu sa’e ai-hun ne’e tanba sanan-rai ne'e soke bebeik nia ain-tuur.
 
 ##
-Tempu barak nia laran ona Anansi ninia oan hein nia iha ai nee nia hun hodi haree nia. Nia dehan, "La sai fasil liu ka bainhira o kesi sanan rai nee ba o nia kotuk?" Anansi koko kesi sanan rai nakonu ho matenek sira ba ninia kotuk, no sai fasil liu atu sae ai-hun.
+Tempu barak nia laran ona Anansi nia oan iha ai leten hodi hein nia. Nia dehan, "sei fasil ba o atu sa’e se karik o kesi sanan-rai ne'e ba o nia kotuk?" Anansi koko kesi sanan-rai nakonu ho matenek sira ba ninia kotuk, no fasil liu ba nia sa’e ai-hun.
 
 ##
-Lakleur nia too duni ai-tutun. Maibe depois nia para no hanoin, "Hau mesak mak atu iha deit matenek sira nee hotu, no iha nee hau nia oan mane sai matenek liu fali hau!" Anansi hirus tebes kona-ba nee no nia soe tun sanan rai husi ai-tutun ba kraik.
+Lakleur nia to’o duni ba ai-tutun. Maibé depois nia para no hanoin, "Ha’u mesak mak atu iha de'it matenek sira ne'e hotu, no iha ne'e ha'u nia oan mane sai matenek liu fali ha'u!" Anansi hirus tebes kona-ba ne'e no nia soe tun sanan-rai husi ai-tutun ba kraik.
 
 ##
-Sanan rai nee fahe no rahun wainhira kona-rai. Matenek sira nee livre ba ema hotu atu fahe. Ho nune'e mak ema aprende atu halo to'os sira, ka soru kabas, ka halo sasan besi kroat sira, no buat sira seluk hotu neebe ema hatene atu halo.
+Sanan-rai ne'e rahun bainhira kona-rai. Matenek sira ne'e livre no nakfahe ba ema hotu. Ho nune'e mak ema aprende atu halo to'os sira, ka soru kabas, ka halo sasán besi kroat sira, no buat sira seluk hotu ne'ebé ema hatene atu halo.
 
 ##
 * License: [CC-BY]

@@ -4,37 +4,37 @@
 Loron ida, mama iha ai-fuan barak.
 
 ##
-"Wainhira mak ita hetan ai-fuan balun?" Ami husu. "Ita sei han ai-fuan iha kalan ne'e," mama dehan.
+"Bainhira mak ita han ai-fuan balun?" Ami husu. "Ita sei han ai-fuan iha kalan ne'e," mama dehan.
 
 ##
-Ha'u nia maun Rahim ansi. Nia koko hotu ai-fuan ida-idak. Nia han ai-fuan barak.
+Ha'u nia maun Rahim kaan-teen. Nia koko hotu ai-fuan ida-idak. Nia han ai-fuan barak.
 
 ##
-"Haree saida mak Rahim halo ona!" Hau nia alin ki'ik hakilar. "Rahin ne'e nakar no egoista," ha'u dehan.
+"Haree saída mak Rahim halo ona!" Ha’u nia alin ki'ik hakilar. "Rahim ne'e nakar no egoista," ha'u dehan.
 
 ##
 Mama hirus Rahim.
 
 ##
-Ami moos hirus Rahim. Maibé Rahim la husu deskulpa.
+Ami mós hirus Rahim. Maibé Rahim la sente nia sala.
 
 ##
-"Mama sei la fó kastigu ba Rahim?" Alin ki'ik husu.
+"Mama sei la fó kastigu ba Rahim ka?" Alin ki'ik husu.
 
 ##
-"Rahim, agora kedas husu deskulpa," mama fó hanoin.
+"Rahim, lakleur o sei sente sala," mama fó hanoin.
 
 ##
-Rahin hahú sente atu moras.
+Rahim hahú sente moras.
 
 ##
 "Ha'u nia kabun moras liu," Rahim bisu-bisu.
 
 ##
-Mama hatene ida ne'e sie akontese. Ai-fuan mak kastigu hela Rahim!
+Mama hatene ida ne'e sei akontese. Ai-fuan mak kastigu hela Rahim!
 
 ##
-Hafoin, Rahim husu deskulpa mai ami. "Ha'u sei la kanten tan," nia promete. No ami hotu fiar nia.
+Hafoin, Rahim husu deskulpa mai ami. "Ha'u sei la kaan-teen tan," nia promete. No ami hotu fiar nia.
 
 ##
 * License: [CC-BY]

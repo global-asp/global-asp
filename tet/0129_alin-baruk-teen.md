@@ -1,25 +1,25 @@
-# Alin barukten
+# Alin baruk-teen
 
 ##
-Hau hadeer no tau ahi.
+Ha’u hadeer no tau ahi.
 
 ##
-Hau nono bee balun.
+Ha’u nono bee balun.
 
 ##
-Hau tesi ai-sunu.
+Ha’u tesi ai-sunu.
 
 ##
-Hau kedok sana.
+Ha’u kedok sana.
 
 ##
-Hau dasa rai.
+Ha’u dasa rai.
 
 ##
-Hau fase bikan sira.
+Ha’u fase bikan sira.
 
 ##
-Tansa hau serbisu makaas loos..... bainhira hau nia alin okupadu ho halimar?
+Tansá ha'u servisu maka’as loos..... bainhira ha'u nia alin okupadu ho halimar?
 
 ##
 * License: [CC-BY-NC]

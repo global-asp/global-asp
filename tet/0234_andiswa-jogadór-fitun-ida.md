@@ -1,28 +1,28 @@
-# Andiswa Jogador Fitun ida
+# Andiswa Jogadór Fitun ida
 
 ##
-Andiswa haree labarik mane sira halimar tebe-bola. Nia espera katak nia bele joga hamutuk mos ho sira. Nia husu ba treinador karik nia bele treinu ho sira.
+Andiswa haree labarik mane sira halimar tebe-bola. Nia espera katak nia bele joga hamutuk mós ho sira. Nia husu ba treinadór karik nia bele treinu ho sira.
 
 ##
-Treinador tau liman ba ninia kanotak. "Iha ninia eskola, so labarik mane sira deit mak hetan permisaun atu joga bola," nia dehan.
+Treinadór tau liman ba ninia kanotak. "Iha ninia eskola, so labarik mane sira de'it mak hetan permisaun atu joga bola," nia dehan.
 
 ##
 Labarik mane sira dehan ba nia atu ba joga netball. Sira dehan netball mak ba feto no tebe-bola ba labarik mane sira. Andiswa sente satiadu.
 
 ##
-Loron tuir mai, eskola iha jogu tebe bola boot ida. Treinador preokupa tamba ninia jogador diak tebes moras no labele joga.
+Loron tuir mai, eskola iha jogu tebe bola boot ida. Treinadór preokupa tanba ninia jogadór di’ak tebes moras no labele joga.
 
 ##
-Andiswa halai ba treinador no harohan ba nia atu husik nia joga. Treinador lahatene saida mak nia atu halo. Depois nia deside katak Andiswa bele tama ho ekipa.
+Andiswa halai ba treinadór no harohan ba nia atu husik nia joga. Treinadór lahatene saida mak nia atu halo. Depois nia deside katak Andiswa bele tama ho ekipa.
 
 ##
-Jogu nee difisil. Laiha ema ida mak hatama golu iha meia-ora.
+Jogu ne'e difisil. Laiha ema ida mak hatama golu iha meia-ora.
 
 ##
-Durante parte segundu husi jogu nian, labarik mane ida passa bola ba Andiswa. Nia muda lalais loos ba baliza. Nia tebe bola makaas no hatama golu ida.
+Durante parte segundu husi jogu nian, labarik mane ida passa bola ba Andiswa. Nia muda lalais loos ba baliza. Nia tebe bola maka’as no hatama golu ida.
 
 ##
-Ema hotu kontente tebes. Husi loron nee kedas, labarik feto sira mos hetan permisaun atu joga bola iha eskola.
+Ema hotu kontente tebes. Husi loron ne'e kedas, labarik feto sira mos hetan permisaun atu joga bola iha eskola.
 
 ##
 * License: [CC-BY-NC]
