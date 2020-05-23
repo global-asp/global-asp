@@ -28,10 +28,10 @@ Iha fulan hirak ne'ebé tuir mai, labarik mane sira ne'ebé laiha uma sempre har
 Magozwe tuur hela iha pavimentu haree ba ninia livru istória ne'e bainhira Tomas tuur iha ninia sorin. "Istoria ne'e kona-ba saida?" Tomas husu. "Istoria ne'e kona-ba labarik mane ida ne'ebé sai pilotu," Magozwe responde. "Labarik mane ne'e ninia naran saida?" Tomas husu. "Hau lahatene, ha'u lahatene lee," Magozwe dehan neneik.
 
 ##
-bainhira sira hasoru malu Magozwe komesa konta ninia istória ba Tomas. Istória kona-ba ninia tiu no tansá nia halai sai husi uma. Tomas la ko'alia barak, no nia la dehan ba Magozwe saida mak nia tenke halo, maibé nia sempre rona didi’ak. Dalaruma sira sei ko'alia iha momentu sira han iha uma ho kaleng azul ne'e.
+Bainhira sira hasoru malu Magozwe komesa konta ninia istória ba Tomas. Istória kona-ba ninia tiu no tansá nia halai sai husi uma. Tomas la ko'alia barak, no nia la dehan ba Magozwe saida mak nia tenke halo, maibé nia sempre rona didi’ak. Dalaruma sira sei ko'alia iha momentu sira han iha uma ho kaleng azul ne'e.
 
 ##
-bainhira Magozwe iha tinan 10, Tomas fó ba nia livru istória foun ida kona-ba labarik husi foho ida ne'ebé sai jogadór tebe bola famozu bainhira nia sai boot. Tomas lee istória ne'e ba Magozwe dala barak. To’o iha loron ida nia dehan, "Ha’u sente to'o ona tempu atu o ba eskola no aprende atu lee. O nia hanoin oinsá?" Tomas esplika katak nia hatene fatin ida ne'ebé labarik sira bele hela ba no ba eskola.
+Bainhira Magozwe iha tinan 10, Tomas fó ba nia livru istória foun ida kona-ba labarik husi foho ida ne'ebé sai jogadór tebe bola famozu bainhira nia sai boot. Tomas lee istória ne'e ba Magozwe dala barak. To’o iha loron ida nia dehan, "Ha’u sente to'o ona tempu atu o ba eskola no aprende atu lee. O nia hanoin oinsá?" Tomas esplika katak nia hatene fatin ida ne'ebé labarik sira bele hela ba no ba eskola.
 
 ##
 Magozwe hanoin kona-ba fatin foun ida ne'e no hanoin atu ba eskola. Karik ninia tiu loos duni no nia beik tebes atu aprende buat ruma? oinsá se sira baku nia iha fatin foun ida ne'e? Nia ta’uk. "Karik di’ak liu atu hela de'it iha estrada," nia hanoin.
