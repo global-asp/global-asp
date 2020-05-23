@@ -3,7 +3,7 @@
 ##
 Iha tempu uluk, Manu Inan no Makikit belun di’ak. Sira hela ho paz ho manu sira seluk. Nein sira ida bele semo.
 
-##’
+##
 Loron ida, iha tempu hamlaha iha rai. Makikit tenke la’o dook tebes atu buka hahán. Nia fila mai kolen tebes. "Tenke iha dalan fasil liu ida atu viajen!" Makikit dehan.
 
 ##
