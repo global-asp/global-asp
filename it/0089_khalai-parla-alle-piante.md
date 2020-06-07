@@ -19,7 +19,7 @@ A scuola, Khalai parla all'albero in mezzo al parco. "Per favore albero, fai cre
 Khalai parla alla siepe intorno alla sua scuola. "Per favore, cresci forte e impedisci alle persone cattive di entrare qui."
 
 ##
-Quando Khalai ritorna a casa da scuola, fa visita all'arancio "Le tue arance sono già mature?" Chiede Khalai.
+Quando Khalai ritorna a casa da scuola, fa visita all'arancio. "Le tue arance sono già mature?" Chiede Khalai.
 
 ##
 "Le arance sono ancora verdi" sospira Khalai. "Ci vediamo domani arancio" dice: "Magari allora avrai un'arancia matura per me!"
