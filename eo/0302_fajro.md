@@ -22,7 +22,7 @@ Rigardu, fajro!
 Fajro estas nekredebla.
 
 ##
-Kaj ĝi estas pova.
+Kaj ĝi estas potenca.
 
 ##
 * License: [CC-BY]
