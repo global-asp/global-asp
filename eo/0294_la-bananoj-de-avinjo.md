@@ -1,4 +1,4 @@
-# La Bananoj de Avinjo
+# La bananoj de avinjo
 
 ##
 La ĝardeno de avinjo estis mirinda, plena da sorgo, milio kaj manioko. Sed plej bonaj de ĉio estis la bananoj. Kvankam avinjo havis multajn genepojn, mi sekrete sciis, ke mi estas ŝia plej ŝatata. Ŝi ofte invitis min al sia domo. Ŝi ankaŭ diris al mi sekretetojn. Sed estis unu sekreto, kiun ŝi ne dividis kun mi: kie ŝi maturigis bananojn.
