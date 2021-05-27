@@ -1,4 +1,4 @@
-# Ferioj kun Avino
+# Ferioj kun avino
 
 ##
 Odongo kaj Apiyo loĝis en la urbo kun sia patro. Ili antaŭĝojis la ferioperiodon. Ne nur pro la lernejo estis fermita, sed pro ili vizitis sian avinon. Ŝi loĝis en fiŝkaptista vilaĝo proksime al granda lago.
