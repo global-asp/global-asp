@@ -1,4 +1,4 @@
-# La Eta Semo: La Rakonto de Wangari Maathai
+# La eta semo: la rakonto de Wangari Maathai
 
 ##
 En vilaĝo sur la deklivoj de la Monto Kenjo en Orienta Afriko, infanineto laboris en la kampoj kun sia patrino. Ŝia nomo estis Wangari.
