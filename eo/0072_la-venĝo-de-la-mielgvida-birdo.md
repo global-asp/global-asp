@@ -10,7 +10,7 @@ Post duonhoro ili atingis grandan sovaĝan figarbon. Ngede freneze saltetis inte
 Do Gingile demetis sian ĉaslancon sub la arbon, kunigis kelkajn sekajn branĉetojn kaj faris fajreton. Kiam la fajro bone brulis, li metis longan sekan bastonon en la koron de la fajro. Ĉi tiu ligno estis speciale konata fari multon da fumo dum ĝi brulis. Li komencis grimpi, tenante la malvarmetan finon de la fumanta bastono en siaj dentoj.
 
 ##
-Baldaŭ li aŭdis la laŭtan zumadon de la okupataj abeloj. Ili eniris kaj eliris el kavaĵo en la arbotrunko - sia abelujo. Kiam Gingile atingis la abelujon, li puŝis la fumantan finon de la bastono en la kavon. La abeloj elflugis, koleraj kaj kruelaj. Ili forflugis pro la fumon - sed ne antaŭ ol ili donis al Gingile dolorajn pikilojn!
+Baldaŭ li aŭdis la laŭtan zumadon de la okupataj abeloj. Ili eniris kaj eliris el kavaĵo en la arbotrunko – sia abelujo. Kiam Gingile atingis la abelujon, li puŝis la fumantan finon de la bastono en la kavon. La abeloj elflugis, koleraj kaj kruelaj. Ili forflugis pro la fumon – sed ne antaŭ ol ili donis al Gingile dolorajn pikilojn!
 
 ##
 Kiam la abeloj estis ekstere, Gingile puŝis siajn manojn en la neston. Li elprenis manplenojn da la peza mielĉelaro, gutanta per riĉa mielo kaj plena de dikaj, blankaj larvoj. Li metis la vaksaĵon zorge en la saketon, kiun li portis sur sian ŝultron, kaj komencis grimpi suben laŭ la arbo.
