@@ -1,4 +1,4 @@
-# La Venĝo de la Mielgvida Birdo
+# La venĝo de la mielgvida birdo
 
 ##
 Jen la historio de Ngede, la Mielgvida Birdo, kaj avida junulo nomata Gingile. Unun tagon dum Gingile estis ĉasanta li aŭdis la vokon de Ngede. La buŝo de Gingile komencis akvumi pro la penso pri mielo. Li haltis kaj aŭskultis atente, serĉante ĝis li vidis la birdon en la branĉoj super sia kapo. "Ĉitik-ĉitik-ĉitik", krakis la birdeto, dum li flugis al la sekva arbo, kaj la sekva. "Ĉitik, ĉitik, ĉitik", li vokis, haltante de tempo al tempo por esti certa, ke Gingile sekvas.
