@@ -25,7 +25,7 @@ Maibé sira nia esforsu tarde liu! Nia nabeen iha loron manas.
 Lilin oan sira ne'e triste tebes haree sira nia maun-alin nabeen.
 
 ##
-maibé sira halo planu. Sira halo forma foun husi lilin isin ne'ebé nabeen tiha-ona sai manu ida.
+Maibé sira halo planu. Sira halo forma foun husi lilin isin ne'ebé nabeen tiha-ona sai manu ida.
 
 ##
 Sira foti sira nia maun-alin ne'ebé sai ona manu ba iha foho aas ida.

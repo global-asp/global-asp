@@ -22,7 +22,7 @@ Ha'u bele tebe bola ho ha'u nia ain.
 Ha'u bele halai ho ha'u nia ain.
 
 ##
-maibé ha'u sei nunka bele semo.
+Maibé ha'u sei nunka bele semo.
 
 ##
 * License: [CC-BY-NC]

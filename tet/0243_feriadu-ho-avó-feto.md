@@ -28,7 +28,7 @@ Depois Odongo no Apiyo sai ba liur. Sira duni babebar no manu sira.
 Sira sa’e ai no rega bee ba malu iha lagoa laran.
 
 ##
-bainhira rai nakaras ona sira fila uma atu han kalan. Molok sira bele han hotu, sira toba dukur tiha!
+Bainhira rai nakaras ona sira fila uma atu han kalan. Molok sira bele han hotu, sira toba dukur tiha!
 
 ##
 Loron tuir mai, sira nia papa viajen fila ba sidade husi sira hela ho Nyar-Kanyada.
@@ -49,10 +49,10 @@ Iha loron seluk, labarik sira ba merkadu ho Nyar-Kanyada. Nia iha fatin fa’an 
 Iha loraik sira hemu xá hamutuk. Sira ajuda avó-feto konta osan ne'ebé nia hetan.
 
 ##
-maibé lakleur de'it feriadu sira ne'e remata ona no labarik sira tenke fila ba sidade. Nyar-Kanyada fó Odongo xapeu ida no Apiyo jaketa ida. Nia arruma hahán ba sira nia viajen.
+Maibé lakleur de'it feriadu sira ne'e remata ona no labarik sira tenke fila ba sidade. Nyar-Kanyada fó Odongo xapeu ida no Apiyo jaketa ida. Nia arruma hahán ba sira nia viajen.
 
 ##
-bainhira sira nia papa too atu foti sira, sira lakohi atu ba. Labarik sira harohan ba Nyar-Kanyada atu ba ho sira ba sidade. Nia hamnasa no dehan, "Hau ferik loos ona ba sidade. Ha’u sei hein imi fila mai ha'u nia suku dala ida tan."
+Bainhira sira nia papa too atu foti sira, sira lakohi atu ba. Labarik sira harohan ba Nyar-Kanyada atu ba ho sira ba sidade. Nia hamnasa no dehan, "Hau ferik loos ona ba sidade. Ha’u sei hein imi fila mai ha'u nia suku dala ida tan."
 
 ##
 Odongo no Apiyo hamutuk hakohak nia metin no halo despedida.

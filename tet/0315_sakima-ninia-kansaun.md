@@ -4,7 +4,7 @@
 Sakima hela ho ninia inan-papa no ninia alin feto tinan 4. Sira hela iha ema riku ida ninia rai. Sira ninia uma du’ut mak ikus liu iha liña ai-hun sira.
 
 ##
-bainhira Sakima iha tinan 3, nia moras no lakon tiha ninia vizaun. Sakima labarik mane ida ne'ebé iha talentu tebes.
+Bainhira Sakima iha tinan 3, nia moras no lakon tiha ninia vizaun. Sakima labarik mane ida ne'ebé iha talentu tebes.
 
 ##
 Sakima halo buat barak ne'ebé labarik mane idade neen seluk lahalo. Hanesan, nia bele tuur ho adultu seluk iha suku laran no diskute kona-ba asuntu importante sira.
@@ -43,10 +43,10 @@ Loron tuir mai, Sakima husu ninia alin feto atu lori nia ba ema riku ne'e ninia 
 Nia hamriik iha janela boot ida no okos no komesa kanta ninia kansaun favoritu. Neineik, ema riku ne'e ninia ulun komesa atu mosu liuhosi janela boot ne'e.
 
 ##
-Ajudante sira hapara sá de'it mak sira halo hela. Sira rona ba Sakima ninia kansaun furak sira. maibé ida husi sira dehan "Laiha ema ida mak bele konsola ita nia patraun. Labarik matan-aat ida ne'e hanoin nia bele konsola patraun ka?"
+Ajudante sira hapara sá de'it mak sira halo hela. Sira rona ba Sakima ninia kansaun furak sira. Maibé ida husi sira dehan "Laiha ema ida mak bele konsola ita nia patraun. Labarik matan-aat ida ne'e hanoin nia bele konsola patraun ka?"
 
 ##
-Sakima remata hananu ninia kansaun no fila atu ba uma. maibé ema riku ne'e halai sai lalais no dehan," Favor ida kanta tan dala ida."
+Sakima remata hananu ninia kansaun no fila atu ba uma. Maibé ema riku ne'e halai sai lalais no dehan," Favor ida kanta tan dala ida."
 
 ##
 Iha momentu ne'e kedas, mane nain rua mai hulan ema ida iha maca leten. Sira hetan tiha ona ema riku ne'e ninia oan ne'ebé ema baku no husik hela iha estrada ninin.

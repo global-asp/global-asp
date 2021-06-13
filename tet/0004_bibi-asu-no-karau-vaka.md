@@ -4,7 +4,7 @@
 Bibi, Asu, no Karau-Vaka belun ne'ebé di’ak. Loron ida sira halo viajen ho taxi.
 
 ##
-bainhira sira to'o iha fatin destinu, kondutór husu sira atu selu osan ba kustu viajen. Karau-Vaka selu ninia kustu viajen.
+Bainhira sira to'o iha fatin destinu, kondutór husu sira atu selu osan ba kustu viajen. Karau-Vaka selu ninia kustu viajen.
 
 ##
 Asu selu liu oituan, tanba nia la iha osan rahun.

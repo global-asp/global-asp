@@ -1,7 +1,7 @@
 # Avó-feto ninia hudi
 
 ##
-Avó-feto ninia jardin furak, nakonu ho sorgu, milhu no aifarina. maibé ida ne'ebé furak liu mak hudi sira. Maske Avó-feto iha bei-oan barak, ha'u hatene katak ha'u mak ninia favoritu. Nia konvida ha'u beibeik ba ninia uma. Nia mós konta mai ha'u segredu ki'ik sira. maibé iha segredu ki'ik ida mak nia la fahe ho ha'u: iha fatin ne'ebé nia hatasak hudi sira.
+Avó-feto ninia jardin furak, nakonu ho sorgu, milhu no aifarina. Maibé ida ne'ebé furak liu mak hudi sira. Maske Avó-feto iha bei-oan barak, ha'u hatene katak ha'u mak ninia favoritu. Nia konvida ha'u beibeik ba ninia uma. Nia mós konta mai ha'u segredu ki'ik sira. Maibé iha segredu ki'ik ida mak nia la fahe ho ha'u: iha fatin ne'ebé nia hatasak hudi sira.
 
 ##
 Loron ida ha'u haree raga nakonu ho du’ut sira rai hela iha avó-feto nia uma liur iha loron matan nia okos. Bainhira ha'u husu kona-ba raga ne'e, resposta unika ne'ebé ha'u simu mak, "Ne’e ha'u nia raga majiku." Besik ba raga ne'e, iha hudi tahan barak ne'ebé avó-feto fila ba mai dalabarak. Hau kuriozu. "Ai tahan sira ne'e atu halo saida, avó-feto?" ha'u husu. Resposta unika ne'ebé ha'u simu mak, "Sira ha'u nia ai-tahan majiku sira."
@@ -22,7 +22,7 @@ Avó-feto ninia lian halo ha'u hakfodak bainhira nia bolu ha'u, "O halo hela sai
 Loron tuir mai bainhira avó-feto mai vizita, ha'u ba lalais ninia uma atu halo revista ba hudi sira dala ida tan. Iha hudi sasuit tasak ida iha ne’eba. Hau foti ida no subar tiha iha ha'u nia vestidu laran. Depois de taka tiha raga ne'e, ha'u ba uma kotuk no han lalais tiha hudi ne'e. Hudi ne'e mak hudi ida midar tebes ne'ebé ha'u han.
 
 ##
-Loron tuir mai, bainhira avó-feto iha jardin ku’u hela modo-tahan sira, ha'u hateke tama no hare ba hudi sira. Kuaze hudi sira hotu tasak ona. Ha’u labele tahan aan no foti hudi fuan haat. bainhira ha'u la'o neneik ba odamatan, ha'u rona avó-feto me'ar iha liur. Ha’u maneja atu subar hudi sira iha ha'u nia vestidu laran no la’o liu nia oin.
+Loron tuir mai, bainhira avó-feto iha jardin ku’u hela modo-tahan sira, ha'u hateke tama no hare ba hudi sira. Kuaze hudi sira hotu tasak ona. Ha’u labele tahan aan no foti hudi fuan haat. Bainhira ha'u la'o neneik ba odamatan, ha'u rona avó-feto me'ar iha liur. Ha’u maneja atu subar hudi sira iha ha'u nia vestidu laran no la’o liu nia oin.
 
 ##
 Loron tuir mai mak loron bazar. Avó-feto hadeer sedu. Nia sempre foti hudi tasak no ai-farina ba fa’an iha merkadu. Ha’u la ba lalais atu vizita nia iha loron ne'e. Maibé ha'u labele sees husi nia ba tempu naruk.

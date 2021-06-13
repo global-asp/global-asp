@@ -7,10 +7,10 @@ Iha suku ida iha foho Kenya nia klaran iha Afrika Leste, labarik ki'ik ida servi
 Wangari gosta iha liur bebeik. Iha nia família sira nia to’os nia ke’e rai ho katana. Nia hanehan tama ai-musan ki'ik ba rai laran.
 
 ##
-Ninia tempu favoritu loron-loron mak depois loron-monu. bainhira rai nakaras demais atu haree planta sira, Wangari hatene katak ne'e tempu atu fila uma. Nia sei la'o tuir dalan klo'ot husi toos laran, hakur mota iha nia viajen.
+Ninia tempu favoritu loron-loron mak depois loron-monu. Bainhira rai nakaras demais atu haree planta sira, Wangari hatene katak ne'e tempu atu fila uma. Nia sei la'o tuir dalan klo'ot husi toos laran, hakur mota iha nia viajen.
 
 ##
-Wangari labarik ida ne'ebé matenek no nia la pasiensia ona atu ba eskola. maibé ninia inan no papa hakarak nia atu hela no ajuda sira iha uma. bainhira nia iha idade hitu, ninia maun bo'ot konvense ninia inan-papa atu husik nia ba eskola.
+Wangari labarik ida ne'ebé matenek no nia la pasiensia ona atu ba eskola. Maibé ninia inan no papa hakarak nia atu hela no ajuda sira iha uma. Bainhira nia iha idade hitu, ninia maun bo'ot konvense ninia inan-papa atu husik nia ba eskola.
 
 ##
 Nia gosta atu aprende! Wangari aprende barak liu-tan husi livru ne'ebé nia lee. Ninia atinjimentu iha eskola diak tebes ho nune'e nia hetan konvite atu ba estuda iha Estadus Unidus da America. Wangari kontente loos! Nia hakarak hatene liu-tan kona-ba mundu. I
@@ -22,7 +22,7 @@ Iha universidade Americana Wangari aprende buat foun barak. Nia estuda kona-ba a
 Buat barak liu-tan mak nia aprende, nia realiza liu-tan katak nia hadomi ema Kenya. Nia hakarak sira atu kontente no livre. Buat barak liu-tan mak nia aprende, nia hanoin hetan liu-tan ninia rai Afrikana.
 
 ##
-bainhira nia remata tiha ninia estudu, nia fila ba Kenya. maibé ninia nasaun iha mudansa tiha ona. To’os luan no naruk. Feto sira laiha ai hodi te’in. Ema sira ki’ak no labarik sira hamlaha.
+Bainhira nia remata tiha ninia estudu, nia fila ba Kenya. Maibé ninia nasaun iha mudansa tiha ona. To’os luan no naruk. Feto sira laiha ai hodi te’in. Ema sira ki’ak no labarik sira hamlaha.
 
 ##
 Wangari hatene atu halo saida. Nia hanorin feto sira atu kuda ai husi ai-musan sira. Feto sira fa’an ai-hun sira ne'e no uza osan hodi tau matan ba sira nia familia. Feto sira kontente tebes. Wangari ajuda tiha ona sira atu sente iha poder no forte.

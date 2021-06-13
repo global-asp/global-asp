@@ -10,10 +10,10 @@ Loron ne'e manas ho nune'e sira ba iha mota atu nani. Sira halimar no nani no ka
 Derepente, sira realiza katak tarde ona. Sira la’o fila lalais ba suku.
 
 ##
-Bainhira sira besik uma, Nozibele hasa’e ninia liman ba ninia kakorok. Nia haluha tiha ona ninia korrente! "Favor mai fali ho ha'u!" Nia husu ba ninia belun. maibé ninia belun sira dehan ne'e tarde loos ona.
+Bainhira sira besik uma, Nozibele hasa’e ninia liman ba ninia kakorok. Nia haluha tiha ona ninia korrente! "Favor mai fali ho ha'u!" Nia husu ba ninia belun. Maibé ninia belun sira dehan ne'e tarde loos ona.
 
 ##
-Ho nune'e Nozibele mesak mak ba fali mota mesak. Nia hetan ninia korrente no halai fila ba uma. maibé nia lakon iha nakukun laran.
+Ho nune'e Nozibele mesak mak ba fali mota mesak. Nia hetan ninia korrente no halai fila ba uma. Maibé nia lakon iha nakukun laran.
 
 ##
 Husi dook nia haree naroman mai husi uma du'ut ida. Nia halai ba ne'eba no dere odamatan.
@@ -37,7 +37,7 @@ Iha kedas momentu asu ne'e ba, Nozibele foti fuuk tolu husi ninia ulun. Nia tau 
 Bainhira asu ne'e fila mai, nia buka Nozibele. "Nozibele, o iha ne'ebé?" Nia hakilar. "Ha’u iha ne'e, iha kama okos," fuuk primeiru hatan. "Ha’u iha ne'e, iha odamatan kotuk," fuuk segundu hatan. "Ha’u iha ne'e, iha kraal," fuuk terseiru hatan.
 
 ##
-Depois asu ne'e hatene katak Nozibele lohi tiha ona nia. Entaun nia halai no halai ba iha suku. maibé Nozibele ninia maun sira hein nia ho ai-sanak tolu. Asu ne'e fila no halai no nunka haree hetan dezde momentu ne'e.
+Depois asu ne'e hatene katak Nozibele lohi tiha ona nia. Entaun nia halai no halai ba iha suku. Maibé Nozibele ninia maun sira hein nia ho ai-sanak tolu. Asu ne'e fila no halai no nunka haree hetan dezde momentu ne'e.
 
 ##
 * License: [CC-BY]

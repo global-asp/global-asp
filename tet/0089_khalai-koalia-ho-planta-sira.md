@@ -19,7 +19,7 @@ Iha eskola, Khalai ko'alia ba ai-hun iha resintu nia klaran. "Favor ai-hun, fó 
 Khalai ko'alia ba ai-badak sira haleu ninia eskola. "Favor sai forte no hapara ema aat sira tama mai."
 
 ##
-bainhira Khalai fila ba uma husi eskola, nia vizita sabraka oan. "O nia sabraka fuan sira tasak ona?" Khalai husu.
+Bainhira Khalai fila ba uma husi eskola, nia vizita sabraka oan. "O nia sabraka fuan sira tasak ona?" Khalai husu.
 
 ##
 "Sabraka sira ne'e sei verde nafatin," Khalai suspira. "Ha’u sei hasoru o aban sabraka hun," Khalai hateten." Karik depois o sei iha sabraka tasak mai ha'u!"

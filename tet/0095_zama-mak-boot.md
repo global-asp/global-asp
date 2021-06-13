@@ -34,7 +34,7 @@ No ha'u asegura ha'u nia alin hatene infórmasaun hotu kona-ba eskola.
 Iha aula laran ha'u halo di'ak iha buat hotu.
 
 ##
-Ha'u halo buat sira ne'e hotu ho di'ak loron-loron. maibé buat ne'ebé ha'u gosta liu mak, atu halimar no halimar!
+Ha'u halo buat sira ne'e hotu ho di'ak loron-loron. Maibé buat ne'ebé ha'u gosta liu mak, atu halimar no halimar!
 
 ##
 * License: [CC-BY]

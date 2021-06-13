@@ -1,7 +1,7 @@
 # Manu Inan no Milipede
 
 ##
-Manu Inan no Milipede kolega di’ak. maibé sira rua sempre kompete malu. Loron ida sira deside atu joga bola hodi haree se mak jogador di’ak tebes.
+Manu Inan no Milipede kolega di’ak. Maibé sira rua sempre kompete malu. Loron ida sira deside atu joga bola hodi haree se mak jogador di’ak tebes.
 
 ##
 Sira ba iha kampu tebe bola nian no komesa sira nia jogu. Manu inan lalais liu. Manu inan tebe bola dook, maibé Milipede tebe dook liu-fali. Manu inan komesa sente iritadu.
@@ -19,7 +19,7 @@ Manu inan nervozu tamba nia lakon. Nia lakon aat. Milipede komesa hamnasa tanba 
 Manu inan hirus tebes ne'ebé nia loke ninia ibun luan no tolan tiha milipede.
 
 ##
-bainhira manu inan la’o fila uma, nia hasoru milipede nia inan. Milipede nia inan husu, "O haree ha'u nia oan ka?" Manu inan ne'e la dehan buat ida. Milipede nia inan sente preukupadu.
+Bainhira manu inan la’o fila uma, nia hasoru milipede nia inan. Milipede nia inan husu, "O haree ha'u nia oan ka?" Manu inan ne'e la dehan buat ida. Milipede nia inan sente preukupadu.
 
 ##
 Depois milipede nia inan rona lian ki'ik ida. "Ajuda ha'u ama!" lian ne'e husu ho dezesperadu. Milipede nia inan hateke ba mai no rona didi’ak. Lian ne'e mai husi manu inan nia laran.

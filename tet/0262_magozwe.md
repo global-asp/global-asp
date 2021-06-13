@@ -7,10 +7,10 @@ Iha sidade Nairobi ne'ebé okupadu, dook husi uma ne'ebé iha karinu, moris laba
 Magozwe ninia inan-papa mate bainhira nia ho tinan 5 de'it. Nia ba hela ho ninia tiu. Nia tiu la tau matan ba nia. Nia la fó hahán natoon ba Magozwe. Nia halo labarik mane ne'e servisu todan barak tebes.
 
 ##
-Ninia tiu baku, se Magozwe lamenta ka husu buat ruma. bainhira Magozwe husu se nia bele ba eskola, ninia tiu baku nia no dehan "O beik tebes atu aprende sa de'it." Depois de tinan 3 hetan tratamentu sira hanesan ne'e, Magozwe halai sai sees husi nia tiu. Nia komesa hela iha estrada.
+Ninia tiu baku, se Magozwe lamenta ka husu buat ruma. Bainhira Magozwe husu se nia bele ba eskola, ninia tiu baku nia no dehan "O beik tebes atu aprende sa de'it." Depois de tinan 3 hetan tratamentu sira hanesan ne'e, Magozwe halai sai sees husi nia tiu. Nia komesa hela iha estrada.
 
 ##
-Moris iha estrada difisil tebes no labarik sira ne'e barak hetan difikuldade atu hetan hahán. Dalaruma sira hetan kastigu, dalaruma mós sira hetan baku. bainhira sira moras, laiha ema ida atu ajuda sira. Grupu sira ne'e depende ba osan oituan sira ne'ebé sira hetan husi ema seluk ne'ebé sira husu, no husi fa’an plastik no halo resiklajen sira seluk. Moris ne'e difisil liu tan tanba baku malu ho grupu sira seluk ne'ebé hakarak kontrola parte balun husi sidade nian.
+Moris iha estrada difisil tebes no labarik sira ne'e barak hetan difikuldade atu hetan hahán. Dalaruma sira hetan kastigu, dalaruma mós sira hetan baku. Bainhira sira moras, laiha ema ida atu ajuda sira. Grupu sira ne'e depende ba osan oituan sira ne'ebé sira hetan husi ema seluk ne'ebé sira husu, no husi fa’an plastik no halo resiklajen sira seluk. Moris ne'e difisil liu tan tanba baku malu ho grupu sira seluk ne'ebé hakarak kontrola parte balun husi sidade nian.
 
 ##
 Loron ida bainhira Magozwe buka hela hahán iha lixu fatin, nia hetan livru istória tuan naklees ida. Nia hamoos rai-rahun husi livru ne'e no tau iha ninia pasta. Loron loron tuir mai nia sei hasai livru ne'e no haree ba imajen sira. Nia lahatene lee liafuan sira ne'e.
@@ -34,7 +34,7 @@ Bainhira sira hasoru malu Magozwe komesa konta ninia istória ba Tomas. Istória
 Bainhira Magozwe iha tinan 10, Tomas fó ba nia livru istória foun ida kona-ba labarik husi foho ida ne'ebé sai jogadór tebe bola famozu bainhira nia sai boot. Tomas lee istória ne'e ba Magozwe dala barak. To’o iha loron ida nia dehan, "Ha’u sente to'o ona tempu atu o ba eskola no aprende atu lee. O nia hanoin oinsá?" Tomas esplika katak nia hatene fatin ida ne'ebé labarik sira bele hela ba no ba eskola.
 
 ##
-Magozwe hanoin kona-ba fatin foun ida ne'e no hanoin atu ba eskola. Karik ninia tiu loos duni no nia beik tebes atu aprende buat ruma? oinsá se sira baku nia iha fatin foun ida ne'e? Nia ta’uk. "Karik di’ak liu atu hela de'it iha estrada," nia hanoin.
+Magozwe hanoin kona-ba fatin foun ida ne'e no hanoin atu ba eskola. Karik ninia tiu loos duni no nia beik tebes atu aprende buat ruma? Oinsá se sira baku nia iha fatin foun ida ne'e? Nia ta’uk. "Karik di’ak liu atu hela de'it iha estrada," nia hanoin.
 
 ##
 Nia fahe ho Tomas ninia ta’uk sira. Iha tempu hirak nia laran mane ne'e assegura bebeik ba labarik mane ne'e katak moris sei sai di’ak liu iha fatin foun ida ne'e.
@@ -43,7 +43,7 @@ Nia fahe ho Tomas ninia ta’uk sira. Iha tempu hirak nia laran mane ne'e assegu
 Entaun Magozwe muda ba iha kuartu ida iha uma ida ho kaleng verde. Nia hela iha kuartu ne'e hamutuk ho labarik mane nain rua seluk. Hamutuk iha labarik nain sanulu mak hela iha uma ne'e. Sira hela ho tia Cissy no ninia la’en, asu tolu, busa ida, no bibi katuas ida.
 
 ##
-Magozwe komesa eskola no difisil duni. Nia presija aprende buat barak. Dalaruma nia hakarak atu para. maibé nia hanoin kona-ba pilotu no jogadór bola iha livru istória sira nia laran ne'e. Hanesan ho sira, nia mó s la deziste.
+Magozwe komesa eskola no difisil duni. Nia presija aprende buat barak. Dalaruma nia hakarak atu para. Maibé nia hanoin kona-ba pilotu no jogadór bola iha livru istória sira nia laran ne'e. Hanesan ho sira, nia mó s la deziste.
 
 ##
 Magozwe tuur hela iha jardin iha uma kor verde ne'e nian, lee hela livru istória ida husi eskola. Tomas sai mai no tuur iha nia sorin." Istória ne'e kona-ba saida?" Tomas husu." Nee kona-ba labarik mane ida ne'ebé sai manorin ida," Magozwe responde. "Labarik ne'e naran saida?" Tomas husu. "Ninia naran Magozwe," Magozwe hatan ho hamnasa.

@@ -22,7 +22,7 @@ Meias sira ne’e badak.
 Maibé sapatu sira ne'e foun.
 
 ##
-...sira hatais ho di'ak.
+... sira hatais ho di'ak.
 
 ##
 * License: [CC-BY-NC]

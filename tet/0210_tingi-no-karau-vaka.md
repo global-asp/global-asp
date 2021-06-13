@@ -28,7 +28,7 @@ Avó-feto subar Tingi iha ai-tahan sira nia okos.
 Soldadu ida sama kedas ba nia leten, maibé nia nonok nafatin.
 
 ##
-bainhira seguru ona, Tingi no ninia avó-feto sai ba liur.
+Bainhira seguru ona, Tingi no ninia avó-feto sai ba liur.
 
 ##
 Sira nonok la'o neneik fila uma.

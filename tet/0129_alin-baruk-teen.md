@@ -19,7 +19,7 @@ Ha’u dasa rai.
 Ha’u fase bikan sira.
 
 ##
-Tansá ha'u servisu maka’as loos..... bainhira ha'u nia alin okupadu ho halimar?
+Tansá ha'u servisu maka’as loos..... Bainhira ha'u nia alin okupadu ho halimar?
 
 ##
 * License: [CC-BY-NC]
