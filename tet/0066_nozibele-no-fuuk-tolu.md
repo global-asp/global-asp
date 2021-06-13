@@ -10,13 +10,13 @@ Loron ne'e manas ho nune'e sira ba iha mota atu nani. Sira halimar no nani no ka
 Derepente, sira realiza katak tarde ona. Sira la’o fila lalais ba suku.
 
 ##
-bainhira sira besik uma, Nozibele hasa’e ninia liman ba ninia kakorok. Nia haluha tiha ona ninia korrente! "Favor mai fali ho ha'u!" Nia husu ba ninia belun. maibé ninia belun sira dehan ne'e tarde loos ona.
+Bainhira sira besik uma, Nozibele hasa’e ninia liman ba ninia kakorok. Nia haluha tiha ona ninia korrente! "Favor mai fali ho ha'u!" Nia husu ba ninia belun. maibé ninia belun sira dehan ne'e tarde loos ona.
 
 ##
 Ho nune'e Nozibele mesak mak ba fali mota mesak. Nia hetan ninia korrente no halai fila ba uma. maibé nia lakon iha nakukun laran.
 
 ##
-husi dook nia haree naroman mai husi uma du'ut ida. Nia halai ba ne'eba no dere odamatan.
+Husi dook nia haree naroman mai husi uma du'ut ida. Nia halai ba ne'eba no dere odamatan.
 
 ##
 Ba ninia surpreza, asu ida mak loke odamatan no dehan "Saida mak o hakarak?" "Ha’u lakon no ha'u presija fatin ida atu toba, "Nozibele hateten. "Tama mai, se lae ha'u sei tata o!" asu ne'e dehan. Entaun Nozibele tama ba laran.
@@ -34,7 +34,7 @@ Loron loron nia tenke te’in no dasa rai no fó hariis asu ne'e. Hafoin loron i
 Iha kedas momentu asu ne'e ba, Nozibele foti fuuk tolu husi ninia ulun. Nia tau fuuk ida iha kama okos, ida seluk iha odamatan kotuk no seluk ida iha Kraal (kraal= uma du’ut tradisional Afrika nian). Hafoin nia halai maka’as fila ba uma.
 
 ##
-bainhira asu ne'e fila mai, nia buka Nozibele. "Nozibele, o iha ne'ebé?" Nia hakilar. "Ha’u iha ne'e, iha kama okos," fuuk primeiru hatan. "Ha’u iha ne'e, iha odamatan kotuk," fuuk segundu hatan. "Ha’u iha ne'e, iha kraal," fuuk terseiru hatan.
+Bainhira asu ne'e fila mai, nia buka Nozibele. "Nozibele, o iha ne'ebé?" Nia hakilar. "Ha’u iha ne'e, iha kama okos," fuuk primeiru hatan. "Ha’u iha ne'e, iha odamatan kotuk," fuuk segundu hatan. "Ha’u iha ne'e, iha kraal," fuuk terseiru hatan.
 
 ##
 Depois asu ne'e hatene katak Nozibele lohi tiha ona nia. Entaun nia halai no halai ba iha suku. maibé Nozibele ninia maun sira hein nia ho ai-sanak tolu. Asu ne'e fila no halai no nunka haree hetan dezde momentu ne'e.
