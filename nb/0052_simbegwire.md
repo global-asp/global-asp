@@ -22,7 +22,7 @@ Ting ble bare verre for Simbegwire. Hvis hun ikke gjorde ferdig husarbeidet, ell
 En morgen brukte Simbegwire lang tid på å stå opp. «Din latsabb!» ropte Anita. Hun dro Simbegwire ut av sengen. Teppet hun var så glad i satt fast på en spiker og revnet.
 
 ##
-Simbegwire var veldig opprørt. Hun bestemte seg for å rømme. Hun tok bitene fra morens teppe, pakket litt mat og dro av gårde. Hun fulgte den samme veien som faren hennes hadde tatt.
+Simbegwire ble veldig opprørt. Hun bestemte seg for å rømme. Hun tok bitene fra morens teppe, pakket litt mat og dro av gårde. Hun fulgte den samme veien som faren hennes hadde tatt.
 
 ##
 Da kvelden kom, klatret hun opp i et høyt tre ved en bekk og redde seg en seng i grenene. Da hun gikk og la seg, sang hun: «Mamma, mamma, mamma, du forlot meg. Du forlot meg og kom aldri tilbake. Pappa er ikke glad i meg lenger. Mamma, når kommer du tilbake? Du forlot meg.»
