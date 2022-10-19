@@ -19,7 +19,7 @@ Jag kan hoppa hopprep med den.
 Jag kan sparka med den.
 
 ##
-Jag kan fly med den.
+Jag kan springa iväg med den.
 
 ##
 Men jag kan aldrig flyga med den.
