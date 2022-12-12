@@ -32,4 +32,4 @@ Das neue Fell hatte eine andere Farbe als das Fell am Rest seines Körpers. Die 
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust
 * Translation: Beate Ertzel
-* Language: en
+* Language: de
