@@ -22,7 +22,7 @@ Poste Hipo estis manĝante herbon malproksime de la rivero, kiam, "Vus!" Fajro e
 Hipo ekploris kaj kuris al la akvo. Ŝia hararo tute forbrulis per la fajro. Hipo senĉese kriis, "Mia hararo forbrulis en la fajro! Mia hararo estas forbrulinta! Mia bela hararo!"
 
 ##
-Kuniklo ĝojis ke la hararo de Hipo estais forbrulinta. Kaj ĝis nun, pro timo de fajro, la hipopotamoj neniam iras malproksime de la akvo.
+Kuniklo ĝojis ke la hararo de Hipo estis forbrulinta. Kaj ĝis nun, pro timo de fajro, la hipopotamoj neniam iras malproksime de la akvo.
 
 ##
 * License: [CC-BY]
