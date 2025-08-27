@@ -33,5 +33,5 @@ In dieser Nacht führte der Heiler die Menschen zu einem Feuertanz, um den Erfol
 * License: [CC-BY]
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust, Pensa Limungu, Kapilolo Mahongo, Marlene Winberg
-* Translation: Beate Ertzel
+* Translation: Beate Etzel
 * Language: de
