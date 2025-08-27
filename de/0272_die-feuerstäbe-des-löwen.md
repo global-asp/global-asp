@@ -46,5 +46,5 @@ Nach langer Zeit kehrte der Löwe mit müdem Gesicht zurück, denn der Strauß l
 * License: [CC-BY]
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust
-* Translation: Beate Ertzel
+* Translation: Beate Etzel
 * Language: de
