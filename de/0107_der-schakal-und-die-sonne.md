@@ -31,5 +31,5 @@ Das neue Fell hatte eine andere Farbe als das Fell am Rest seines Körpers. Die 
 * License: [CC-BY]
 * Text: Traditional San story
 * Illustration: Manyeka Arts Trust
-* Translation: Beate Ertzel
+* Translation: Beate Etzel
 * Language: de
