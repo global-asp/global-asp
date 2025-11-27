@@ -25,7 +25,7 @@ La ŝarĝado estis finfarita kaj ĉiuj pasaĝeroj sidis. Kolportistoj ankoraŭ e
 Kelkaj pasaĝeroj aĉetis trinkaĵojn, aliaj aĉetis malgrandajn manĝetojn kaj komencis maĉi. Tiuj, kiuj ne havis monon, kiel mi, nur rigardis.
 
 ##
-Ĉi tiujn agadoj interrompsj la hupado de la buso, signo ke ni pretis foriri. La helpanto kriis ke la kolportistoj eliru.
+Ĉi tiuj agadoj interrompis la hupadon de la buso, signo ke ni pretis foriri. La helpanto kriis ke la kolportistoj eliru.
 
 ##
 Kolportistoj puŝis unu la alian por elbusiĝi. Kelkaj redonis monŝanĝon al la vojaĝantoj. Aliaj faris lastatempajn klopodojn vendi pli da aĵoj.
