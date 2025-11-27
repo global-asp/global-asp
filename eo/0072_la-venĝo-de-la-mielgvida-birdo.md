@@ -22,7 +22,7 @@ Ngede fervore spektis ĉion, kion Gingile faris. Li atendis, ke li lasu dikan pe
 Gingile estingis la fajron, prenis sian lancon kaj ekmarŝis hejmen, ignorante la birdon. Ngede kolere vokis, "VIC-torr! VIC-torrr!" Gingile haltis, fiksrigardis la birdeton kaj laŭte ridis. "Vi volas iom da mielo, ĉu ne, mia amiko? Ha! Sed mi faris la tutan laboron kaj ricevis ĉiujn de la pikojn. Kial mi dividu iun el ĉi tiu dolĉa mielo kun vi?" Poste li ekiris. Ngede furiozis! Ĉi tio ne estis maniero trakti lin! Sed li venĝos.
 
 ##
-Unun tagon plurajn semajnojn poste Gingile denove aŭdis la mielan vokon de Ngede. Li memoris la bongustan mielon, kaj fervore sekvis la birdon denove. Post gvidado de Gingile laŭ la arbara rando, Ngede haltis por ripozi en granda ombrela dornarbo. "Ahh," pensis Gingile. "La abelujo devas esti en ĉi tiu arbo." Li rapide faris sian malgrandan fajron kaj komencis grimpi, la fumanta branĉo en liaj dentoj. Ngede sidis kaj rigardis.
+Unu tagon pluraj semajnoj poste, Gingile denove aŭdis la mielan vokon de Ngede. Li memoris la bongustan mielon, kaj fervore sekvis la birdon denove. Post gvidado de Gingile laŭ la arbara rando, Ngede haltis por ripozi en granda ombrela dornarbo. "Ahh," pensis Gingile. "La abelujo devas esti en ĉi tiu arbo." Li rapide faris sian malgrandan fajron kaj komencis grimpi, la fumanta branĉo en liaj dentoj. Ngede sidis kaj rigardis.
 
 ##
 Gingile grimpis, miranta kial li ne aŭdis la kutiman zumadon. "Eble la abelujo estas profunde en la arbo," li pensis al si. Li tiris sin supren laŭ alia branĉo. Sed anstataŭ la abelujo, li fiksrigardis la vizaĝon de leopardo! Leopardo tre koleris pro la kruda interrompo de sia dormo. Ŝi duonfermis la okulojn kaj malfermis la buŝon por malkaŝi siajn tre grandajn kaj tre akrajn dentojn.
