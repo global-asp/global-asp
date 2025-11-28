@@ -16,7 +16,7 @@ Wangari estis lerta infano kaj atendis senpacience studi lerneje. Sed ŝia patri
 Ŝi ŝatis lerni! Wangari lernis pli kaj pli de ĉiu libro legita. Ŝi faris tiom bone lerneje ke ŝi estis invitita studi en Usono. Wangari estis ekcitita! Ŝi volis scii pli pri la mondo.
 
 ##
-En la Usona universitato Wanari lernis multajn novajn aferojn. Ŝi studis plantojn kaj kiel ili kreskas. Kaj ŝi memoris kiel ŝi kreskis: ludanta kun ŝiaj fratoj in la ombro de la arboj en la belaj Kenjaj arbaroj.
+En la Usona universitato Wanari lernis multajn novajn aferojn. Ŝi studis plantojn kaj kiel ili kreskas. Kaj ŝi memoris kiel ŝi kreskis: ludanta kun ŝiaj fratoj en la ombro de la arboj en la belaj Kenjaj arbaroj.
 
 ##
 Ju pli ŝi lernis, des pli ŝi konstatis ke ŝi amis la homojn de Kenjo. Ŝi volis ke ili estu feliĉaj kaj liberaj. Ju pli ŝi lernis, des pli ŝi memoris sian Afrikan hejmon.
